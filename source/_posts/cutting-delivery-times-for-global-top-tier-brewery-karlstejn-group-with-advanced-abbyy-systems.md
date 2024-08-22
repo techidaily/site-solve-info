@@ -1,7 +1,7 @@
 ---
 title: Cutting Delivery Times for Global Top-Tier Brewery Karlstejn Group with Advanced ABBYY Systems
-date: 2024-08-20 10:34:27
-updated: 2024-08-22 10:20:23
+date: 2024-08-21T15:06:08.209Z
+updated: 2024-08-22T15:06:08.209Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ecd5393b4b11cd27ce9b151fec19432ec4c563d2b818d2405502179fc7ce1c3d.jpg
@@ -89,6 +89,9 @@ ABBYYのIDPソリューションを納品書のスキャンプロセスに導入
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

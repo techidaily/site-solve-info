@@ -1,7 +1,7 @@
 ---
 title: Marlin Equity PartnersがABBYYに対する投資を開始 - 最新ニュース解析
-date: 2024-08-19 14:25:54
-updated: 2024-08-22 10:28:21
+date: 2024-08-21T15:06:07.692Z
+updated: 2024-08-22T15:06:07.692Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4c147f639cee2585f7f88020d64ed44f6ab3d2fb87afeca6ceadabb8d346628a.jpg
@@ -103,3 +103,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->

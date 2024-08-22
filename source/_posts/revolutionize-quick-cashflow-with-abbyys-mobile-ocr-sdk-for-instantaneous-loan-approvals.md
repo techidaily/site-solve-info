@@ -1,7 +1,7 @@
 ---
 title: Revolutionize Quick Cashflow with ABBYY's Mobile OCR SDK for Instantaneous Loan Approvals!
-date: 2024-08-20 22:58:50
-updated: 2024-08-22 11:24:23
+date: 2024-08-21T15:06:06.490Z
+updated: 2024-08-22T15:06:06.490Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/14595ce84d31d38abb3ed2fa0891687712e003ea9a69810e6bfa5725263bbf33.jpg
@@ -23,6 +23,9 @@ Finance/Banking | Mobile Capture
 
 Banking | Mobile Capture 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

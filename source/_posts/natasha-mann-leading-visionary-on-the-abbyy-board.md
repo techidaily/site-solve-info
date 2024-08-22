@@ -1,7 +1,7 @@
 ---
 title: Natasha Mann - Leading Visionary on the ABBYY Board
-date: 2024-08-20 12:40:18
-updated: 2024-08-22 11:18:32
+date: 2024-08-21T15:06:08.252Z
+updated: 2024-08-22T15:06:08.252Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/bb9708a331c4c3dd31e799c079bb73652a9e75d1a08dd178d051b1af275cc7e6.jpg
@@ -37,3 +37,7 @@ Natasha is a Principal at Marlin Equity Partners where her primary responsibilit
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<!-- affiliate ads end -->

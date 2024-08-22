@@ -1,7 +1,7 @@
 ---
 title: Empowering SAP Bots with Next-Gen Content Cognition Technology From ABBYY
-date: 2024-08-21 23:44:30
-updated: 2024-08-22 12:25:52
+date: 2024-08-21T15:06:06.328Z
+updated: 2024-08-22T15:06:06.328Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/69ee34b64cf92db1f2232edf38c3580f65ba5a6c1e5baa6cfa6ccd73ff711508.jpg
@@ -42,6 +42,9 @@ Comment obtenir une transparence totale de chaque activité, identifier les oppo
 
 [Télécharger la brochure](https://static1.abbyy.com/abbyycommedia/33180/brochure-timeline-sap-connector-en.pdf)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Avantages de l’intégration 
 
 ##### Respectez la réglementation 
@@ -68,6 +71,12 @@ Téléchargez le connecteur FlexiCapture pour SAP Intelligent RPA depuis la bout
 
 ![](https://content.abbyy.com/-/media/feature/basecomponents/clients/sap.png?h=40&iar=0&w=120)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Prêt à parler à un expert ?
 
 [Demander une démo](https://tools.techidaily.com/abbyy/products/)[Contactez-nous](https://tools.techidaily.com/abbyy/products/)

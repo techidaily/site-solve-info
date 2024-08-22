@@ -1,7 +1,7 @@
 ---
 title: アバビイ調査で優勝者を決める：エベレスト・コンソーシアムのPEAK Matrixリーダー指数2024 - IDP
-date: 2024-08-20 11:43:21
-updated: 2024-08-22 10:47:15
+date: 2024-08-21T15:06:06.113Z
+updated: 2024-08-22T15:06:06.113Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ac7b7d7eb1b61e878d4715837135fe97081096b41d9601e6ca5eb36f744ec4b7.jpg
@@ -27,6 +27,9 @@ ABBYYは、エベレストグループのインテリジェント文書処理（
 
 _**Vaibhav Bansal, Vice President, Everest Group**_
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<!-- affiliate ads end -->
 ## ABBYYにご関心をお寄せいただき、誠にありがとうございます。 
 
 [レポートを読む](https://global.abbyy.com/hubfs/documents/content/report-everest-group-idp-products-peak-matrix-assessment-2024-en.pdf "Read the report") 

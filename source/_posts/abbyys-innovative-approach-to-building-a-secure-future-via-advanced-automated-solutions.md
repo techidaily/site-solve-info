@@ -1,7 +1,7 @@
 ---
 title: ABBYY's Innovative Approach to Building a Secure Future via Advanced Automated Solutions
-date: 2024-08-21 10:26:23
-updated: 2024-08-22 10:39:50
+date: 2024-08-21T15:06:05.946Z
+updated: 2024-08-22T15:06:05.946Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/acc116e7f31959c80ee46ff620abee605b240216ab77712435cda97b5c53cabd.jpg
@@ -34,6 +34,9 @@ According to the National Highway Traffic Safety Administration, [traffic crashe
 
 In an effort to prevent future fatalities and promote safer conditions for all drivers, **auto insurance companies are turning to intelligent automation**. Previously, insurers relied on past driving records—frequency and severity of tickets and accidents—to assess the safety of an individual’s driving habits. [Today they can use telematics to collect real-time data while the person is driving](https://www.usnews.com/insurance/auto/how-do-those-car-insurance-tracking-devices-work), either through a physical device plugged into the vehicle or via a smartphone app. Both methods use AI to detect behaviors such as sudden acceleration and hard braking, and smartphone apps can also flag [phone use while driving, a proven risk factor in traffic fatalities](https://www.nhtsa.gov/risky-driving/distracted-driving#the-issue-consequences). Auto insurance companies then **use this data to reward safe drivers** with discounts and to encourage those with less-than-stellar habits to be more careful.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Coaching truck drivers in real time
 
 On the commercial side, truck fleets are using **AI-driven coaching apps to leverage positive reinforcement** in helping drivers improve their safety practices. [Netradyne’s Driver-i application, for example](https://www.ccjdigital.com/technology/driver-coaching-and-scorecarding/article/15304064/survey-shows-safety-finances-top-concerns-for-some-fleets), analyzes 100 percent of a driver’s practices (not just “triggered events” such as speeding, in contrast with consumer insurance tracking apps) via computer vision using data from the rig’s dashcam. Through in-cab alerts and automated virtual coaching, drivers receive real-time feedback on what they’re doing as well as what they could be doing better.
@@ -44,6 +47,9 @@ Netradyne’s senior vice president of marketing, Barrett Young, recently shared
 
 In 2020, [more than one in five workplace deaths occurred within the construction industry](https://www.bls.gov/opub/ted/2022/a-look-at-falls-slips-and-trips-in-the-construction-industry.htm), and more than one-third of those fatalities resulted from falls, slips, and trips. In addition to saving lives, enhancing construction site safety also helps businesses avoid financial hardships. [Each Occupational Safety and Health Administration (OSHA) violation incurs a penalty of up to $15,625](https://www.osha.gov/penalties), and OSHA estimates that [U.S. employers pay nearly $1 billion per week](https://www.osha.gov/businesscase/costs) for direct workers' compensation costs.
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Enhancing visibility
 
 Construction companies are getting ahead of safety risks by **increasing visibility with smart technology, particularly AI-supported cameras**. Through photo recognition and 3-dimensional scanning, these cameras can recognize objects and people then use this data to identify hazards such as workers without hardhats, exposure to hazardous materials, and activities being performed unsafely or without the required safety gear.
@@ -52,14 +58,23 @@ Construction companies are getting ahead of safety risks by **increasing visibil
 
 AI-powered “smart” construction equipment systems help construction operators increase transparency and accountability through consistent monitoring and reporting. [Caterpillar’s VisionLink system](https://www.cat.com/en%5FUS/support/technology/equipment-management/visionlink.html), for example, delivers a dashboard that conveys the exact location of every piece of heavy equipment and tracks machine health, enabling proactive maintenance to prevent potential safety hazards due to malfunctioning machinery.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Enabling remote robotic construction
 
 AI adds another dimension of safety by **enabling some building elements to be produced away from the construction site**. Robotic factories can produce certain structural components in a highly controlled setting, removing potential hazards from the site and thus lowering the risks of worker injury.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Improving drug safety reporting
 
 Tracking adverse drug events (ADEs)—harms resulting from medication that include allergic reactions, side effects, and human error—is a key component in making drugs safer. Every year, adverse drug events (ADEs) cause about [1.3 million visits to the emergency room and 350,000 hospitalizations, costing about $3.5 billion a year](https://www.cdc.gov/medicationsafety/basics.html).
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### How AI Identity Proofing Is Transforming Government Services
 
 eBook
@@ -72,6 +87,9 @@ The U.S. Food and Drug Administration (FDA) tracks ADEs through two systems: the
 
 Historically, the FDA has relied on human analysts to process adverse event forms. Each reviewer would spend an average of 10 minutes reading each form. For about 10 percent of the forms, another 15–20 minutes would be required to write a report about the possible relationship between the drug and the event. **This process alone added up to about 1,000 hours**, causing high levels of worker fatigue as well as a high risk of human error.
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Finding an intelligent solution
 
 The FDA turned to intelligent automation to tackle an immense challenge: digitize a 30-year archive of adverse event reports, which encompassed over two dozen versions of forms with over 120 complex fields. The platform **uses artificial intelligence to capture and extract vital data and information from each form** at an accuracy rate of 99 percent and is expected to save 7,500 labor hours per year.
@@ -80,6 +98,9 @@ In that same interview, Scott explained that today, “\[analysts\] can basicall
 
 By speeding up adverse event report processing and dramatically reducing the risk of human error, the FDA is helping **ensure that problems with medications can be addressed quickly and effectively**. Healthcare providers can prescribe drugs with greater confidence in their safety and effectiveness, and patients ultimately benefit from the prevention of future adverse reactions.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Intelligence for a safer future
 
 These are a few examples of areas where intelligent automation is contributing to a safer future, and there are many more where these came from.

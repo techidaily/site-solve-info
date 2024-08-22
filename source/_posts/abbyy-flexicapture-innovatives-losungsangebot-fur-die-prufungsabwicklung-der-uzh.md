@@ -1,7 +1,7 @@
 ---
 title: "ABBYY FlexiCapture: Innovatives Lösungsangebot Für Die Prüfungsabwicklung Der UZH"
-date: 2024-08-19 16:15:42
-updated: 2024-08-22 12:46:23
+date: 2024-08-21T15:06:07.830Z
+updated: 2024-08-22T15:06:07.830Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/faf1cb7ed901297d85ab9d9c8300254ef72ce23f305cb5ba36be85ff8ad3eb26.png
@@ -47,6 +47,9 @@ Deutliche Zeitersparnis bei der Korrektur von Prüfungsbögen sowie starke Arbei
 
 **An Universitäten werden jedes Semester zahlreiche schriftliche Prüfungen mit 1.000 und mehr teilnehmenden durchgeführt – entsprechend zeitaufwändig und umfangreich sind manuelle korrekturaufgaben, mit denen Dozierende belastet werden. Ein effizientes Management der Unterlagen wird so schnell zum Prüfstein für die Verwaltung. Die Universität Zürich unterstützt diese Prozesse daher mit [ABBYY Flexicapture](https://tools.techidaily.com/abbyy/products/) zur elektronischen Verarbeitung und entlastet durch die automatisierte Formularauswertung der Prüfungen ihre Mitarbeiter.**
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Herausforderung
 
 Der Bologna-Prozess zur Schaffung eines einheitlichen europäischen Hochschulraums hat wegen der damit einhergehenden, veränderten Modalitäten der Leistungsbewertung zu einem signifikanten Anstieg schriftlicher Prüfungen an den europäischen Hochschulen geführt.
@@ -55,6 +58,9 @@ Kommt dann noch - wie im Falle der Universität Zürich - ein stetiger Anstieg d
 
 Aus diesen Gründen hat die Leitung der Universität Zürich bereits vor einigen jahren beschlossen, ein gesamtuniversitäres Projekt zur elektronischen Unterstützung schriftlicher Prüfungen zu lancieren. Im rahmen dieses Projekts sollen die organisatorischen und technischen Voraussetzungen geschaffen werden, um das Management schriftlicher Prüfungen bestmöglich mit elektronischen Mitteln zu unterstützen. Vordringliches Ziel dieses Ansatzes ist es, eine nachhaltige und spürbare entlastung der Dozierenden bei Vorbereitung, Durchführung und korrektur schriftlicher Prüfungen zu schaffen.
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Lösung
 
 In der Theorie werden die optimalen Effizienzgewinne mit der elektronischen Prüfungsdurchführung erzielt. Diese Variante hat jedoch - neben der damit verbundenen technischen Komplexität - den Nachteil, dass die hierzu benötigte IT-Infrastruktur einen erheblichen Kostenfaktor darstellt. Dies gilt insbesondere im Hinblick auf hochvolumige Prüfungen. An der Universität Zürich sind jedoch Prüfungen mit 1.000 und mehr Teilnehmenden keine Seltenheit. Daher wurde der elektronischen Prüfungsdurchführung die automatisierte Auswertung papierbasierter Prüfungen zur Seite gestellt.
@@ -68,6 +74,9 @@ _Jürgen Petry,_
 
  _Projektleiter,Universität Zürich_ 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Ergebnis
 
 Um die automatische Verarbeitung der ausgefüllten Prüfungsbögen mit ABBYY FlexiCapture zu optimieren, wird über ein Vorsystem ein auf die konkreten Prüfungsinhalte abgestimmter Fragebogen generiert. Durch die Berücksichtigung der Layout-Empfehlungen von ABBYY ist im Nachgang eine optimale Verarbeitung der digitalisierten Prüfungsbögen durch ABBYY FlexiCapture gewährleistet. Bei Bedarf können diese Prüfungsbögen auch mit einem personalisierten Barcode erzeugt werden, was den Automatisierungsgrad bei der elektronischen Verarbeitung sogar noch weiter erhöht. Zur Digitalisierung der Prüfungsbögen werden Kodak-Produktionsscanner eingesetzt. Vorteil: Für den Import der Indexierungsinformationen aus der Kodak-Scansoftware besitzt ABBYY FlexiCapture bereits standardmäßig eine passend ausgelegte XML-Schnittstelle. Mittels der in ABBYY FlexiCapture integrierten Workflow-Steuerung wird die Prüfungsauswertung dann in zwei Phasen abgearbeitet: Zuerst werden die OCR/OMR-Ergebnisse - hier also die markierten bzw. nicht markierten Kontrollkästchen - im Rahmen der Datenverifizierung nachbearbeitet.
@@ -82,6 +91,9 @@ Der hohe Funktionsumfang von ABBYY FlexiCapture wurde bereits in der Pilotphase 
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Über ABBYY und Kontaktmöglichkeiten
 
 [Zur ABBYY Unternehmensübersicht ›](https://tools.techidaily.com/abbyy/products/)
@@ -90,6 +102,9 @@ Der hohe Funktionsumfang von ABBYY FlexiCapture wurde bereits in der Pilotphase 
 
 Teilen 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 ### Sind Sie bereit, mit einem Experten zu sprechen?
 
 Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.

@@ -1,7 +1,7 @@
 ---
 title: Visionary Executive Neil Murphy Guides Global Strategy as EMEA Channel Chief and SVP at Top-Level Sales Position
-date: 2024-08-20 15:52:46
-updated: 2024-08-22 12:25:43
+date: 2024-08-21T15:06:06.577Z
+updated: 2024-08-22T15:06:06.577Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/122fad585a96b844750a62c04c4dce3455583d7dfd3b684b7339ff82c163bd28.jpg
@@ -33,6 +33,9 @@ I’ll start with the journey. It’s been a great six years with personal progr
 
 Thanks to the trust and autonomy ABBYY showed, I was able to pursue strategic business development on a global basis when I was made VP Global Business Development in 2018 with a focus on helping drive ABBYY’s success into the [RPA and Intelligent Automation markets](https://tools.techidaily.com/abbyy/products/). This allowed me to build a team across the US, EMEA and India with some of the smartest people I have ever worked with. That role eventually evolved into heading up all channel business as Global Channel Chief in 2021, and now I have the additional position as SVP Sales EMEA.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### What does a typical day look like for you at ABBYY?
 
 Gym first thing in the morning while dodging being ambushed by my kids looking for all sorts of things that they shouldn’t be eating at 6am! In the UK, many of us work from home but have the benefit of a great office in Bank, Central London, so I operate in a hybrid model between the two. Typically, I take some time to answer emails from overnight and then get on calls with various members of the team to discuss current opportunities, but I am at my happiest engaged alongside them with our partners and customers. Ultimately, I want the team to have the autonomy and space to operate that I was given, so I try to ensure this happens while getting involved where required.
@@ -45,6 +48,9 @@ The team I get to work with is what keeps me going. COVID really impacted the am
 
 I have spent all my career working within the automation market, particularly document and [process automation](https://tools.techidaily.com/abbyy/products/), and previous to ABBYY worked as EMEA Solutions Director for Kodak Alaris, who are a leader in the document digitisation market. My most formative role, however, was for one of their competitors, Bell & Howell, where I was the only employee covering the UK, Ireland, Benelux, and Eastern Europe (all other resources were based out of the US, so no local support, marketing etc). All the business was dependent on me, so it quickly taught me the importance of resilience and self-reliance for my success. I also had a fantastic boss who believed in me and gave me all the autonomy I needed.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
 ### Your top advice to someone joining ABBYY in your function?
 
 Be responsible for your own success. ABBYY will look to help and support you, but you are the one that really makes it happen. And most of all, have fun doing it! If this sounds interesting, then check out our [open positions.](https://tools.techidaily.com/abbyy/products/)
@@ -55,10 +61,16 @@ Family first. I have three kids (two boys, eight and 11, and a 15-year-old daugh
 
 ![Neil Murphy ABBY](https://static1.abbyy.com/abbyycommedia/36478/neil-murphy-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<!-- affiliate ads end -->
 I also have a very lovely wife who I don’t deserve, so we love to spend some time together when we get the chance. I go to the gym a lot and play football every week, but the knees are definitely feeling it more now I am in my 40s! I’m also a bit of a nerd at perfecting certain things. At the moment it is coffee and pizza, so I am the designated chef and barista when we entertain our friends at home.
 
 ![Neil Murphy ABBYY](https://static1.abbyy.com/abbyycommedia/36482/neil_collage_2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### If you could have one wish come true, what would it be?
 
 Since I am from Ireland, I wish my team was in the World Cup that's going on right now. It's been 20 years since we were last there, I can't believe it! My kids have been supporting England, so there were some gloomy faces at home on Saturday when they were knocked out against France.
@@ -71,12 +83,18 @@ Zoom calls. Clearly, they were a necessity over lock-down, but I think we miss t
 
 Hard to pick one in particular recently, but my favourite book is Birdsong by Sebastian Faulks. I first read it over 20 years ago.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
 ### Interested in joining the ABBYY team? Please check the vacancies below and apply!
 
 [See all open positions](https://boards.eu.greenhouse.io/abbyy/?itm%5Fsource=corpblog)
 
 [Meet Our Team](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

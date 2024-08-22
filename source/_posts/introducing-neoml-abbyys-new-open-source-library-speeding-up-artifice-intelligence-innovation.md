@@ -1,7 +1,7 @@
 ---
 title: "Introducing NeoML: ABBYY's New Open Source Library Speeding Up Artifice Intelligence Innovation"
-date: 2024-08-21 23:32:13
-updated: 2024-08-22 12:19:32
+date: 2024-08-21T15:06:08.054Z
+updated: 2024-08-22T15:06:08.054Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0911d971631dfd9a70ce54df48c6542f0fb3a0ed015eda89c92fcb9372e4bb6e.jpg
@@ -73,3 +73,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

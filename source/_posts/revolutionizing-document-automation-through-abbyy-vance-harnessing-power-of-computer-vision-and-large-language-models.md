@@ -1,7 +1,7 @@
 ---
 title: Revolutionizing Document Automation Through ABBYY Vance - Harnessing Power of Computer Vision and Large Language Models
-date: 2024-08-20 14:54:12
-updated: 2024-08-22 10:44:44
+date: 2024-08-21T15:06:07.371Z
+updated: 2024-08-22T15:06:07.371Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5f9bdb089a72cbfbce20351e13d8c69867a47335c73b8710c5509727c5e15028.jpg
@@ -19,16 +19,25 @@ Whitepaper
 
 More and more organizations are using hyperautomation to quickly identify, verify, and automate as many processes as possible. In this context, they are adopting intelligent document processing as a key component of process automation. Then they are integrating other technologies like computer vision and large language models to achieve the highest level of touchless automation. 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Download it now!
 
 This white paper uses an ABBY Vantage use case to demonstrate how these technologies can work together in a practical application, insurance claims automation. It provides a full 12-step description of activities, detailing which technologies are used, and how. It also includes a demo of the claims automation process, from both the user side and the Vantage side. Download it today to see hyperautomation in action! 
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ## Thank you for your interest in ABBYY.
 
 [Read whitepaper](https://global.abbyy.com/hubfs/documents/content/whitepaper-intelligent-document-processing-vantage-use-case-claims-en.pdf  "Read eBook") 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
 #### Get your copy by filling in the form.

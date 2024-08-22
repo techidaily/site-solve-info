@@ -1,7 +1,7 @@
 ---
 title: Unlocking New OCR Features with ABBYY FineReader Engine Update to Version 12
-date: 2024-08-21 16:55:20
-updated: 2024-08-22 12:55:55
+date: 2024-08-21T15:06:06.130Z
+updated: 2024-08-22T15:06:06.130Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4f90c1408653d67bc404a72c2dca3d3d52e3a294965755306154ed4cda4187a3.png
@@ -84,3 +84,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<!-- affiliate ads end -->

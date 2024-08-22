@@ -1,7 +1,7 @@
 ---
 title: Boost Your Site's Performance Using the Advanced Features of Cookiebot
-date: 2024-08-19 11:48:51
-updated: 2024-08-22 12:18:24
+date: 2024-08-21T15:06:05.990Z
+updated: 2024-08-22T15:06:05.990Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5d7817aad095517ef8a3802d67c136a4ed2562ac9acdb56f193b79911b70ed6c.png
@@ -35,6 +35,9 @@ Deutsche Post DHL suchte nach einer Lösung, um:
 * die Komplexität verschiedener Formate zu bewältigen
 * eine Integration mit der Robotic Process Automation (RPA) des Unternehmens umzusetzen
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Lösung
 
 Mit ABBYY Intelligent Document Processing (IDP) kann die RPA semistrukturierte und unstrukturierte Dokumenteninhalte verstehen und verarbeiten. Optical Character Recognition – eine intelligente Optische Zeichenerkennung (OCR) und IDP-Technologien erkennen, klassifizieren und extrahieren automatisch und präzise große Mengen wichtiger Daten, die so für RPA nutzbar gemacht werden.
@@ -43,6 +46,9 @@ Die Automatisierung der Verarbeitung von Zahlungsavisen mit ABBYY IDP hat die Ef
 
 Die Deutsche Post war in der Lage, einen Teil des Prozesses zu automatisieren, der noch viel manuelle Arbeit erforderte, um so Mitarbeiter für höherwertige Aufgaben freizusetzen.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Ergebnis
 
 * Geringere Transaktionskosten durch standardisierte globale Prozesse
@@ -55,18 +61,30 @@ Die Deutsche Post war in der Lage, einen Teil des Prozesses zu automatisieren, d
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/products/flexicapture/fc_1.jpg?h=392&iar=0&w=696)
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<!-- affiliate ads end -->
 #### ABBYY Solutions for Accounts Payable Automation
 
 [Mehr erfahren](https://tools.techidaily.com/abbyy/products/)
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/ap-automation/overview-image.jpg?h=800&iar=0&w=1392)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 #### PDF Version
 
 [Zum Dokument](https://content.abbyy.com/-/media/Project/Abbyy/Abbyy/Insights/Customer-Stories/PDFs/customer-story-intelligent-document-processing-transportation-deutsche-post-dhl-group-de.pdf)
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/newsroom/news-images/laptop-mug.jpg?h=836&iar=0&w=1486)
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Erfahren Sie mehr über ABBYY
 
 [Kontakt aufnehmen](https://tools.techidaily.com/abbyy/products/)

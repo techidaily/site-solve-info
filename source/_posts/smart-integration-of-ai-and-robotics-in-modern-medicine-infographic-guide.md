@@ -1,7 +1,7 @@
 ---
 title: Smart Integration of AI and Robotics in Modern Medicine - Infographic Guide
-date: 2024-08-21 16:50:38
-updated: 2024-08-22 10:57:46
+date: 2024-08-21T15:06:08.136Z
+updated: 2024-08-22T15:06:08.136Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f9167146a20f7f71fc0a8f732e38b185988119c4a56fa86abd34189dbe38f374.jpg
@@ -39,3 +39,7 @@ thumbnail: https://thmb.techidaily.com/f9167146a20f7f71fc0a8f732e38b185988119c4a
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

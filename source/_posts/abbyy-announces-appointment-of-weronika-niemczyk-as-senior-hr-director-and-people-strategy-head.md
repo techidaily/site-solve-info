@@ -1,7 +1,7 @@
 ---
 title: ABBYY Announces Appointment of Weronika Niemczyk as Senior HR Director and People Strategy Head
-date: 2024-08-19 16:17:24
-updated: 2024-08-22 11:59:25
+date: 2024-08-21T15:06:07.033Z
+updated: 2024-08-22T15:06:07.033Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a446c77eb3a38ef1182231809e6f1b7dff4f649191871eaf498a91e3c9faa20f.jpg
@@ -58,3 +58,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

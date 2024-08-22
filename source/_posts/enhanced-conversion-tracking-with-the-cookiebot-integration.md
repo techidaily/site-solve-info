@@ -1,7 +1,7 @@
 ---
 title: Enhanced Conversion Tracking with the Cookiebot Integration
-date: 2024-08-19 23:14:30
-updated: 2024-08-22 12:49:43
+date: 2024-08-21T15:06:07.975Z
+updated: 2024-08-22T15:06:07.975Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a6fbcf7b87c69b74abd8f2d894637274c942b2c57ba584189354e0290ce20d66.jpg
@@ -86,3 +86,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->

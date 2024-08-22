@@ -1,7 +1,7 @@
 ---
 title: Photography Tips & Task Management Secrets Revealed on ABBYY Blog
-date: 2024-08-21 19:25:59
-updated: 2024-08-22 10:38:43
+date: 2024-08-21T15:06:06.482Z
+updated: 2024-08-22T15:06:06.482Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1b264feb60401b06f1b5b9d369aaa689e44f7f3921972fa9eb3d747a1df53b5a.jpg
@@ -70,6 +70,9 @@ The procedure is similar for Android-powered devices. Here again, you are most l
 4\. Tap **Redeem** and you will see a window prompting you to install the app.  
 ![redeem FineScanner Google Play](https://static1.abbyy.com/abbyycommedia/31174/3.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<!-- affiliate ads end -->
 There’s also an alternative route: you can use the web version of Google Play to install the app on your (or your grandparent’s) smartphone via your desktop computer. Simply log in with your Gmail account at [play.google.com](https://play.google.com/store) to find apps and install them on your mobile device. To redeem your promo code on a desktop computer:
 
 1\. In your browser, open this address: [google.com/redeem](https://play.google.com/redeem).
@@ -78,6 +81,17 @@ There’s also an alternative route: you can use the web version of Google Play 
 
 ![redeem activate promo code android](https://static1.abbyy.com/abbyycommedia/25940/f445d31baebfda3cef1cda1b51f7860f-e1505142714275.png)
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ## **ABBYY Tip: How to Take Photos Like a Pro**
 
 Unsurprisingly, the quality of OCR is heavily dependent on the quality of document photos you feed to the system. Smart robots, Big Data and even deep machine learning are helpless if the text on the photo is downright illegible. The good news is that it only takes one minute of careful preparation, and then ABBYY technology will work its magic to complete the process. There are several common image defects that make the OCR engine wince from pain. Here’s a few tips how you can keep the recognition engine happy and get excellent results.
@@ -85,6 +99,9 @@ Unsurprisingly, the quality of OCR is heavily dependent on the quality of docume
 1\. **Poor lighting.** The more light you have, the better. It also helps if the light is evenly distributed. Taking snapshots at night while sitting in a car with business cards or documents placed in your lap will almost certainly not work. No technology, however intelligent, will be able to capture text which you can hardly read yourself. Naturally, there are occasions when you just have no choice, but if there’s no urgency, you’d do wise to wait for daylight and take a picture in a less shaky environment.  
 ![abbyy ocr poor lighting](https://static1.abbyy.com/abbyycommedia/25941/4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 2\. **Wrong focus point** is another image defect that may make you want to rip your hair out. Why is it that sometimes the camera will focus on any object in sight save the text that you need to capture? Digital cameras use special technology to determine the distance to the subject. To perform reliably, it needs sufficient lighting and high-contrast objects. Besides, it is often fine-tuned for portraits and common indoor and outdoor scenes. If your camera has hard time focusing on the text, give it a helping hand by pointing the lens to some high-contrast (e.g. black and white) area. It’s best to give the camera some time to focus on the text instead of taking a few hasty snapshots in the hope that you can improve their sharpness later.  
 ![fix wrong focus point taking photos](https://static1.abbyy.com/abbyycommedia/31175/5.jpg)
 
@@ -103,14 +120,26 @@ Unsurprisingly, the quality of OCR is heavily dependent on the quality of docume
 7\. **Camera problems.** Not all device cameras are created equal. If you plan to use your smartphone as a portable scanner, take a closer look at its camera specs. It should produce a sharp picture across the entire frame, be able to adjust white balance reasonably well, not distort object boundaries, and perform well in different lighting environments. Smartphones tend to be equipped with better cameras than tablets.  
 ![bad quality of photo finescanner](https://static1.abbyy.com/abbyycommedia/25947/10.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 To sum up: uniform non-white backgrounds, even natural lighting and steady hands will give you a picture that’s perfectly suitable for OCR. Modern cameras (and users) are very good, but we hope these tips you will help you move a few steps closer to perfection.
 
 ![TextGrabber FineScanner OCR](https://static1.abbyy.com/abbyycommedia/25948/11.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **App of the Week: Keeping Track of Your Tasks with Asana**
 
 ![Asana on mobile](https://static1.abbyy.com/abbyycommedia/31182/12.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 There has never been a shortage of task managing apps, but my app of choice is [Asana](https://asana.com/). It’s the task managing app that I always recommend to my colleagues and that I would like to tell you about today. Here’s what I consider its strong points that make it worthy of your attention:
 
 1\. The app is available on many platforms, including iOS, Android, and the web. For Android users, there’s a handy widget where you can create tasks. If your phone battery runs out, you can always log in to the web version on any desktop computer you have access to.
@@ -118,6 +147,9 @@ There has never been a shortage of task managing apps, but my app of choice is [
 2\. It takes just a few taps to add a new task: tap the **plus** icon, type in a descriptive name for the task, and then tap the **Create Task** button. You can always refine your task later by setting due dates, providing explanations, adding subtasks and links to projects, supplying tags, and setting priorities, either manually or automatically.  
 ![app asana control tasks ios android](https://static1.abbyy.com/abbyycommedia/25949/13.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 3\. Asana offers a neat and uncluttered UI on all of the supported platforms.
 
 Actually, Asana is actively evolving towards a project management tool with all the necessary PM features, including teams, discussions, projects, dashboards where you can add and remove project cards, etc. All the features are very well documented in detailed [Asana guides](https://asana.com/guide) (these are all in English, but it shouldn’t be a problem for most users). With all this horsepower under the hood, the app is equally useful as a personal task manager.
@@ -139,6 +171,9 @@ We hope you find these tips useful. As always, your comments, ideas, and suggest
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

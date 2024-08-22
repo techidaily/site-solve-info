@@ -1,7 +1,7 @@
 ---
 title: Distinguishing Between Process Intelligence and Business Intelligence for Strategic Decisions
-date: 2024-08-20 15:12:21
-updated: 2024-08-22 12:53:14
+date: 2024-08-21T15:06:06.774Z
+updated: 2024-08-22T15:06:06.774Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/48994c9ff35faf512b4c69833faf0e7ff28b80b0df78e2f2b0d58f413fb2991f.jpg
@@ -47,6 +47,13 @@ Wenn wir den Order-to-Cash-Prozess aus der Sicht von PI betrachten, verlagert si
 
 So kann Process Intelligence beispielsweise aufzeigen, dass ein bestimmter Prozessschritt, wie die Auftragsprüfung, zu lange dauert und dadurch Verzögerungen verursacht, die sich auf den gesamten Prozess auswirken. Oder PI deckt Fälle auf, in denen wichtige Schritte wie Kreditprüfungen übersprungen werden, was zu einem erhöhten finanziellen Risiko für das Unternehmen führt. Process Intelligence bietet eine ganzheitliche Perspektive und kann entscheidende Einblicke in die Prozessdynamik sowie Optimierungsmöglichkeiten offenbaren.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
 ## Was ist Business Intelligence (BI)?
 
 **Business Intelligence hingegen ist ein technologiegestützter Prozess, der die Analyse und Präsentation von Geschäftsinformationen umfasst.** Das Hauptziel von BI ist es, Unternehmen dabei zu helfen, fundierte Entscheidungen zu treffen, indem sie Einblicke in ihre Geschäftsabläufe, das Kundenverhalten, Markttrends und die Wettbewerbslandschaft erhalten.
@@ -72,20 +79,36 @@ Können Sie beispielsweise feststellen, ob die Fälle, in denen bestimmte Verkä
 
 **Process Intelligence** verwendet Ereignisprotokolle, Audit-Tabellen, Benutzerinteraktionen und Desktop-Aktivitäten als primäre Datenquellen. Business Intelligence nutzt Daten aus verschiedenen Quellen, die sich auf einen bestimmten Schritt/Teil eines Geschäftsprozesses beziehen, um Muster, Trends und Anomalien zu analysieren und zu visualisieren.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Ergebnisse
 
 **Process Intelligence** bietet Einblicke, die Unternehmen dabei helfen, ihre Geschäftsprozesse zu optimieren, indem sie ein besseres Verständnis für den globalen Kontext bestimmter Schritte und Abweichungen zwischen Prozessinstanzen bietet. **Business Intelligence** liefert Erkenntnisse, die Unternehmen helfen, fundierte, datengestützte Entscheidungen zu treffen.
 
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Tools
 
 Zu den Tools von **Process Intelligence** gehören Process Mining, Task Mining, Analytik, Überwachung, Vorhersage und Simulation. Tools für **Business Intelligence** sind in der Regel Dashboards, Berichte, Datenanalysen und andere Visualisierungsfunktionen.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Wesentliche Gemeinsamkeiten zwischen Process Intelligence und Business Intelligence
 
 Process Intelligence und Business Intelligence weisen durchaus Ähnlichkeiten auf: Beide nutzen Unternehmensdaten zur visuellen Darstellung von Erkenntnissen, die das Management, die Analyse und die Entscheidungsprozesse unterstützen. Dieselben Data Warehouses können sowohl in PI- als auch in BI-Tools genutzt werden, die gewonnenen Erkenntnisse variieren jedoch je nach den Fähigkeiten und Einschränkungen der jeweiligen Plattform. Dieses Wissen ist sowohl für Studienanfänger als auch für Fachleute von grundlegender Bedeutung, denn es bildet die Grundlage für[informierte Entscheidungen und die Optimierung von Geschäftsabläufen](https://tools.techidaily.com/abbyy/products/) in einer datengesteuerten Welt.
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/process-intelligence-vs-business-intelligence/process-intelligence-and-business-intelligence-differences-and-similarities-de.png)
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## Process Intelligence und Business Intelligence: Was ist am besten?
 
 Obwohl Business Intelligence und Process Intelligence auf den ersten Blick ähnlich erscheinen mögen, dienen sie unterschiedlichen Zwecken bei der Beobachtung und Analyse der Abläufe in einem Unternehmen. BI bietet Einblicke in einzelne Prozessschritte, die eine detaillierte Analyse der konventionellen dimensionalen Aufschlüsselung ermöglichen, während PI ein umfassendes Verständnis der Geschäftsprozesse und Erkenntnisse für wirkungsvolle Verbesserungen liefert.

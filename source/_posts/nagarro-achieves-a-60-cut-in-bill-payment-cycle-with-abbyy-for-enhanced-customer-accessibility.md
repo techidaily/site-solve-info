@@ -1,7 +1,7 @@
 ---
 title: Nagarro Achieves a 60%% Cut in Bill Payment Cycle with ABBYY for Enhanced Customer Accessibility
-date: 2024-08-21 23:11:59
-updated: 2024-08-22 12:25:48
+date: 2024-08-21T15:06:07.699Z
+updated: 2024-08-22T15:06:07.699Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/2635526a9b4bc31b09f99f8ed1ec33a28f3bd1734d6693f161ca45fe2a6deac2.jpg
@@ -39,6 +39,10 @@ ABBYY wurde von mehr als 10 Analystenfirmen als führend im Bereich IDP anerkann
 
 Nagarro, ein weltweit führendes Unternehmen für Digital Engineering, unterstützt Kunden dabei, bewegliche, innovative, digital-first Unternehmen zu werden und dadurch auf ihren Märkten erfolgreich zu sein. Das Unternehmen zeichnet sich durch seinen unternehmerischen, agilen und globalen Charakter, seine CARING-Mentalität und seine „Fluidic Enterprise“-Vision aus. Nagarro beschäftigt über 18.000 Mitarbeitende und ist in 36 Ländern vertreten. Für weitere Informationen besuchen Sie bitte [www.nagarro.com](https://www.nagarro.com/en). Weitere Informationen über den [Invoice Scanner finden Sie hier](https://www.nagarro.com/en/services/erp/sap/add-ons/invoice-scanner).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+</a>
+<!-- affiliate ads end -->
 ### Über ABBYY 
 
 ABBYY macht Ihre Informationen mit speziell entwickelter KI nutzbar. Unsere Lösungen kombinieren Innovation und Erfahrung, um Daten aus geschäftskritischen Dokumenten in über 200 Sprachen und in Echtzeit in intelligente, umsetzbare Ergebnisse umzuwandeln. Wir helfen mehr als 10.000 Unternehmen weltweit, darunter vielen der Fortune-500-Unternehmen, dort etwas zu bewegen, wo es am wichtigsten ist: Bei der Customer Experience, der operativen Exzellenz und in puncto Wettbewerbsvorteile. ABBYY ist ein globales Unternehmen mit Hauptsitz in Milpitas, Kalifornien (USA) und Niederlassungen in 12 Ländern. Weitere Informationen finden Sie unter <https://www.abbyy.com/de/> und folgen Sie uns auf [LinkedIn](https://www.linkedin.com/company/abbyy), [Twitter](https://twitter.com/ABBYY%5FSoftware) und [Facebook](https://www.facebook.com/ABBYYsoft).

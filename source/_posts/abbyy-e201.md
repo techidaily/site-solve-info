@@ -1,7 +1,7 @@
 ---
 title: "ABBYY自動請求書解析と電子文書対応ソリューションの紹介: Eドキュメントジャパン201"
-date: 2024-08-19 18:58:36
-updated: 2024-08-22 10:25:43
+date: 2024-08-21T15:06:06.588Z
+updated: 2024-08-22T15:06:06.588Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/29a05cd0ac7c666a10c5dac5d641535795c3a88c901275fbe3b2dae45dd93fe1.jpg
@@ -76,3 +76,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->

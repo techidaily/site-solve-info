@@ -1,7 +1,7 @@
 ---
 title: ABBYY Welcomes Ulf Persson as Their Latest Chief Executive Officer
-date: 2024-08-19 16:29:57
-updated: 2024-08-22 10:23:38
+date: 2024-08-21T15:06:07.052Z
+updated: 2024-08-22T15:06:07.052Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c80fad792e3cb229a3e653969139437b39335328a63ecf71a877586d96fe497a.jpg
@@ -55,3 +55,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

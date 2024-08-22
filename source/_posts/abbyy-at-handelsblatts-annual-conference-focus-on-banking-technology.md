@@ -1,7 +1,7 @@
 ---
 title: ABBYY at Handelsblatt's Annual Conference - Focus on Banking Technology
-date: 2024-08-20 11:16:50
-updated: 2024-08-22 10:36:55
+date: 2024-08-21T15:06:06.156Z
+updated: 2024-08-22T15:06:06.156Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b7b45cfdc35344213e5101907c39a4f8622c548d37868126691840befd4a8d38.jpg
@@ -73,3 +73,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

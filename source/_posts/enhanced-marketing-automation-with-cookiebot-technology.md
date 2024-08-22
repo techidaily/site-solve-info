@@ -1,7 +1,7 @@
 ---
 title: Enhanced Marketing Automation with Cookiebot Technology
-date: 2024-08-20 17:12:12
-updated: 2024-08-22 10:36:21
+date: 2024-08-21T15:06:07.989Z
+updated: 2024-08-22T15:06:07.989Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/678fddf7ae4566a62c5d9f963bb3c78467acea0fb81bb49e5d9d8fec87876404.jpeg
@@ -33,6 +33,9 @@ thumbnail: https://thmb.techidaily.com/678fddf7ae4566a62c5d9f963bb3c78467acea0fb
 
 多くの場合、テクノロジープロバイダーや企業は、文書を記録システムのデータ問題にしがち、このような仮定のしかたは、混乱や競争に対して脆弱性をもたらすものです。 文書には貴重なデータとコンテンツの両方が含まれています。ただし後者には熟練した読解力と文脈に基づいた解釈が必要であり、迅速な意思決定が求められます。 熟練したスタッフは、この明確な目的のために文書やコンテンツに接しています。なぜなら、データは、日々、貨物を動かしたり、材料やサービスを調達したりする重要な意思決定に必要な情報の一部を提供するだけだからです。 人工知能 （AI） は、経験とデータの間のミッシングリンクを埋めて、熟練した読解力を文書に加えることができますが、サプライチェーンはまだその可能性を認識しておらず、オペレーションを変革することができていません。
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## オペレーションにドキュメント「スキル」を加える
 
 もし、熟練した訓練を受けた経験豊富な人材が必要ないのであれば、「文書問題」は10年前に解決していたでしょう。しかし、現実には、コンテンツに関する意思決定、すなわち調達、出荷、受領に関する意思決定を行うために、これらのスキルと経験が頻繁に必要とされています。 ほとんどの場合、データ抽出は十分であり、90％以上のストレートスルー・プロセッシングが一般的に期待できるようになっています。 しかし、そのようなレベルの効率性を実現するためには、ツールに組み込まれたContent Intelligenceが必要であり、それ以外にも高度な意思決定スキルが必要です。
@@ -41,12 +44,18 @@ thumbnail: https://thmb.techidaily.com/678fddf7ae4566a62c5d9f963bb3c78467acea0fb
 
 もはや、ドキュメントスキルの運用メリットを得るために、大きなキャプチャープラットフォームやフレームワークは必要ありません。 事前学習済みのコンテナ化されたドキュメント「スキル」（データだけでなく、文書に対して必要なアクションを理解する、事前に学習されたアクション）を持つAIの助けを借りれば、サプライチェーンはついに一般的なボトルネックを取り除き、輸送・物流から買掛金（AP）の支払い処理まで、あらゆるレベルのビジネスオペレーションが依存する文書主導のプロセスをコントロールできるようになります。
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 ### 急速な変化に対応して輸送・物流業務を最適化したいとお考えですか？
 
 当社にはそのためのスキルがあります。
 
 [ABBYY MarketplaceにアクセスするENG](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ## ABBYY Marketplaceのアプローチ方法
 
 [輸送・物流分野](https://tools.techidaily.com/abbyy/products/)では、スピードが顧客満足度と競争力の鍵となります。これこそが、まさに新しい[ABBYY Marketplace](https://tools.techidaily.com/abbyy/products/)の背景にある考え方です。これは、企業文書を処理および理解するための初のデジタルマーケットプレイスであり、コンテンツスキル、コネクター、およびアセットを豊富に提供します。 トップレベルの荷主や物流業者、そして多くのクラウドベースの企業が、数分ですぐに使用できる、使いやすく設定可能でプラグイン可能な当社のプラットフォームを使って、ビジネスユーザーとシチズンディベロッパーに対し業界最高レベルの文書およびコンテンツ処理を提供しています。
@@ -59,8 +68,14 @@ ABBYY VantageとMarketplaceには、ABBYYとABBYYパートナーが開発した�
 
 ![Reggie Twigg ABBYY](https://static4.abbyy.com/abbyycommedia/25636/02c-reggietwigg-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Reginald J. Twigg
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 
 シェア 

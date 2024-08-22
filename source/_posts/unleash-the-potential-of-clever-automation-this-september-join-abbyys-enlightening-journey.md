@@ -1,7 +1,7 @@
 ---
 title: Unleash the Potential of Clever Automation This September – Join ABBYY's Enlightening Journey
-date: 2024-08-21 11:19:24
-updated: 2024-08-22 12:59:55
+date: 2024-08-21T15:06:06.545Z
+updated: 2024-08-22T15:06:06.545Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/300ab8d5976ccf31b0d2970939ae583f50bd954e838c66ca43450f63be8d3d0c.jpg
@@ -31,6 +31,9 @@ We’ve joined forces with other industry influencers and advocates to highlight
 
 You’ll gain market insights that will help you focus your digital transformation initiatives, learn how to make a business case for C-suite buy-in, and get tips for championing workforce adoption. Additionally, innovation leaders who are currently spearheading transformation within their companies will candidly share their best practices and lessons learned. These are online sessions that you won’t want to miss.
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ### September is Intelligent Automation Month
 
 Watch a series of expert-led webinars to learn how the latest AI advancements are powering intelligent automation and changing the future of work globally.
@@ -49,6 +52,9 @@ We hope you’ll join us at these upcoming industry-wide online events. Register
 
 ![Bruce Orcutt ABBYY](https://static5.abbyy.com/abbyycommedia/25719/bruceorcutt-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Bruce Orcutt
 
 Senior Vice President of Product Marketing at ABBYY
@@ -57,6 +63,9 @@ Bruce Orcutt is a veteran Product Marketing and Product Management professional 
 
 Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

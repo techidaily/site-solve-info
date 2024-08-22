@@ -1,7 +1,7 @@
 ---
 title: ABBYY News and Updates with TimelinePI
-date: 2024-08-20 12:12:22
-updated: 2024-08-22 12:42:16
+date: 2024-08-21T15:06:07.835Z
+updated: 2024-08-22T15:06:07.835Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c522feb97d3790da90f4e047ee57c321868c402d131fe0f5a053db33ae9c232d.jpg
@@ -76,3 +76,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->

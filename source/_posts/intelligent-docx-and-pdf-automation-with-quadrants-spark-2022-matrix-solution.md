@@ -1,7 +1,7 @@
 ---
 title: Intelligent DOCX & PDF Automation with Quadrant's SPARK 2022 Matrix Solution
-date: 2024-08-20 12:53:37
-updated: 2024-08-22 12:20:29
+date: 2024-08-21T15:06:06.972Z
+updated: 2024-08-22T15:06:06.972Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/533236261129cabe3de86d1bef1cbed00a9ea2770d693fc8e5825a129a9010b9.JPG
@@ -75,3 +75,7 @@ Copyright 2022 © Quadrant Knowledge Solutions Private Limited 09 For Citation, 
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

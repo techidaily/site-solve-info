@@ -1,7 +1,7 @@
 ---
 title: Enhance Your Analytics and Personalization with Our Cookiebot Solution!
-date: 2024-08-21 21:40:34
-updated: 2024-08-22 10:11:18
+date: 2024-08-21T15:06:07.598Z
+updated: 2024-08-22T15:06:07.598Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ec5c93589cbbf4437a85d01509aad074c0824b7a47a862a6e3798990cfe51fb1.png
@@ -15,6 +15,9 @@ thumbnail: https://thmb.techidaily.com/ec5c93589cbbf4437a85d01509aad074c0824b7a4
 
 Enabling UiPath robots with the critical skills and understanding to turn unstructured content into structured, actionable information.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ## Connector Integrates ABBYY FlexiCapture with UiPath
 
 ABBYY FlexiCapture Connector for UiPath is an activity that provides the integration between the FlexiCapture enterprise platform and UiPath, automating the processing of unstructured content - documents, images, and text - turning into structured actionable data.

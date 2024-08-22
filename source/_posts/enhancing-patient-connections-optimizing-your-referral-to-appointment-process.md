@@ -1,7 +1,7 @@
 ---
 title: "Enhancing Patient Connections: Optimizing Your Referral-to-Appointment Process"
-date: 2024-08-20 20:10:46
-updated: 2024-08-22 10:13:42
+date: 2024-08-21T15:06:06.380Z
+updated: 2024-08-22T15:06:06.380Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/dd8665fd574b8b8849bc905e8ab75258e662c1b7c7637037d5e86d15b1b9eaa1.png
@@ -77,3 +77,7 @@ www.himss.org | ©2024 Produced by About ABBYY ABBYY puts your information to wo
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->

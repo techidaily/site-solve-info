@@ -1,7 +1,7 @@
 ---
 title: Enhance Your Web Analytics Using the Cookiebot Platform
-date: 2024-08-20 16:18:50
-updated: 2024-08-22 10:18:40
+date: 2024-08-21T15:06:07.226Z
+updated: 2024-08-22T15:06:07.226Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5962b87511edddba346cb57d7aca143b8c59fba6d9e1757c64fcaafab203f67d.jpg
@@ -75,6 +75,9 @@ Contact: [www.ideation.fr](http://www.ideation.fr/)
 
 Partager 
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ### Prêt à parler à un expert ?
 
 Nous serions ravis de vous aider tout au long de votre parcours d’automatisation.

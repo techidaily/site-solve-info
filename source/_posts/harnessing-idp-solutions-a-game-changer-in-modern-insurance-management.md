@@ -1,7 +1,7 @@
 ---
 title: "Harnessing IDP Solutions: A Game Changer in Modern Insurance Management"
-date: 2024-08-20 23:29:46
-updated: 2024-08-22 10:43:15
+date: 2024-08-21T15:06:06.064Z
+updated: 2024-08-22T15:06:06.064Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0c6d2fd1a73159563e57dda315b30eb330741092cc6760e2a82edb3563c1b5c8.jpg
@@ -19,6 +19,9 @@ Excel at customer satisfaction. Comply with regulations. Increase process effici
 
 The data inside of insurance claims, correspondence, other documents contain a wealth of information to drive insurance processes—but only when that data is easily accessible, accurate, and able to inform action.
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ### Download it now!
 
 This eBook shares eight impactful use cases where AI-driven intelligent document processing (IDP) is enabling our customers to achieve results like 80% reduction in manual data entry, 25% productivity increase in policy lifecycle, and 40% of incoming invoices processed automatically, including:
@@ -27,6 +30,18 @@ This eBook shares eight impactful use cases where AI-driven intelligent document
 * Policy services
 * Claims management
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Thank you for your interest in ABBYY.
 
 [Read eBook](https://abbyy.com/-/jssmedia/project/abbyy/abbyy/insights/resource-center/pdfs/ebook-use-case-insurance-intelligent-document-processing-en.pdf  "Read eBook") 

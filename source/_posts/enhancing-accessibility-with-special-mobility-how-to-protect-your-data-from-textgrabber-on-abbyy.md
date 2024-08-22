@@ -1,7 +1,7 @@
 ---
 title: Enhancing Accessibility with Special Mobility - How to Protect Your Data From TextGrabber on ABBYY
-date: 2024-08-20 20:14:34
-updated: 2024-08-22 12:10:10
+date: 2024-08-21T15:06:07.633Z
+updated: 2024-08-22T15:06:07.633Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7a684ff6b3f7243ec032f5ae8a931d190264bae1e112796613965ade353d6f1f.png
@@ -72,6 +72,9 @@ If you have an Android phone, do the following:
 
 For more information about disabling this signature in [FineScanner](https://go.onelink.me/0oMB/2b084a0a), see [this article](https://tools.techidaily.com/abbyy/products/).
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **App of the Week: Habitty for iOS**
 
 If you are finding it hard to foster healthy habits, then Habitty app is for you. The app helps you to organize and track your regular habits with ease and can also help you set short- and long-term goals.
@@ -86,6 +89,9 @@ That’s all, folks!
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

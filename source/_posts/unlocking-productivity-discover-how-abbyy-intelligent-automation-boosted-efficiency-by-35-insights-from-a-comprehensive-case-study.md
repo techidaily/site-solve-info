@@ -1,7 +1,7 @@
 ---
 title: "Unlocking Productivity: Discover How ABBYY Intelligent Automation Boosted Efficiency by 35%% - Insights From a Comprehensive Case Study"
-date: 2024-08-19 11:26:17
-updated: 2024-08-22 10:36:53
+date: 2024-08-21T15:06:07.009Z
+updated: 2024-08-22T15:06:07.009Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6816402dd23c56a105ec64bc0a33bec17942a9ec34c261fc2115b1bb0464ace8.jpg
@@ -93,6 +93,9 @@ ABBYY’s IDP platform accelerates line item recognition, capture, and extractio
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

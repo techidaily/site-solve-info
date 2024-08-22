@@ -1,7 +1,7 @@
 ---
 title: "Celebrating International Women's Day 2024: Honoring ABBYY's Leading Female Contributors"
-date: 2024-08-20 18:53:37
-updated: 2024-08-22 11:34:14
+date: 2024-08-21T15:06:06.666Z
+updated: 2024-08-22T15:06:06.666Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1505d6f4180ef3234fcf66cf60e394c6b774b52749b9718fd3308deebd93e5f0.jpg
@@ -251,3 +251,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
