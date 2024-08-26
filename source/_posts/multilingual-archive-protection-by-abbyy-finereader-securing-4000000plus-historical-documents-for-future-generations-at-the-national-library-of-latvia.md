@@ -1,7 +1,7 @@
 ---
 title: "Multilingual Archive Protection by ABBYY FineReader: Securing 4,000,000+ Historical Documents for Future Generations at the National Library of Latvia"
-date: 2024-08-21T15:06:06.080Z
-updated: 2024-08-22T15:06:06.080Z
+date: 2024-08-25T22:28:17.673Z
+updated: 2024-08-26T22:28:17.673Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0eb94f402f1ee7bc7c28262c8a96cc0803ff0569b6db1d88604f12db459af942.jpg
@@ -165,3 +165,49 @@ We'd love to help you along your automation journey.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-to-execute-flawless-wirecast-broadcasts-on-youtube/"><u>[New] 2024 Approved  How to Execute Flawless WireCast Broadcasts on YouTube</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-copyright-guide-for-instagram-music/"><u>[New] Copyright Guide for Instagram Music</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-unveiling-fake-followers-on-instagram-effortlessly/"><u>[New] In 2024, Unveiling Fake Followers on Instagram, Effortlessly</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-premium-mp4-uploader-for-fb-networks/"><u>[New] Premium MP4 Uploader for FB Networks</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-dive-into-the-future-of-branding-with-these-10-igtv-ideas/"><u>2024 Approved  Dive Into the Future of Branding with These 10 IGTV Ideas</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-top-5-ultra-hd-screens-mastering-hue-and-shade/"><u>2024 Approved  Top 5 Ultra-HD Screens  Mastering Hue and Shade</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-top-ios-slideshow-programming-for-the-newest-models/"><u>2024 Approved  Top iOS Slideshow Programming for the Newest Models</u></a></li>
+<li><a href="https://solve-info.techidaily.com/ebook-by-abby/"><u>保険金要求手続き管理: 最適な効果的手法はどこで学べますか？ | eBook by ABBY</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/a-beginners-path-to-reddit-stardom-6-essential-strategies-for-2024/"><u>A Beginner’s Path to Reddit Stardom  6 Essential Strategies for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/boost-site-engagement-with-cookiebot-technology-integration/"><u>Boost Site Engagement with Cookiebot Technology Integration</u></a></li>
+<li><a href="https://solve-info.techidaily.com/celebrating-international-womens-day-2024-honoring-abbyys-leading-female-contributors/"><u>Celebrating International Women's Day 2024: Honoring ABBYY's Leading Female Contributors</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-driven-performance-unlocking-website-personalization/"><u>Cookiebot-Driven Performance: Unlocking Website Personalization</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-driven-personalization-enhancing-your-websites-user-experience/"><u>Cookiebot-Driven Personalization: Enhancing Your Website's User Experience</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-driven-solutions-for-enhanced-user-engagement/"><u>Cookiebot-Driven Solutions for Enhanced User Engagement</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-driven-success-optimizing-your-website-with-advanced-analytics/"><u>Cookiebot-Driven Success: Optimizing Your Website with Advanced Analytics</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-enabled-enhancing-your-websites-engagement-and-conversion-rates/"><u>Cookiebot-Enabled: Enhancing Your Website's Engagement & Conversion Rates</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-user-experience-tailored-content-and-targeting/"><u>Cookiebot-Enhanced User Experience: Tailored Content & Targeting</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-fueled-personalization-enhance-user-experience-with-smart-marketing-automation/"><u>Cookiebot-Fueled Personalization: Enhance User Experience with Smart Marketing Automation</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-user-experience-through-smart-analytics/"><u>Cookiebot: Enhanced User Experience Through Smart Analytics</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-enhancing-user-experience-with-personalization-and-data-driven-marketing/"><u>Cookiebot: Enhancing User Experience with Personalization and Data-Driven Marketing</u></a></li>
+<li><a href="https://win-dash.techidaily.com/dell-monitor-driver-download-and-update-easily/"><u>Dell Monitor Driver Download & Update Easily</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-existence-post-fb-era/"><u>Digital Existence Post-FB Era</u></a></li>
+<li><a href="https://solve-info.techidaily.com/discover-abbyys-best-digital-intelligence-narratives-from-202-2-top-six-picks-unveiled-in-our-latest-post/"><u>Discover ABBYY's Best Digital Intelligence Narratives From 202 2 - Top Six Picks Unveiled in Our Latest Post!</u></a></li>
+<li><a href="https://solve-info.techidaily.com/discover-culinary-convenience-with-abbyys-recipe-digitization-and-photo-enchantment-featured-on-our-blog/"><u>Discover Culinary Convenience with ABBYY's Recipe Digitization and Photo Enchantment - Featured on Our Blog</u></a></li>
+<li><a href="https://solve-info.techidaily.com/distinguishing-between-process-intelligence-and-business-intelligence-for-strategic-decisions/"><u>Distinguishing Between Process Intelligence and Business Intelligence for Strategic Decisions</u></a></li>
+<li><a href="https://solve-info.techidaily.com/driving-engagement-through-smart-data-insights-enhanced-by-cookiebot-technology/"><u>Driving Engagement Through Smart Data Insights: Enhanced by Cookiebot Technology</u></a></li>
+<li><a href="https://solve-info.techidaily.com/elevate-user-experience-with-the-precision-of-cookiebot-technology-integration/"><u>Elevate User Experience with the Precision of Cookiebot Technology Integration</u></a></li>
+<li><a href="https://solve-info.techidaily.com/elevate-your-web-tracking-optimize-seo-using-the-power-of-cookiebot-technology/"><u>Elevate Your Web Tracking: Optimize SEO Using the Power of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-info.techidaily.com/empower-your-site-with-cookiebot-technology-advanced-analytics-and-targeting-made-simple/"><u>Empower Your Site with Cookiebot Technology: Advanced Analytics and Targeting Made Simple</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhance-online-engagement-with-cookiebot-technology/"><u>Enhance Online Engagement with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhance-your-website-visibility-the-power-of-cookiebot-integration/"><u>Enhance Your Website Visibility: The Power of Cookiebot Integration</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/forgot-apple-iphone-11-backup-password-heres-what-to-do-by-drfone-ios/"><u>Forgot Apple iPhone 11 Backup Password? Heres What to Do</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-tecno-camon-20-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Tecno Camon 20 | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-3-ways-to-unlock-apple-iphone-12-without-passcode-or-face-id-by-drfone-ios/"><u>In 2024, 3 Ways to Unlock Apple iPhone 12 without Passcode or Face ID</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-jailbreak-icloud-locked-apple-iphone-8-plus-by-drfone-ios/"><u>In 2024, How to jailbreak iCloud locked Apple iPhone 8 Plus</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-snippet-spectacle-top-hashes-to-trigger-the-viral-spree-on-youtube/"><u>In 2024, Snippet Spectacle  Top Hashes to Trigger the Viral Spree on YouTube</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/live-broadcast-converter-decoder-for-2024/"><u>Live Broadcast Converter Decoder for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/optimized-with-cutting-edge-automated-advertising-solutions-from-cookiebot/"><u>Optimized with Cutting-Edge Automated Advertising Solutions From Cookiebot</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/1722884418429-the-ultimate-pre-buy-guide-for-smart-televisions-discover-these-absolutely-critical-elements-first/"><u>The Ultimate Pre-Buy Guide for Smart Televisions: Discover These Absolutely Critical Elements First!</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-unlock-fcpx-potential-troubleshooting-essentials-for-editors/"><u>Updated In 2024, Unlock FCPX Potential Troubleshooting Essentials for Editors</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-master-mobile-video-editing-the-top-5-iphone-apps-for-2024/"><u>Updated Master Mobile Video Editing The Top 5 iPhone Apps for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/windows-audio-test-failure-immediate-action-plan/"><u>Windows Audio Test Failure: Immediate Action Plan</u></a></li>
+</ul></div>
