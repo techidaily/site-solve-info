@@ -1,7 +1,7 @@
 ---
 title: Distinguishing Between Process Intelligence and Business Intelligence for Strategic Decisions
-date: 2024-08-25T22:29:40.893Z
-updated: 2024-08-26T22:29:40.893Z
+date: 2024-09-03T22:46:42.342Z
+updated: 2024-09-04T22:46:42.342Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/48994c9ff35faf512b4c69833faf0e7ff28b80b0df78e2f2b0d58f413fb2991f.jpg
@@ -48,11 +48,10 @@ Wenn wir den Order-to-Cash-Prozess aus der Sicht von PI betrachten, verlagert si
 So kann Process Intelligence beispielsweise aufzeigen, dass ein bestimmter Prozessschritt, wie die Auftragsprüfung, zu lange dauert und dadurch Verzögerungen verursacht, die sich auf den gesamten Prozess auswirken. Oder PI deckt Fälle auf, in denen wichtige Schritte wie Kreditprüfungen übersprungen werden, was zu einem erhöhten finanziellen Risiko für das Unternehmen führt. Process Intelligence bietet eine ganzheitliche Perspektive und kann entscheidende Einblicke in die Prozessdynamik sowie Optimierungsmöglichkeiten offenbaren.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Was ist Business Intelligence (BI)?
 
@@ -75,26 +74,35 @@ Können Sie beispielsweise feststellen, ob die Fälle, in denen bestimmte Verkä
 
 **Process Intelligence** konzentriert sich auf die Analyse und Optimierung von Geschäftsprozessen, wobei der gesamte Prozesslebenszyklus betrachtet wird. **Business Intelligence** konzentriert sich auf die eingehende Analyse einzelner Prozessschritte.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Datenquellen
 
 **Process Intelligence** verwendet Ereignisprotokolle, Audit-Tabellen, Benutzerinteraktionen und Desktop-Aktivitäten als primäre Datenquellen. Business Intelligence nutzt Daten aus verschiedenen Quellen, die sich auf einen bestimmten Schritt/Teil eines Geschäftsprozesses beziehen, um Muster, Trends und Anomalien zu analysieren und zu visualisieren.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Ergebnisse
 
 **Process Intelligence** bietet Einblicke, die Unternehmen dabei helfen, ihre Geschäftsprozesse zu optimieren, indem sie ein besseres Verständnis für den globalen Kontext bestimmter Schritte und Abweichungen zwischen Prozessinstanzen bietet. **Business Intelligence** liefert Erkenntnisse, die Unternehmen helfen, fundierte, datengestützte Entscheidungen zu treffen.
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Tools
 
 Zu den Tools von **Process Intelligence** gehören Process Mining, Task Mining, Analytik, Überwachung, Vorhersage und Simulation. Tools für **Business Intelligence** sind in der Regel Dashboards, Berichte, Datenanalysen und andere Visualisierungsfunktionen.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Wesentliche Gemeinsamkeiten zwischen Process Intelligence und Business Intelligence
 
@@ -103,11 +111,10 @@ Process Intelligence und Business Intelligence weisen durchaus Ähnlichkeiten au
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/process-intelligence-vs-business-intelligence/process-intelligence-and-business-intelligence-differences-and-similarities-de.png)
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
+  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Process Intelligence und Business Intelligence: Was ist am besten?
 
@@ -131,6 +138,12 @@ In seiner 30-jährigen Laufbahn in der Computerbranche hat Scott Opitz verschied
 
 Zuvor fungierte er unter anderem als Senior Vice President, Worldwide Marketing & Business Development für webMethods (heute Software AG), wobei er für Marketing, Geschäftsentwicklung und strategische Produktplanung verantwortlich zeichnete. Zu webMethods war er im Zuge von dessen Übernahme von IntelliFrame Corporation gekommen, einem Unternehmen, das sowohl Produkte zur Datenintegration als auch die integrierte Workflow- und BPM-Plattform InVista bereitstellte, die Opitz mitgegründet hatte. Scott Opitz hat außerdem zahlreiche Führungspositionen in den Bereichen Technologie, Marketing und Geschäftsentwicklung für staatliche und privatwirtschaftliche Unternehmen bekleidet.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Gefällt mir, teilen oder neu posten 
 
 Teilen 

@@ -1,7 +1,7 @@
 ---
 title: Enhanced Marketing Automation with Cookiebot Technology
-date: 2024-08-25T22:32:23.145Z
-updated: 2024-08-26T22:32:23.145Z
+date: 2024-09-03T22:46:45.198Z
+updated: 2024-09-04T22:46:45.198Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/678fddf7ae4566a62c5d9f963bb3c78467acea0fb81bb49e5d9d8fec87876404.jpeg
@@ -34,7 +34,10 @@ thumbnail: https://thmb.techidaily.com/678fddf7ae4566a62c5d9f963bb3c78467acea0fb
 多くの場合、テクノロジープロバイダーや企業は、文書を記録システムのデータ問題にしがち、このような仮定のしかたは、混乱や競争に対して脆弱性をもたらすものです。 文書には貴重なデータとコンテンツの両方が含まれています。ただし後者には熟練した読解力と文脈に基づいた解釈が必要であり、迅速な意思決定が求められます。 熟練したスタッフは、この明確な目的のために文書やコンテンツに接しています。なぜなら、データは、日々、貨物を動かしたり、材料やサービスを調達したりする重要な意思決定に必要な情報の一部を提供するだけだからです。 人工知能 （AI） は、経験とデータの間のミッシングリンクを埋めて、熟練した読解力を文書に加えることができますが、サプライチェーンはまだその可能性を認識しておらず、オペレーションを変革することができていません。
 
 <!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## オペレーションにドキュメント「スキル」を加える
 
@@ -45,7 +48,10 @@ thumbnail: https://thmb.techidaily.com/678fddf7ae4566a62c5d9f963bb3c78467acea0fb
 もはや、ドキュメントスキルの運用メリットを得るために、大きなキャプチャープラットフォームやフレームワークは必要ありません。 事前学習済みのコンテナ化されたドキュメント「スキル」（データだけでなく、文書に対して必要なアクションを理解する、事前に学習されたアクション）を持つAIの助けを借りれば、サプライチェーンはついに一般的なボトルネックを取り除き、輸送・物流から買掛金（AP）の支払い処理まで、あらゆるレベルのビジネスオペレーションが依存する文書主導のプロセスをコントロールできるようになります。
 
 <!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 急速な変化に対応して輸送・物流業務を最適化したいとお考えですか？
 
@@ -54,7 +60,10 @@ thumbnail: https://thmb.techidaily.com/678fddf7ae4566a62c5d9f963bb3c78467acea0fb
 [ABBYY MarketplaceにアクセスするENG](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-
+<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
+  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## ABBYY Marketplaceのアプローチ方法
 
@@ -69,12 +78,18 @@ ABBYY VantageとMarketplaceには、ABBYYとABBYYパートナーが開発した�
 ![Reggie Twigg ABBYY](https://static4.abbyy.com/abbyycommedia/25636/02c-reggietwigg-99x99.png)
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Reginald J. Twigg
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 

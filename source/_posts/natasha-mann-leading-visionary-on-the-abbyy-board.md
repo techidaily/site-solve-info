@@ -1,7 +1,7 @@
 ---
 title: Natasha Mann - Leading Visionary on the ABBYY Board
-date: 2024-08-25T22:32:59.423Z
-updated: 2024-08-26T22:32:59.423Z
+date: 2024-09-03T22:46:45.798Z
+updated: 2024-09-04T22:46:45.798Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/bb9708a331c4c3dd31e799c079bb73652a9e75d1a08dd178d051b1af275cc7e6.jpg
@@ -38,9 +38,6 @@ Natasha is a Principal at Marlin Equity Partners where her primary responsibilit
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://youtube-video-recordings.techidaily.com/new-average-earnings-per-view-whats-the-income-for-youtubers-per-ad-playback/"><u>[New] Average Earnings Per View  What's the Income for YouTubers per Ad Playback?</u></a></li>
@@ -90,3 +87,10 @@ Natasha is a Principal at Marlin Equity Partners where her primary responsibilit
 <li><a href="https://solve-info.techidaily.com/warum-fehlt-es-bei-deutschen-firmen-oftmals-an-einem-verstandnis-fur-rpa-was-zu-misserfolgen-fuhrt-insights-von-abbyy/"><u>Warum Fehlt Es Bei Deutschen Firmen Oftmals an Einem Verständnis Für RPA, Was Zu Misserfolgen Führt – Insights Von ABBYY</u></a></li>
 <li><a href="https://solve-info.techidaily.com/abbyycfo/"><u>ジェームズ・ライター氏がABBYYの新しいCFOとして昇格</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2030381/7443" target="_top" id="2030381">
+  <img src="//a.impactradius-go.com/display-ad/7443-2030381" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030381/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

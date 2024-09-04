@@ -1,7 +1,7 @@
 ---
 title: ABBYY's Innovative Approach to Building a Secure Future via Advanced Automated Solutions
-date: 2024-08-25T22:28:02.278Z
-updated: 2024-08-26T22:28:02.278Z
+date: 2024-09-03T22:46:40.563Z
+updated: 2024-09-04T22:46:40.563Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/acc116e7f31959c80ee46ff620abee605b240216ab77712435cda97b5c53cabd.jpg
@@ -34,46 +34,73 @@ According to the National Highway Traffic Safety Administration, [traffic crashe
 
 In an effort to prevent future fatalities and promote safer conditions for all drivers, **auto insurance companies are turning to intelligent automation**. Previously, insurers relied on past driving records—frequency and severity of tickets and accidents—to assess the safety of an individual’s driving habits. [Today they can use telematics to collect real-time data while the person is driving](https://www.usnews.com/insurance/auto/how-do-those-car-insurance-tracking-devices-work), either through a physical device plugged into the vehicle or via a smartphone app. Both methods use AI to detect behaviors such as sudden acceleration and hard braking, and smartphone apps can also flag [phone use while driving, a proven risk factor in traffic fatalities](https://www.nhtsa.gov/risky-driving/distracted-driving#the-issue-consequences). Auto insurance companies then **use this data to reward safe drivers** with discounts and to encourage those with less-than-stellar habits to be more careful.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Coaching truck drivers in real time
 
 On the commercial side, truck fleets are using **AI-driven coaching apps to leverage positive reinforcement** in helping drivers improve their safety practices. [Netradyne’s Driver-i application, for example](https://www.ccjdigital.com/technology/driver-coaching-and-scorecarding/article/15304064/survey-shows-safety-finances-top-concerns-for-some-fleets), analyzes 100 percent of a driver’s practices (not just “triggered events” such as speeding, in contrast with consumer insurance tracking apps) via computer vision using data from the rig’s dashcam. Through in-cab alerts and automated virtual coaching, drivers receive real-time feedback on what they’re doing as well as what they could be doing better.
 
 Netradyne’s senior vice president of marketing, Barrett Young, recently shared his views on positive reinforcement as vital to improving the safety practices of commercial drivers. “If you think about the psychology of truck drivers,” [he told Commercial Carrier Journal](https://www.ccjdigital.com/technology/driver-coaching-and-scorecarding/article/15304064/survey-shows-safety-finances-top-concerns-for-some-fleets), “they're proud people. They're proud of their jobs. They work hard at their jobs—arguably some of the hardest workers in our entire economy. And so the last thing they want is to constantly be told that they're doing the job bad, especially when the majority of the time they're not.”
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
+  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Making construction sites safer
 
 In 2020, [more than one in five workplace deaths occurred within the construction industry](https://www.bls.gov/opub/ted/2022/a-look-at-falls-slips-and-trips-in-the-construction-industry.htm), and more than one-third of those fatalities resulted from falls, slips, and trips. In addition to saving lives, enhancing construction site safety also helps businesses avoid financial hardships. [Each Occupational Safety and Health Administration (OSHA) violation incurs a penalty of up to $15,625](https://www.osha.gov/penalties), and OSHA estimates that [U.S. employers pay nearly $1 billion per week](https://www.osha.gov/businesscase/costs) for direct workers' compensation costs.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Enhancing visibility
 
 Construction companies are getting ahead of safety risks by **increasing visibility with smart technology, particularly AI-supported cameras**. Through photo recognition and 3-dimensional scanning, these cameras can recognize objects and people then use this data to identify hazards such as workers without hardhats, exposure to hazardous materials, and activities being performed unsafely or without the required safety gear.
 
+<!-- affiliate ads begin -->
+<span id="1977028">
+					<video width="80" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Putting “smart” equipment to work
 
 AI-powered “smart” construction equipment systems help construction operators increase transparency and accountability through consistent monitoring and reporting. [Caterpillar’s VisionLink system](https://www.cat.com/en%5FUS/support/technology/equipment-management/visionlink.html), for example, delivers a dashboard that conveys the exact location of every piece of heavy equipment and tracks machine health, enabling proactive maintenance to prevent potential safety hazards due to malfunctioning machinery.
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2127886">
+					<video width="360" height="640" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Enabling remote robotic construction
 
 AI adds another dimension of safety by **enabling some building elements to be produced away from the construction site**. Robotic factories can produce certain structural components in a highly controlled setting, removing potential hazards from the site and thus lowering the risks of worker injury.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Improving drug safety reporting
 
 Tracking adverse drug events (ADEs)—harms resulting from medication that include allergic reactions, side effects, and human error—is a key component in making drugs safer. Every year, adverse drug events (ADEs) cause about [1.3 million visits to the emergency room and 350,000 hospitalizations, costing about $3.5 billion a year](https://www.cdc.gov/medicationsafety/basics.html).
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<span id="1975562">
+					<video width="80" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### How AI Identity Proofing Is Transforming Government Services
 
@@ -88,7 +115,10 @@ The U.S. Food and Drug Administration (FDA) tracks ADEs through two systems: the
 Historically, the FDA has relied on human analysts to process adverse event forms. Each reviewer would spend an average of 10 minutes reading each form. For about 10 percent of the forms, another 15–20 minutes would be required to write a report about the possible relationship between the drug and the event. **This process alone added up to about 1,000 hours**, causing high levels of worker fatigue as well as a high risk of human error.
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Finding an intelligent solution
 
@@ -98,9 +128,6 @@ In that same interview, Scott explained that today, “\[analysts\] can basicall
 
 By speeding up adverse event report processing and dramatically reducing the risk of human error, the FDA is helping **ensure that problems with medications can be addressed quickly and effectively**. Healthcare providers can prescribe drugs with greater confidence in their safety and effectiveness, and patients ultimately benefit from the prevention of future adverse reactions.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Intelligence for a safer future
 
 These are a few examples of areas where intelligent automation is contributing to a safer future, and there are many more where these came from.
@@ -109,6 +136,18 @@ Whether they are delivering feedback that helps drivers operate more safely, tra
 
 ![Maxime Vermeir 110X110 (1)](https://static3.abbyy.com/abbyycommedia/37004/maxime-vermeir_110x110-1.png)
 
+<!-- affiliate ads begin -->
+<span id="1977004">
+					<video width="80" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Maxime Vermeir
 
 Senior Director of AI Strategy
@@ -117,6 +156,12 @@ With a decade of experience in product and technology, Maxime Vermeir is an entr
 
 Connect with Max on [LinkedIn](https://www.linkedin.com/in/maximevermeir/).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Additional Insights:
 
 1 / 3 

@@ -1,7 +1,7 @@
 ---
 title: ABBYY Erweitert Internationaler Eintritt Zu Künstlicher Intelligenz Tools in Den Letzten Quartalen Von 2018
-date: 2024-08-25T22:31:58.315Z
-updated: 2024-08-26T22:31:58.315Z
+date: 2024-09-03T22:46:44.765Z
+updated: 2024-09-04T22:46:44.765Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/2dd2e24a58c5be887d5c8f88ca29fd663a35485eda34d7682bda60157d137f8e.png
@@ -188,9 +188,6 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-leading-selections-ultimate-mac-video-grabber-devices/"><u>[New] In 2024, Leading Selections  Ultimate Mac Video Grabber Devices</u></a></li>
@@ -249,3 +246,10 @@ Vernetzen Sie sich mit uns
 <li><a href="https://buynow-marvelous.techidaily.com/top-picks-8-incredible-smartphone-games-for-gamers/"><u>Top Picks: 8 Incredible Smartphone Games for Gamers</u></a></li>
 <li><a href="https://smart-video-creator.techidaily.com/updated-reverse-tiktok-videos-like-a-pro-a-step-by-step-tutorial-for-2024/"><u>Updated Reverse TikTok Videos Like a Pro A Step-by-Step Tutorial for 2024</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

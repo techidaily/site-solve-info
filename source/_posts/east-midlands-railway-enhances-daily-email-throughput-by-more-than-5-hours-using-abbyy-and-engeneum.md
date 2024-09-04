@@ -1,7 +1,7 @@
 ---
 title: East Midlands Railway Enhances Daily Email Throughput by More than 5 Hours Using ABBYY & Engeneum
-date: 2024-08-25T22:28:47.351Z
-updated: 2024-08-26T22:28:47.351Z
+date: 2024-09-03T22:46:41.428Z
+updated: 2024-09-04T22:46:41.428Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/df4c1493c2f3e813888bfc3942921b3c21459900f9f223dcb15b2289e52ca077.jpg
@@ -100,7 +100,10 @@ ABBYY’s intelligent automation platform is the only solution that automates th
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Ready to talk to an expert?
 

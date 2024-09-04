@@ -1,7 +1,7 @@
 ---
 title: Experience Tailored Browsing with Cookiebot Technology Driven Content
-date: 2024-08-25T22:32:28.426Z
-updated: 2024-08-26T22:32:28.426Z
+date: 2024-09-03T22:46:45.281Z
+updated: 2024-09-04T22:46:45.281Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/667c07bdb92da3d0cfc85ccd305dbbf14b3797ec47ad22d2523d6d2404f16cd1.jpg
@@ -80,12 +80,18 @@ Android comes with three ready-made rules: **Weekends**, **Event** and **Weeknig
 ![do not disturb android choose rule type](https://static1.abbyy.com/abbyycommedia/26029/cf310a96-af2f-40b1-947a-568a2c5191f5-e1510059100215.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Of course, there may be non-recurring time periods when you shouldn’t be disturbed, such as during important meetings or concerts. These can be added individually by tapping **Event**. You can also add events directly from Google Calendar, which is really handy.
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **ABBYY Tip: How to Add Tags in FineScanner**
 
@@ -94,10 +100,13 @@ Tags are a very useful invention. Using tag search, you can find that old contra
 1. Select a document.
 2. Tap **Properties** and start editing the document.![abbyy add tags in finescanner](https://static1.abbyy.com/abbyycommedia/26030/untitled-e1510059645865.png)
 3. In the **Tags** field, select the necessary tags from the list (e.g. **Work** or **Contract**) or add your own.![abbyy choose tags finescanner document ocr](https://static1.abbyy.com/abbyycommedia/26031/img_0083-e1510059671839.png)![abbyy add create new tag finescanner](https://static1.abbyy.com/abbyycommedia/26032/img_0084-e1510059696164.png)
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 4. Click **Done** and go back to the ribbon. Now you will be able to find this document by specifying its tag in the search field.
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 You can tag all of your documents so that you don’t have to scroll through dozens of screens looking for some elusive contract. By the way, the iOS native Spotlight search engine also support tags.
 
@@ -109,10 +118,25 @@ Got lots of ideas but not enough time to put them all into practice? Try [Ideali
 
 ![idealist app idea realisation ios](https://static1.abbyy.com/abbyycommedia/26033/mycollages-6-e1506948419116.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Even if you don’t need any external advice, you may find the app useful for writing down worthwhile ideas, placing them into categories, and marking their statuses. [Idealist](https://itunes.apple.com/us/app/idealist-turn-your-idea-into/id975937527?mt=8)also nudges you towards more critical thinking, which is a useful skill for any adult, not just for inventors and entrepreneurs. Available on [iOS](https://itunes.apple.com/us/app/idealist-turn-your-idea-into/id975937527?mt=8).
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<span id="1983473">
+					<video width="360" height="150" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **First-Hand Experience:** Advice From a Colleague
 
@@ -121,12 +145,10 @@ _Shared by Eugene Zudin, partner manager_
 **![advice colleague abbyy spend money wisely](https://static1.abbyy.com/abbyycommedia/26034/fjimnrfsihq-e1506953089696.jpg)**
 
 <!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Almost half a century ago, the American psychologist Julian Jaynes came up with a wild yet compelling theory which he later developed in his 1976 book titled _The Origin of Consciousness in the Breakdown of the Bicameral Mind_, of which Richard Dawkins, the well-known evolutionary biologist, had this to say: “It is one of those books that is either complete rubbish or a work of consummate genius, nothing in between!”
 
@@ -154,9 +176,6 @@ P.S. The coolest sale of the year is approaching! We are getting ready for it at
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

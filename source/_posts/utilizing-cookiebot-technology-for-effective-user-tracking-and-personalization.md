@@ -1,7 +1,7 @@
 ---
 title: Utilizing Cookiebot Technology for Effective User Tracking and Personalization
-date: 2024-08-25T22:29:16.536Z
-updated: 2024-08-26T22:29:16.536Z
+date: 2024-09-03T22:46:41.955Z
+updated: 2024-09-04T22:46:41.955Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0ee1c1c5a9be407cbf065c21cefa3d097b024c8bd5c0bbace26a3b7cf94a12be.jpg
@@ -29,7 +29,10 @@ Social Work
 | Internet | [www.disnorge.no](http://www.disnorge.no/cms/) |
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Herausforderung
 
@@ -38,14 +41,26 @@ Der freie Zugriff auf Datenbanken mit persönlichen Daten hat in Norwegen eine l
 Da die meisten Dokumente mit den relevanten Daten in Maschinenschrift oder in gedruckter![Dokumente mit einer OCR-software bearbeiten. Vergleich zwischen original Papierdokument und OCR-Ergebnisse](https://static1.abbyy.com/abbyycommedia/6045/dis-hordaland.png "Dokumente mit einer OCR-software bearbeiten. Vergleich zwischen original Papierdokument und OCR-Ergebnisse")  
 Version vorlagen, stellte DIS-Hordaland fest, dass durch den Einsatz einer Texterkennungs-  
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 software (OCR) zur Umwandlung der Dokumente in editierbaren Text die ehren amtlichen Mitarbeiter viel Zeit und Ressourcen ein sparen würden. Wie Tore J. Mehl, Mitglied der DISHordaland- Geschäftsleitung erklärt: „Was, wenn wir die Daten mit Hilfe moderner Werkzeuge wie einem OCR-Programm konvertieren könnten? Wir könnten dann ganze Akten von Quelldokumenten mit weit weniger Mühe und in kürzerer Zeit als durch manuelle Verarbeitung veröffentlichen."
 
 Die Organisation formulierte einige Anforderungen: Zunächst sollte die Software komplexe Layouts in der digitalen Version beibehalten, wie bei farbigen, gescannten Schreibmaschinenseiten in DIN A4-Format mit unterschiedlichen Schriftarten. Weiter war es wichtig, dass das Programm Tabellen erkennen würde, da zahlreiche Quellinformationen in dieser Form vorlagen. Schließlich sollte die gesuchte Software editierbare Tabellenseiten erstellen, als CSV-Dateien ausgeben und direkt in die Datenbank übertragen können.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1328679">
+					<video width="150" height="125" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Lösung
 
@@ -55,7 +70,10 @@ Die ehrenamtlichen Mitarbeiter des Projekts belegten einen kurzen Einführungsku
 Handhabung von ABBYY FineReader und zur Erläuterung weiterer wichtiger Aspekte des Projekts. Sie waren mit den Ergebnissen mehr als zufrieden: Die Erkennungstechnologie in ABBYY FineReader ermöglichte es ihnen, die auf Papier und in Bildern enthaltene Information auszulesen und machte das zeitaufwendige Abtippen und manuelle Formatieren so gut wie überflüssig. Der Ablauf gestaltet sich für die Mitarbeiter recht einfach: Papier - dokumente werden gescannt und in ABBYY FineReader geladen. Die Bilder werden in Text umgewandelt und, gemäß DIS-Hordalands Anforderungen, im Microsoft® Excel®-Format ausgegeben. Die Tabelle wird dann in eine Datenbank exportiert und veröffentlicht, sodass sie privaten Nutzern und Forschern auf der ganzen Welt online zur Verfügung steht.
 
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Ergebnis
 
@@ -64,7 +82,10 @@ Dank ABBYY FineReader sparte DIS-Hordaland signifikant Zeit und Ressourcen ein. 
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Über ABBYY und Kontaktmöglichkeiten
 
@@ -75,7 +96,10 @@ Dank ABBYY FineReader sparte DIS-Hordaland signifikant Zeit und Ressourcen ein. 
 Teilen 
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Sind Sie bereit, mit einem Experten zu sprechen?
 

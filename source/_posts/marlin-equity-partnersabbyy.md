@@ -1,7 +1,7 @@
 ---
 title: Marlin Equity PartnersがABBYYに対する投資を開始 - 最新ニュース解析
-date: 2024-08-25T22:31:41.616Z
-updated: 2024-08-26T22:31:41.616Z
+date: 2024-09-03T22:46:44.489Z
+updated: 2024-09-04T22:46:44.489Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4c147f639cee2585f7f88020d64ed44f6ab3d2fb87afeca6ceadabb8d346628a.jpg
@@ -104,9 +104,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-prime-5-web-based-screening-sessions/"><u>[New] 2024 Approved  Prime 5 Web-Based Screening Sessions</u></a></li>
@@ -163,3 +160,10 @@ Connect with us
 <li><a href="https://data-wizards.techidaily.com/unveiling-top-secrets-in-data-reconstruction-via-vishakha/"><u>Unveiling Top Secrets in Data Reconstruction via Vishakha</u></a></li>
 <li><a href="https://android-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-itel-s23-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Itel S23 | Dr.fone</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
+  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

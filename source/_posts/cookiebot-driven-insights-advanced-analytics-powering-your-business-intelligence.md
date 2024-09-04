@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Driven Insights: Advanced Analytics Powering Your Business Intelligence"
-date: 2024-08-25T22:28:39.631Z
-updated: 2024-08-26T22:28:39.631Z
+date: 2024-09-03T22:46:41.270Z
+updated: 2024-09-04T22:46:41.270Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c9271a8faf33c0a549b22ca0028cd9619d63965df7208919633e76ad2ce6d7e3.jpg
@@ -36,7 +36,16 @@ Jump to:
 ## 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<span id="1328683">
+					<video width="125" height="125" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## What is KYC compliance?
 
@@ -48,13 +57,13 @@ There are three key components of KYC:
 * **Customer Due Diligence (CDD):** CDD is the next stage of KYC. It involves understanding the customer's financial behavior and transaction patterns to create a risk profile. High-risk customers must undergo Enhanced Due Diligence (EDD), with more thorough background checks and continuous monitoring.
 * **On-going monitoring:** Continuous monitoring involves overseeing financial transactions and accounts based on the customer’s risk profile. Institutions may look at activities such as spikes in transaction activity or unexpected cross-border activities.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## KYC compliance laws
 
@@ -73,9 +82,6 @@ Some of the other key international KYC laws include:
 * **The Money Laundering Act – 2017 (MLA)** governs the UK, defining customer verification rules for reporting entities.
 * **Proceeds of Crime (Money Laundering) and Terrorist Financing Act (PCMLTFA)** of Canada sets the KYC requirements and rules for reporting entities.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 
 
 ## KYC requirements by industry
@@ -113,14 +119,16 @@ To comply with KYC regulations, insurance companies must verify the identity of 
 
 Under KYC regulations, real estate professionals should perform customer due diligence to prevent money laundering. Real estate businesses in the US must also comply with AML regulations when conducting transactions through financial institutions. FinCEN is authorized to issue Geographic Targeting Orders (GTOs) in high-risk jurisdictions, mandating insurance companies to identify the individuals behind companies or entities used in high-value or cash real estate transactions.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## Steps to implementing a compliant KYC process
 
 ![KYC-compliance-process-2](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/kyc-compliance-a-comprehensive-guide/kyc-compliance-process-2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The KYC process begins with the Customer Identification Program (CIP), where financial institutions gather a customer’s basic identifying information:
 
 * Name
@@ -158,10 +166,19 @@ Employee training is critical for communicating, controlling, and safeguarding k
 * General information on AML/CFT and KYC regulatory compliance requirements
 * How to identify and report transactions to a regulator or authority
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Implement a robust Customer Identification Program (CIP)
 
@@ -177,6 +194,18 @@ To create a CIP that’s robust and tailored to your institution's risk-based ap
 
 ### 
 
+<!-- affiliate ads begin -->
+<span id="1265663">
+					<video width="150" height="125" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Leverage advanced KYC technology
 
 Financial services institutions face a unique set of challenges. Crimes, such as fraud, terrorist activity, and money laundering, are committed by bypassing banking processes or using suspicious documents, resulting in billions of dollars in fines and legal risks. Although evolving regulations aim to solve these problems, these institutions often find themselves with fractured processes and repetitive due diligence requests, causing further problems, including:
@@ -196,7 +225,10 @@ Financial services institutions face a unique set of challenges. Crimes, such as
 [Request a demo](https://tools.techidaily.com/abbyy/products/) to find out how ABBYY Timeline could improve your [KYC compliance](https://tools.techidaily.com/abbyy/products/) process and streamline your business critical processes.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## KYC challenges
 
@@ -206,6 +238,12 @@ A benefit of the international commitment to preventing financial crime is that 
 
 In addition, with the increasing significance of data privacy, regulators are imposing stricter rules on businesses to safeguard customer data and use KYC information solely for its intended purpose. Balancing due diligence to protect customer data, while fielding the risks of financial crime, can be difficult to balance. Coupling these challenges with the growing digitization of the KYC process, it can be difficult for institutions to keep up with regulations.
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
+  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## KYC compliance in the digital age
 
 Digital transformation across KYC compliance processes has led to the advent of eKYC, where businesses use online processes to verify customer identities and transactions. Financial services companies increasingly use mobile and web-enabled solutions that incorporate on-device technology and biometric authentication (such as facial recognition) to accurately identify customers in the digital environment. 
@@ -218,9 +256,6 @@ Your customers will be able to onboard through their mobile or desktop, helping 
 
 [Request demo](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Frequently asked questions
 
 ##### What documents are typically required for KYC verification?

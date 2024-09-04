@@ -1,7 +1,7 @@
 ---
 title: Photography Tips & Task Management Secrets Revealed on ABBYY Blog
-date: 2024-08-25T22:29:06.799Z
-updated: 2024-08-26T22:29:06.799Z
+date: 2024-09-03T22:46:41.777Z
+updated: 2024-09-04T22:46:41.777Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1b264feb60401b06f1b5b9d369aaa689e44f7f3921972fa9eb3d747a1df53b5a.jpg
@@ -55,6 +55,18 @@ Here’s how you do it:
 
 3\. Enter your account password once again, then paste your promo code into the field at the bottom and you’re done.
 
+<!-- affiliate ads begin -->
+<span id="1982457">
+					<video width="360" height="150" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Android Tip: How to Redeem Your Google Play Promo Code**
 
 The procedure is similar for Android-powered devices. Here again, you are most likely to get a promo link, which can be easily activated with a mere tap on your device. If you all you have is a string of digits and letters, please follow the steps below (there’re also a detailed guide from Google [here](https://support.google.com/googleplay/answer/3422659?hl=en)):
@@ -64,15 +76,18 @@ The procedure is similar for Android-powered devices. Here again, you are most l
 2\. Tap the **Redeem** icon.  
 ![reedeem Google Play promo](https://static1.abbyy.com/abbyycommedia/31172/1-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 3\. Enter your promo code.  
 ![redeem promo code Google Play](https://static1.abbyy.com/abbyycommedia/31173/2.png)
 
 4\. Tap **Redeem** and you will see a window prompting you to install the app.  
 ![redeem FineScanner Google Play](https://static1.abbyy.com/abbyycommedia/31174/3.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 There’s also an alternative route: you can use the web version of Google Play to install the app on your (or your grandparent’s) smartphone via your desktop computer. Simply log in with your Gmail account at [play.google.com](https://play.google.com/store) to find apps and install them on your mobile device. To redeem your promo code on a desktop computer:
 
 1\. In your browser, open this address: [google.com/redeem](https://play.google.com/redeem).
@@ -82,15 +97,10 @@ There’s also an alternative route: you can use the web version of Google Play 
 ![redeem activate promo code android](https://static1.abbyy.com/abbyycommedia/25940/f445d31baebfda3cef1cda1b51f7860f-e1505142714275.png)
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<a href="https://appsumo.8odi.net/c/5597632/2024326/7443" target="_top" id="2024326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2024326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024326/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **ABBYY Tip: How to Take Photos Like a Pro**
 
@@ -100,11 +110,26 @@ Unsurprisingly, the quality of OCR is heavily dependent on the quality of docume
 ![abbyy ocr poor lighting](https://static1.abbyy.com/abbyycommedia/25941/4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<span id="1993654">
+					<video width="80" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 2\. **Wrong focus point** is another image defect that may make you want to rip your hair out. Why is it that sometimes the camera will focus on any object in sight save the text that you need to capture? Digital cameras use special technology to determine the distance to the subject. To perform reliably, it needs sufficient lighting and high-contrast objects. Besides, it is often fine-tuned for portraits and common indoor and outdoor scenes. If your camera has hard time focusing on the text, give it a helping hand by pointing the lens to some high-contrast (e.g. black and white) area. It’s best to give the camera some time to focus on the text instead of taking a few hasty snapshots in the hope that you can improve their sharpness later.  
 ![fix wrong focus point taking photos](https://static1.abbyy.com/abbyycommedia/31175/5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 3\. **Blur** is caused by camera shake. It is more likely to occur in dark environments, because the camera will keep the shutter open until the sensor gets enough light. Even if you have the steady hands of a neurosurgeon, your heartbeats may transfer to the camera and cause blur. So, if your camera is not equipped with optical image stabilization, shoot like a marksman: hold the camera steady in your hands, hold your breath and softly press the shutter release button. If you need to take lots of pictures in one session, we would advise using a flexible clamp mount. We use one ourselves and can confirm that it does the trick.  
 ![finescanner text analyse blurred photo](https://static1.abbyy.com/abbyycommedia/25942/6.jpg)
 
@@ -121,24 +146,36 @@ Unsurprisingly, the quality of OCR is heavily dependent on the quality of docume
 ![bad quality of photo finescanner](https://static1.abbyy.com/abbyycommedia/25947/10.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 To sum up: uniform non-white backgrounds, even natural lighting and steady hands will give you a picture that’s perfectly suitable for OCR. Modern cameras (and users) are very good, but we hope these tips you will help you move a few steps closer to perfection.
 
 ![TextGrabber FineScanner OCR](https://static1.abbyy.com/abbyycommedia/25948/11.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2030373/7443" target="_top" id="2030373">
+  <img src="//a.impactradius-go.com/display-ad/7443-2030373" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030373/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **App of the Week: Keeping Track of Your Tasks with Asana**
 
 ![Asana on mobile](https://static1.abbyy.com/abbyycommedia/31182/12.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982508">
+					<video width="360" height="150" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 There has never been a shortage of task managing apps, but my app of choice is [Asana](https://asana.com/). It’s the task managing app that I always recommend to my colleagues and that I would like to tell you about today. Here’s what I consider its strong points that make it worthy of your attention:
 
@@ -147,19 +184,28 @@ There has never been a shortage of task managing apps, but my app of choice is [
 2\. It takes just a few taps to add a new task: tap the **plus** icon, type in a descriptive name for the task, and then tap the **Create Task** button. You can always refine your task later by setting due dates, providing explanations, adding subtasks and links to projects, supplying tags, and setting priorities, either manually or automatically.  
 ![app asana control tasks ios android](https://static1.abbyy.com/abbyycommedia/25949/13.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 3\. Asana offers a neat and uncluttered UI on all of the supported platforms.
 
 Actually, Asana is actively evolving towards a project management tool with all the necessary PM features, including teams, discussions, projects, dashboards where you can add and remove project cards, etc. All the features are very well documented in detailed [Asana guides](https://asana.com/guide) (these are all in English, but it shouldn’t be a problem for most users). With all this horsepower under the hood, the app is equally useful as a personal task manager.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **First-Hand Experience:** Advice From a Colleague
 
 _The author of this week’s column is Anna Koltsova, Head of the Mobile Marketing group at ABBYY_
 
 ![ABBYY Advice from colleague Marketing Management](https://static1.abbyy.com/abbyycommedia/25950/img_20170611_160245_1024-2-e1505144205494.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 I’ve spent quite some time managing projects and assigning tasks and one thing I know for certain — the more specific you are when setting a task, the more likely you are to get the result that you’re expecting. This is even truer when you assign a task to a new member of your team, especially if they lack the necessary experience. Better spend an extra five minutes on explaining everything at the outset than losing hours ironing out defects at the final stages. This rule equally applies outside your work environment. When setting a task, be sure to commit the following to paper:
 
 1. What it is exactly that you want done, specified in excruciating detail. As you write things down, numerous finer points pop up that could easily escape your attention in spoken communication. If you already have some good examples of what you want to get, as a result, share them with the person who will be doing the work for you this time (“Good artists copy; great artists steal” **©** Pablo Picasso).
@@ -171,9 +217,6 @@ We hope you find these tips useful. As always, your comments, ideas, and suggest
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

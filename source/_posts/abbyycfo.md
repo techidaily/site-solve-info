@@ -1,7 +1,7 @@
 ---
 title: ジェームズ・ライター氏がABBYYの新しいCFOとして昇格
-date: 2024-08-25T22:31:02.820Z
-updated: 2024-08-26T22:31:02.820Z
+date: 2024-09-03T22:46:43.794Z
+updated: 2024-09-04T22:46:43.794Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b00431bdf0c9ec5881d711d0e.jpg
@@ -34,7 +34,10 @@ Ritterは、WPP、Ferrovial、BigCommerceなど複数の世界企業で上級管
 ABBYYとABBYYのロゴは、ABBYY Software Ltd.の登録商標または商標です。本記事に記載されているその他の製品名は、各所有者の商標または登録商標の場合があります。
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 報道関係者お問い合わせ先
 

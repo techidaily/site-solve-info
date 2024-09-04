@@ -1,7 +1,7 @@
 ---
 title: Streamlined Workflow Integration with Pipefy & ABBYY Document Automation
-date: 2024-08-25T22:32:45.463Z
-updated: 2024-08-26T22:32:45.463Z
+date: 2024-09-03T22:46:45.560Z
+updated: 2024-09-04T22:46:45.560Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7a684ff6b3f7243ec032f5ae8a931d190264bae1e112796613965ade353d6f1f.png
@@ -49,21 +49,42 @@ ABBYY powers intelligent automation. We reimagine the way people work and the wa
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993654">
+					<video width="80" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### About Pipefy
 
 Pipefy is the low-code process automation platform that increases team productivity and efficiency, centralizes data, and standardizes processes for teams in IT, Finance, HR, Customer Operations, and more. Through its workflow automation and low-code framework, Pipefy helps businesses achieve stack extensibility and process excellence for every team in every department, delivering 3-digit ROI to its customers. Among its many recognitions, Pipefy was named to the [Deloitte Technology Fast 500™](https://www.globenewswire.com/Tracker?data=L4P4CtPwtdXtpVLiV6cfqyiiRtxpBqyS2SAXp-Uu3aDCUyG3QAi5wQaOrJhTvsG9CfLh3GwDtY7OUnu6pkJh4akYx%5FcDwV9%5FPwVdssnM23XANkv74ij3fskp4E8dyyEzcEDgIMPPH1qiFcz-No4K6xVUIjdxlE1kGZJFCO7raCaNZJOFKtl32Fn9gUKPcciiT5vwVF5cuxUd4QIlmM1Klbyq3ZpqnXouCvINiDiNywZMKPOygKPBVa0fp1BTtTdIFJbcz7rdKtI-Lczo53lOfJrB7RsuEEvNTEDQ1vStbicQLWAeeJr3urPr%5FVRFgKpLVikSHwAC3Twf95EkpnYx0u5qlIo0VxCuGW6NMe-uMl-ZLsGk6sEUTDDmkrSU2P46), a ranking of the 500 fastest-growing companies in North America in November, 2022.
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<span id="1374819">
+					<video width="125" height="125" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### ABBYY Editorial Contact
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### Gina Ray
 
