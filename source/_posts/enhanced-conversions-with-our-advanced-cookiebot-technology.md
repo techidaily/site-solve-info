@@ -1,22 +1,46 @@
 ---
 title: Enhanced Conversions with Our Advanced Cookiebot Technology
-date: 2024-09-03T22:46:45.175Z
-updated: 2024-09-04T22:46:45.175Z
+date: 2024-09-08T23:40:20.555Z
+updated: 2024-09-09T23:40:20.555Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8ff514e7ae8e73f00c632257f00b6aefbc08dc01d831c81a6f2628b843ff494a.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Enhanced Conversions with Our Advanced Cookiebot Technology
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Appoints Patrick Jean to Chief Product & Technology Officer
 
 December 14, 2023
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [ABBYY](https://tools.techidaily.com/abbyy/products/), a market leader in purpose-built AI for intelligent automation, has announced the appointment of **Patrick Jean “PJ” as Chief Product & Technology Officer (CPO/CTO)** and a member of the executive management team. PJ has served in several executive engineering and leadership roles over his 20-year career and has a successful track record winning market share that drives demonstrable revenue. He will lead global product and technology teams with a primary focus on accelerating time-to-market for ABBYY’s intelligent document processing and process intelligence solutions to deliver measurable value to global enterprise customers faster.
 
 The depth of PJ’s hands-on experience gives him an indispensable perspective, both as a leader and a technologist.  
@@ -32,6 +56,18 @@ Patrick Jean to Chief Product & Technology Officer at ABBYY
 
 For more information about ABBYY intelligent automation solutions, visit [www.abbyy.com](https://tools.techidaily.com/abbyy/products/).  
 
+<!-- affiliate ads begin -->
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### About ABBYY
 
 ABBYY puts your information to work. We combine innovation and experience to transform data from business-critical documents into intelligent actionable outcomes in over 200 languages in real time. We enable more than 10,000 companies globally, including many of the Fortune 500, to drive significant impact where it matters most: customer experience, operational excellence, and competitive advantage. ABBYY is a global company with headquarters in Milpitas, CA and offices in 14 countries, and is the [Official Intelligent Automation Partner of Arsenal Women Football Club](https://tools.techidaily.com/abbyy/products/). For more information, visit [www.abbyy.com/company/about-us/](https://tools.techidaily.com/abbyy/products/) and follow us on [LinkedIn](https://www.linkedin.com/company/abbyy), [Twitter](https://twitter.com/ABBYY%5FSoftware) and [Facebook](https://www.facebook.com/ABBYYsoft).
@@ -39,20 +75,20 @@ ABBYY puts your information to work. We combine innovation and experience to tra
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
-  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### ABBYY Editorial Contact
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115931/19272" target="_top" id="2115931">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115931" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115931/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### Gina Ray
 

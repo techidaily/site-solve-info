@@ -1,22 +1,52 @@
 ---
 title: Optimized with the Help of Cookiebot Technology
-date: 2024-09-03T22:46:45.813Z
-updated: 2024-09-04T22:46:45.813Z
+date: 2024-09-08T23:40:21.137Z
+updated: 2024-09-09T23:40:21.137Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8a7e84630d3aca1d8a2601af719bff431bf93c02b2b4875663befca17245e9f8.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Optimized with the Help of Cookiebot Technology
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Blue Prism Automates SBA PPP Loan Processing at Banks Saving More Than 85,000 Jobs and Helping Small Businesses Stay Afloat
 
 June 10, 2020
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Proven Solution Supports Rounds of Federal Funding, Enabling Same-Day Processing of Thousands of Applications from Submissions, Bank Review, Underwriting, SBA Reporting, Approvals and Payment_
 
 [Blue Prism](http://www.blueprism.com/) has teamed-up with [Lateetud](https://www.lateetud.com/) and [ABBYY](https://tools.techidaily.com/abbyy/products/) to support the US government’s latest COVID-19 relief efforts for small businesses, by helping to automate loan applications during the two rounds of funding, $349 billion and $310 billion respectively, allocated by Congress as part of its [SBA Paycheck Protection Program (PPP)](https://www.sba.gov/). The solution, currently being used by several U.S. banks, uses Digital Workers to automate process loan applications in a matter of seconds, for same-day approvals.
@@ -125,10 +155,3 @@ Connect with us
 <li><a href="https://solve-info.techidaily.com/utilizing-cookiebot-technology-for-enhanced-user-personalization-and-seo-success/"><u>Utilizing Cookiebot Technology for Enhanced User Personalization & SEO Success</u></a></li>
 <li><a href="https://ai-voice-clone.techidaily.com/what-is-talking-avatar-wondershare-virbo-glossary-for-2024/"><u>What Is Talking Avatar? | Wondershare Virbo Glossary for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

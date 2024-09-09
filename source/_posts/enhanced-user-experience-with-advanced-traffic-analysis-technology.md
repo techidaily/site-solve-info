@@ -1,24 +1,48 @@
 ---
 title: Enhanced User Experience with Advanced Traffic Analysis Technology
-date: 2024-09-03T22:46:40.726Z
-updated: 2024-09-04T22:46:40.726Z
+date: 2024-09-08T23:40:16.583Z
+updated: 2024-09-09T23:40:16.583Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4c64599e932018a17c352685488bbe982ee82f5fc1c73b73894ec43a1b1c5c03.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Enhanced User Experience with Advanced Traffic Analysis Technology
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Scott Opitz devient CTO-CPO d’ABBYY
 
 17 mars 2022
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123476/16836" target="_top" id="2123476">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123476" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123476/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Scottopitz 848X444](https://static4.abbyy.com/abbyycommedia/35308/scottopitz-848x444.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [ABBYY](https://tools.techidaily.com/abbyy/products/), entreprise spécialisée dans l’Intelligent Process Automation, annonce la nomination de Scott Opitz au poste de Chief Technology and Product Officer. Scott Opitz va superviser la stratégie d’investissement en R&D dont la hausse atteindra 40% en 2022\. Ses responsabilités comprennent la direction de la stratégie, du développement et de l’exécution des activités liées aux produits et à l’innovation, en Europe et aux États-Unis. Il aura également pour mission de consolider l’engagement de l’entreprise pour l'amélioration de sa plateforme [Vantage](https://tools.techidaily.com/abbyy/products/), leader sur le marché de l’_[Intelligent Document Processing](https://tools.techidaily.com/abbyy/products/)_ (IDP) ainsi que de [Timeline](https://tools.techidaily.com/abbyy/products/), sa solution de [Process Intelligence](https://tools.techidaily.com/abbyy/products/).
 
 ABBYY développe ses propres technologies depuis de nombreuses années et sa suite de solutions d’Intelligent Process Automation (IPA) figure à la première place dans les études des principaux cabinets d’analystes indépendants. Tous ont désigné ABBYY comme un leader de l’IPA et/ou du Process Intelligence, positionnant ainsi l’entreprise comme le meilleur fournisseur pour conquérir une part importante du marché de l’IPA qui devrait atteindre 42,4 milliards de dollars d’ici 2025.
@@ -31,27 +55,27 @@ Scott Opitz a rejoint ABBYY en 2019, lors de l’[acquisition de TimelinePI](htt
 
 Scott a également occupé plusieurs fonctions de direction au sein d’entreprises publiques et privées. Il est inventeur et détient 13 brevets et demandes de brevets relatifs aux technologies de Process Intelligence.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### À propos d’ABBYY
 
 ABBYY est un acteur référent de l’Intelligent Process Automation. L’entreprise ambitionne de réinventer la manière dont ses clients et leurs équipes se développent en leur apportant la connaissance nécessaire au bon fonctionnement des plateformes d’automatisation. Les solutions d’ABBYY transforment les données d’entreprise dans le but de permettre un gain en agilité et en rapidité. ABBYY aide plus de 5 000 clients dans le monde, dont bon nombre des entreprises du Fortune 500, à obtenir un impact positif dans des domaines majeurs tels que l’expérience client, la rentabilité et la compétitivité.
 
 ABBYY est une multinationale basée aux États-Unis, et dont les bureaux sont répartis au sein de 15 pays. Pour plus d’informations, veuillez consulter le site[https://www.abbyy.com/fr/](https://tools.techidaily.com/abbyy/products/).
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Contact presse
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### Bianca Stupp
 

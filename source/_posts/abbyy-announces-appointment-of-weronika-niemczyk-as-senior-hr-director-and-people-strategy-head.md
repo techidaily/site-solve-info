@@ -1,22 +1,40 @@
 ---
 title: ABBYY Announces Appointment of Weronika Niemczyk as Senior HR Director and People Strategy Head
-date: 2024-09-03T22:46:42.812Z
-updated: 2024-09-04T22:46:42.812Z
+date: 2024-09-08T23:40:18.495Z
+updated: 2024-09-09T23:40:18.495Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a446c77eb3a38ef1182231809e6f1b7dff4f649191871eaf498a91e3c9faa20f.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Announces Appointment of Weronika Niemczyk as Senior HR Director and People Strategy Head
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115950/19272" target="_top" id="2115950">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115950" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115950/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Recruits Weronika Niemczyk as Chief People Officer
 
 November 24, 2020
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Niemczyk joins as the importance of uniting a globally and virtually distributed workforce becomes critical to ABBYY’s long-term success_
 
 ABBYY, a Digital Intelligence company, announced today the appointment of Weronika Niemczyk as the company’s first Chief People Officer (CPO). Niemczyk will lead all aspects of improving the employee experience for ABBYY’s more than 1,200 global team members distributed across 14 countries and five continents. She previously led human resources (HR) at global companies Expedia, Google, and Ascential and has a passion for talent development, culture, diversity, and inclusion.
@@ -102,10 +120,3 @@ Connect with us
 <li><a href="https://windows11.techidaily.com/secretive-startup-strategies-conceal-the-shutdown-command/"><u>Secretive Startup Strategies: Conceal the Shutdown Command</u></a></li>
 <li><a href="https://article-helps.techidaily.com/unveiling-windows-10s-full-potential-with-zoom-services-for-2024/"><u>Unveiling Windows 10'S Full Potential with Zoom Services for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

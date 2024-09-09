@@ -1,7 +1,7 @@
 ---
 title: Discover ABBYY's Best Digital Intelligence Narratives From 202 2 - Top Six Picks Unveiled in Our Latest Post!
-date: 2024-09-03T22:46:42.302Z
-updated: 2024-09-04T22:46:42.302Z
+date: 2024-09-08T23:40:18.003Z
+updated: 2024-09-09T23:40:18.003Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/eb6701eb360daf00501aea3027f5f407ca588034548873224d944d5de49dcde3.jpg
@@ -17,6 +17,12 @@ February 04, 2021
 
 ![Business Strategy | ABBYY Blog Post](https://static4.abbyy.com/abbyycommedia/33494/business-strategy-new.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 We had a year full of amazing stories that demonstrate the value of Digital Intelligence in the rapidly changing business climate. From transforming customer experience to optimizing process flows, Digital Intelligence has provided businesses with the insight needed to adapt and remain competitive throughout the pandemic. Gaining this deep knowledge of the way people, processes, and content interact is a key competence for the future of work, demonstrated by this year’s stories. If there’s one message that resonated this year the most, it’s that organizations must ramp up innovation to survive and thrive.
 
 Here are our most interesting and favorite Digital Intelligence stories from 2020, in case you missed any of them.
@@ -25,49 +31,37 @@ Here are our most interesting and favorite Digital Intelligence stories from 202
 
 ![digital transformation 2020](https://static1.abbyy.com/abbyycommedia/31574/blog-digital-intelligence-2-848x444.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The opportunity for artificial intelligence (AI) is in targeting the end-to-end processing of documents for human-machine collaboration as an essential part of the customer journey. Customer acquisition and retention remain the essential drivers of insurance revenue and profit; however, knowing how to create experiences to acquire and keep customers happy remains challenging.
 
 A new breed of competitor—Insuretechs—target smart technologies at the customer experience and are disrupting the status quo for traditional insurers. What Fintechs did in consumer banking, Insuretechs are doing to transform insurance customer experiences. Artificial intelligence (AI) technologies show a lot of promise in transforming customer acquisition and retention, yet it’s all too easy to assume that better technologies can, in themselves, transform customer experience.
 
 [Read the article.](https://iireporter.com/the-human-touch-the-untapped-opportunity-for-making-ai-work-for-insurance/)
 
-<!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Social Distancing Has Raised the Bar for the Digital Experience
 
 ![technology trends 2020](https://static1.abbyy.com/abbyycommedia/31572/blog-digital-intelligence-1-848x444.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="540" height="960" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 With social distancing measures in place and businesses across diverse industries that temporarily closed their store fronts, the digital experience has never been more critical for businesses and the customers who depend on them. Consumers develop brand loyalty and trust in accordance to the degree a company can best meet their needs—both in everyday circumstances and especially during a crisis. That makes it even more important for businesses to leverage [mobile capabilities](https://tools.techidaily.com/abbyy/products/) and optimize the digital experience across customer-facing operations now to serve consumer expectations. Companies that pivot the customer experience accordingly will be poised to emerge ahead of the curve in the post COVID-19 world.
 
 [Read the article.](https://www.cmswire.com/digital-experience/social-distancing-has-raised-the-bar-for-the-digital-experience/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 3\. Data Insight Plays a Key Role in How ABBYY Supplies Vital Pieces of the RPA Puzzle
 
@@ -81,40 +75,34 @@ They discussed how ABBYY’s platform identifies process flows, the importance o
 
 ![social distancing](https://static1.abbyy.com/abbyycommedia/31669/blog-1262271993-848x444.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 COVID-19 is the defining event of 2020, and with it, ”social distancing” entered our vocabulary for modern commerce, recasting interpersonal and business interactions. Now as part of our social consciousness, social distancing is fueling a growing reliance on virtualization and technologically mediated relationships. While the urgency of social distancing is already putting our technology and process readiness to the test, it raises an important question about how people, process, and content interact in this new normal. Social distancing has made the customer experience an imperative, driving digital transformation by replacing human-to-human with app-defined interactions.
 
 [Read the article.](https://www.kmworld.com/Articles/Editorial/ViewPoints/The-need-for-digital-intelligence-in-the-time-of-social-distancing--140797.aspx)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 5\. Six Steps to Revive Your Digital Transformation Projects
 
 ![ideas for improving customer service](https://static1.abbyy.com/abbyycommedia/31624/blog-digital-intelligence-1-848x444.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The pandemic shifted many IT resources toward business continuity efforts, and many workers and leaders reached the point where they were struggling to ramp up or resume digital transformation projects. Organizations looked to tap into the benefits attained from scaling end-to-end digital transformation but needed direction on the right strategies to accelerate higher-value initiatives. The challenges stem from a lack of understanding of business processes coupled with an inability to turn a company’s data into actionable, valuable information that drives strategic business decisions. ABBYY shared six fundamental steps to help implement digital transformation.
 
 [Read the article.](https://www.cmswire.com/leadership/6-steps-to-revive-your-digital-transformation-projects/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 6\. Five Crucial Insurance Questions for the Post-COVID 'New Normal'
 
 ![process improvement in insurance](https://static1.abbyy.com/abbyycommedia/31573/blog-digital-intelligence-cover-848x444.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Only several months into the coronavirus pandemic, it became clear that the crisis had rewritten the rules for customer engagement, business processes, and technology. Insurers understood that the customer experience is critical during the claims process, otherwise they risk customer attrition. While a number of factors play a role in resolving claims, one of the most important drivers of a positive customer experience is an insurer’s operational processes. It’s vital for insurers to evaluate how to become more digitally efficient, how to enhance the customer experience by connecting historically disparate processes, and ways they can effectively bring critical customer data directly into core operational processes.
 
 We shared five questions to help leaders at insurance companies evaluate if there are opportunities within their organizations to enhance their processes in a manner that impacts operational efficiency, compliance, and the customer experience.
@@ -123,6 +111,12 @@ We shared five questions to help leaders at insurance companies evaluate if ther
 
 [Intelligent Automation](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

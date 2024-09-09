@@ -1,16 +1,34 @@
 ---
 title: "Unraveling the Mystery: How Map Books Connect to Boosting Process Intelligence - Insights From ABBYY"
-date: 2024-09-03T22:46:44.704Z
-updated: 2024-09-04T22:46:44.704Z
+date: 2024-09-08T23:40:20.137Z
+updated: 2024-09-09T23:40:20.137Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/50cbd8d07e0873a4343caac1afaca4ba3bdd492ab0995e73547b18cbc746d1e9.png
 ---
 
+<!-- affiliate ads begin -->
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Unraveling the Mystery: How Map Books Connect to Boosting Process Intelligence - Insights From ABBYY
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## “What the Hell Is a Map Book!?”- and what does it have to do with the rise of Process Intelligence?
 
 ###### Joe Rayfield
@@ -19,6 +37,12 @@ August 08, 2019
 
 ![What is a map book and how is it related to process intelligence? | ABBYY Blog Post](https://static5.abbyy.com/abbyycommedia/25366/10809_smm_blog_what-the-hell-is-a-map-bookblog.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **_Digital technologies are evolving at a furious pace and our business strategies are lagging behind. We need a new approach to processes for the digital age._**
 
 Recently in a discussion with my wife, I attempted to explain why ABBYY acquired TimelinePI – and I somehow ended up telling a long and elaborate story about how I was the best map book reader in my family. I regaled her with my stories of travelling all around the south of England trying to find multiple football (or soccer as my US friends and colleagues call it) grounds with my Dad in our Volvo Estate, continuously getting thwarted by traffic, roadworks, and getting lost through out-of-date map books.
@@ -47,8 +71,26 @@ With the risk of sounding like a scratched record, throw away the “map books�
 
 ![Joseph Rayfield ABBYY](https://static1.abbyy.com/abbyycommedia/25707/josephrayfield-99x99.png)
 
+<!-- affiliate ads begin -->
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Joe Rayfield
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -152,10 +194,3 @@ Connect with us
 <li><a href="https://win-answers.techidaily.com/the-new-world-update-eliminates-persistent-freezing-errors/"><u>The New World Update Eliminates Persistent Freezing Errors</u></a></li>
 <li><a href="https://facebook-video-content.techidaily.com/uniting-networks-sharing-fb-vids-on-whatsapp-chat-for-2024/"><u>Uniting Networks  Sharing FB Vids on WhatsApp Chat for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

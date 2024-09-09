@@ -1,7 +1,7 @@
 ---
 title: "ABBYY FlexiCapture: Innovatives Lösungsangebot Für Die Prüfungsabwicklung Der UZH"
-date: 2024-09-03T22:46:44.787Z
-updated: 2024-09-04T22:46:44.787Z
+date: 2024-09-08T23:40:20.209Z
+updated: 2024-09-09T23:40:20.209Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/faf1cb7ed901297d85ab9d9c8300254ef72ce23f305cb5ba36be85ff8ad3eb26.png
@@ -17,12 +17,24 @@ Education/Research
 
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115913/19272" target="_top" id="2115913">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115913" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115913/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY FlexiCapture unterstützt die Universität Zürich bei der Prüfungskorrektur
 
 [Druckversion des Artikels anzeigen oder herunterladen (PDF 180 kb)](https://static2.abbyy.com/abbyycommedia/5694/abbyy-case-study%5Funiversitaet%5Fzuerich%5Ffc.pdf) 
 
 | ![](https://static1.abbyy.com/abbyycommedia/6046/uzh_logo.jpg) |                                                               |  |
 | -------------------------------------------------------------- | ------------------------------------------------------------- |  |
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 | Name                                                           | UNIVERSITÄT ZÜRICH (UZH)                                      |  |
 | Hauptsitz                                                      | Zürich, Schweiz                                               |  |
 | Branche                                                        | Bildungswesen, Forschung                                      |  |
@@ -48,10 +60,10 @@ Deutliche Zeitersparnis bei der Korrektur von Prüfungsbögen sowie starke Arbei
 **An Universitäten werden jedes Semester zahlreiche schriftliche Prüfungen mit 1.000 und mehr teilnehmenden durchgeführt – entsprechend zeitaufwändig und umfangreich sind manuelle korrekturaufgaben, mit denen Dozierende belastet werden. Ein effizientes Management der Unterlagen wird so schnell zum Prüfstein für die Verwaltung. Die Universität Zürich unterstützt diese Prozesse daher mit [ABBYY Flexicapture](https://tools.techidaily.com/abbyy/products/) zur elektronischen Verarbeitung und entlastet durch die automatisierte Formularauswertung der Prüfungen ihre Mitarbeiter.**
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Herausforderung
 
@@ -62,10 +74,10 @@ Kommt dann noch - wie im Falle der Universität Zürich - ein stetiger Anstieg d
 Aus diesen Gründen hat die Leitung der Universität Zürich bereits vor einigen jahren beschlossen, ein gesamtuniversitäres Projekt zur elektronischen Unterstützung schriftlicher Prüfungen zu lancieren. Im rahmen dieses Projekts sollen die organisatorischen und technischen Voraussetzungen geschaffen werden, um das Management schriftlicher Prüfungen bestmöglich mit elektronischen Mitteln zu unterstützen. Vordringliches Ziel dieses Ansatzes ist es, eine nachhaltige und spürbare entlastung der Dozierenden bei Vorbereitung, Durchführung und korrektur schriftlicher Prüfungen zu schaffen.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Lösung
 
@@ -81,10 +93,10 @@ _Jürgen Petry,_
  _Projektleiter,Universität Zürich_ 
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120862/26400?prodsku=Saturn" target="_top" id="2120862">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120862" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120862/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Ergebnis
 
@@ -101,10 +113,10 @@ Der hohe Funktionsumfang von ABBYY FlexiCapture wurde bereits in der Pilotphase 
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Über ABBYY und Kontaktmöglichkeiten
 
@@ -114,18 +126,6 @@ Der hohe Funktionsumfang von ABBYY FlexiCapture wurde bereits in der Pilotphase 
 
 Teilen 
 
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Sind Sie bereit, mit einem Experten zu sprechen?
 
 Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.

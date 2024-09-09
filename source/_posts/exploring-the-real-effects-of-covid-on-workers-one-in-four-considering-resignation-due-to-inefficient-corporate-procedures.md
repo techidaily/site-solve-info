@@ -1,22 +1,46 @@
 ---
 title: "Exploring the Real Effects of Covid on Workers: One in Four Considering Resignation Due to Inefficient Corporate Procedures"
-date: 2024-09-03T22:46:40.758Z
-updated: 2024-09-04T22:46:40.758Z
+date: 2024-09-08T23:40:16.617Z
+updated: 2024-09-09T23:40:16.617Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a208b6b47f62fc53f6719bf37fb44710d3bca87f00271cab6e02272f4110e26d.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Exploring the Real Effects of Covid on Workers: One in Four Considering Resignation Due to Inefficient Corporate Procedures
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115941/19272" target="_top" id="2115941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115941" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The True Impact of COVID On Employees: 1-In-4 Want to Quit Their Jobs Because of Poor Business Processes
 
 December 02, 2020
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **_COVID-19 Technology Survey by ABBYY shows two-thirds of businesses adopted AI during lockdown_**
 
 Working from home during the pandemic has taken its toll on many workers, with one in four wanting to quit because of poor business processes, according to a new survey. The global COVID-19 Technology and Business Processes Survey discovered nearly half of staff (48%) blamed bad processes for making their job more challenging – with a third saying they waste time.
@@ -42,6 +66,18 @@ As the survey results show, organizations continue to face rising challenges whe
 
 [![ABBYY GLOBAL COVID TECHNOLOGY SURVEY RESULTS](https://static1.abbyy.com/abbyycommedia/30408/abbyy-global-covid-technology-survey_us_1200x628.jpg)](https://www.abbyy.com/media/30408/abbyy-global-covid-technology-survey%5Fus%5F1200x628.jpg "see full version")
 
+<!-- affiliate ads begin -->
+<span id="1982461">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **About ABBYY**
 
 ABBYY empowers organizations to gain a complete understanding of their business processes and the content that fuels them with its [Digital Intelligence](https://tools.techidaily.com/abbyy/products/) platform. ABBYY technologies are used by more than 5,000 companies, including many of the Fortune 500, and is recognized for its leadership in [Intelligent Document Processing](https://tools.techidaily.com/abbyy/products/) (IDP) and [Process Discovery & Mining](https://tools.techidaily.com/abbyy/products/) for driving significant impact where it matters most: customer experience, effectiveness, profitability and competitive advantage. ABBYY is a global company with offices in 14 countries. For more information, visit [www.abbyy.com](https://tools.techidaily.com/abbyy/products/) or visit us on social on [LinkedIn](https://www.linkedin.com/company/abbyy "ABBYY on LinkedIn"), [Twitter](https://twitter.com/ABBYY%5FSoftware "ABBYY on Twitter") and [Facebook](https://www.facebook.com/ABBYYsoft "ABBYY on Facebook").
@@ -114,10 +150,3 @@ Connect with us
 <li><a href="https://solve-info.techidaily.com/revolutionize-your-analytics-capabilities-innovative-solutions-by-cookiebot/"><u>Revolutionize Your Analytics Capabilities – Innovative Solutions by Cookiebot</u></a></li>
 <li><a href="https://screen-sharing-recording.techidaily.com/the-essential-guide-for-swift-ipad-screen-captures/"><u>The Essential Guide for Swift iPad Screen Captures</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,22 +1,40 @@
 ---
 title: "タスクマイニング機能付きのABBYY Timeline 5でネットワーク分析:人間関�er、プロセス、コンテンツ"
-date: 2024-09-03T22:46:44.821Z
-updated: 2024-09-04T22:46:44.821Z
+date: 2024-09-08T23:40:20.241Z
+updated: 2024-09-09T23:40:20.241Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ddbe93c1f383d863e063fbca9f6400fefa603d0725cd39b0f3a07fbfec69fabd.jpeg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115950/19272" target="_top" id="2115950">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115950" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115950/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## タスクマイニング機能付きのABBYY Timeline 5でネットワーク分析:人間関�er、プロセス、コンテンツ
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Timeline 5.0 にタスクマイニング機能が追加され、人、プロセス、コンテンツを結びつけることが可能に
 
 10月13日, 2020
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135476/26400" target="_top" id="2135476">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135476/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _最新バージョンのプラットフォームでは、ユーザーのインタラクションとビジネスプロセスが結びつけられており、360度の視点で業務を考察することが可能になりました。組織はそれを通じてデータに基づいた意思決定ができ、業務遂行能力をアップさせることができます。_
 
 デジタルインテリジェンスで知られる企業ABBYYは今日、Timeline 5.0の発売を発表しました。唯一のエンドツーエンドのプロセスインテリジェンスプラットフォームであるTimeline 5.0では、人、プロセス、コンテンツのインサイトを組み合わせることで、ビジネスオペレーションを360度の視点から可視化しています。新しいタスクマイニング機能と特許出願中のプロセスマイニング技術を活用して、Timelineはデスクトップユーザーの操作データを分析し、システムイベントデータからマイニングしたプロセスの詳細とシームレスにリンクさせています。それにより組織は、業務効率を高め、顧客体験を向上させ、インパクトあるデジタルトランスフォーメーションのイニシアチブを加速させることができるようになります。
@@ -145,10 +163,3 @@ Connect with us
 <li><a href="https://solve-info.techidaily.com/unlocking-marketing-potential-with-predictive-analytics-from-cookiebot-technology/"><u>Unlocking Marketing Potential with Predictive Analytics From Cookiebot Technology</u></a></li>
 <li><a href="https://howto.techidaily.com/vivo-y78t-bootloop-problem-how-to-fix-it-without-data-loss-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Vivo Y78t Bootloop Problem, How to Fix it Without Data Loss | Dr.fone</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

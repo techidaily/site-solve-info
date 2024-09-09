@@ -1,22 +1,40 @@
 ---
 title: "Cookiebot: The Key to Unlocking Next-Level Site Personalization and Insights"
-date: 2024-09-03T22:46:41.354Z
-updated: 2024-09-04T22:46:41.354Z
+date: 2024-09-08T23:40:17.089Z
+updated: 2024-09-09T23:40:17.089Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/cf1ae4b3cdb5debdafe3b02949517a45048f6142dd7f5f842e985181e8a620c0.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120865/26400?prodsku=mercury" target="_top" id="2120865">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120865/26400?prodsku=mercury" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cookiebot: The Key to Unlocking Next-Level Site Personalization and Insights
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Process Intelligence Bolsters RPA Performance
 
 September 30, 2020
 
 ![Process Intelligence Bolsters RPA Performance Cover | ABBYY Blog Post](https://static3.abbyy.com/abbyycommedia/29657/process-intelligence-bolsters-rpa-performance-cover.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115948/19272" target="_top" id="2115948">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115948" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115948/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 “After you deploy a bot, the reality is you want to know if it’s doing what you thought it would. That’s why we think end-users should be focusing on Process Intelligence.” In an exclusive interview with RPA Today, **Scott Opitz, Chief Marketing Officer at ABBYY**, reveals how Process Intelligence is helping drive success in Robotic Process Automation (RPA) initiatives and paving the way for integrated, [end-to-end enterprise automation](https://tools.techidaily.com/abbyy/products/).
 
 In discussing the relationship between task mining and process mining, Opitz notes that “the reality is that we are only at the very beginning of anything that even begins to look like enterprise-level process automation... The analysis of the desktop is, ‘what are the tedious steps in a small portion of a process?’ **The analysis of the overall process is where the big opportunities are to improve your overall operation**."
@@ -27,6 +45,18 @@ Read the full interview to **uncover what truly sets Process Intelligence apart 
 
 [Process Mining](https://tools.techidaily.com/abbyy/products/) [Robotic Process Automation (RPA)](https://www.abbyy.com/blog/robotic-process-automation-rpa/ "Robotic Process Automation (RPA)") 
 
+<!-- affiliate ads begin -->
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -123,10 +153,3 @@ Connect with us
 <li><a href="https://solve-info.techidaily.com/verbessern-sie-die-sicherheit-von-dokumenten-bei-der-eingabe-mit-tangro-hochladen-per-process-security/"><u>Verbessern Sie Die Sicherheit Von Dokumenten Bei Der Eingabe Mit Tangro® - Hochladen per Process Security</u></a></li>
 <li><a href="https://solve-info.techidaily.com/warum-fehlt-es-bei-deutschen-firmen-oftmals-an-einem-verstandnis-fur-rpa-was-zu-misserfolgen-fuhrt-insights-von-abbyy/"><u>Warum Fehlt Es Bei Deutschen Firmen Oftmals an Einem Verständnis Für RPA, Was Zu Misserfolgen Führt – Insights Von ABBYY</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

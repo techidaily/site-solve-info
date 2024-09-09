@@ -1,7 +1,7 @@
 ---
 title: "Enhancing Smartphone Cleanliness: Leveraging ABBYY's BCR Tech & Digital Notetaking Tools"
-date: 2024-09-03T22:46:42.569Z
-updated: 2024-09-04T22:46:42.569Z
+date: 2024-09-08T23:40:18.265Z
+updated: 2024-09-09T23:40:18.265Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735c9f349a630ef1e39c65837d.jpg
@@ -17,8 +17,20 @@ December 12, 2022
 
 ![](https://static1.abbyy.com/abbyycommedia/26767/mobile-monday-74.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Your smartphone is a magnet for germs. Today we’ll show you how to properly clean it from dirt and bacteria. We’ll also show you the automatic address and phone number correction feature in BCR and a superb note-taking app.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Smartphone Tip: Cleaning Your Phone**
 
 You can either clean your phone at home or take it to a repair service. The second option is far easier, but it will be a lot more expensive and time-consuming.To do it yourself, you will need the following:
@@ -45,6 +57,12 @@ Use the toothpick again to clean the charger port and the jack socket. Insert it
 
 ![dust in a smartphone](https://static1.abbyy.com/abbyycommedia/26768/toothpick.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Don’t worry if you do touch the contact points — as long as it’s done gently, there shouldn’t be a problem.
 
 Sometimes, due to the build-up of dirt and dust in the charger port, your phone may begin to have trouble charging, and eventually, stop recharging completely. If you do notice this problem, it may be a good idea to try and clean it yourself instead of going to a phone repair place, where they will often charge you their standard repair rates even if all they have done is clean out the charger port.
@@ -73,12 +91,6 @@ Now polish the screen using a soft cloth and apply the protective covering.
 
 [Last year](https://tools.techidaily.com/abbyy/products/), we showed you how to optimize your phone’s storage. Now, you can keep your mobile device healthy both on the inside _and_ on the outside!
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **ABBYY Tip: Automatic Address and Telephone Number Formatting in Business Card Reader for iOS**
 
 Frequent business travelers will have cards from business partners from all over the world. On some cards, important details like area or postal codes may be missing. [Business Card Reader for iOS](https://bcrfree.app.link/mobilemonday) can easily fill in the missing data. It will even correct spelling mistakes in the address, so you won’t have to do that manually. Poorly printed characters should not be a problem either — a phone number initially captured as something like (495) 123\_4)5\*67 will be quickly restored to +7 495 123 45 67.
@@ -88,25 +100,13 @@ Sometimes, to reach a specific contact in a company, you need to dial an extensi
 ![abbyy business card reader additional number](https://static1.abbyy.com/abbyycommedia/26771/bcr1.png)
 
 <!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="150" height="125" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Download [Business Card Reader for iOS](https://bcrfree.app.link/mobilemonday) to have important contact information at your fingertips.
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
-  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **App of the Week: GoodNotes 5**
 
 GoodNotes 5 is a notepad app on steroids. It can sort files to different folders and save documents to PDF, Word, and PowerPoint. The app also lets you search for a specific word in a document, whether hand-written or printed, on an image or in a heading.
@@ -116,10 +116,10 @@ You can enlarge images, make notes in a small font, use SplitView on your iPad t
 ![goodnotes 5](https://static1.abbyy.com/abbyycommedia/29853/transpiration-process.png) ![notes on a smartphone](https://static1.abbyy.com/abbyycommedia/26772/img_4481.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024351/7443" target="_top" id="2024351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024351/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 The iOS version is available [here.](https://itunes.apple.com/app/goodnotes-5/id1444383602?ls=1&mt=8)
 
@@ -128,16 +128,10 @@ That’s all, folks, see you next time!
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<span id="1983584">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Like, share or repost
 

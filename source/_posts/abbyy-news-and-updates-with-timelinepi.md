@@ -1,22 +1,40 @@
 ---
 title: ABBYY News and Updates with TimelinePI
-date: 2024-09-03T22:46:44.804Z
-updated: 2024-09-04T22:46:44.804Z
+date: 2024-09-08T23:40:20.225Z
+updated: 2024-09-09T23:40:20.225Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c522feb97d3790da90f4e047ee57c321868c402d131fe0f5a053db33ae9c232d.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY News and Updates with TimelinePI
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY acquiert TimelinePI pour renforcer son ancrage sur le secteur de la transformation digitale
 
 05 août 2019
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
   
 [ABBYY](https://tools.techidaily.com/abbyy/products/), le spécialiste de solutions d'intelligence digitale, annonce avoir finalisé l'acquisition de TimelinePI. Basée à Philadelphie (États-Unis), TimelinePI permet aux entreprises de comprendre, de contrôler et d'optimiser leurs processus d’affaires.
 
@@ -146,10 +164,3 @@ Connect with us
 <li><a href="https://driver-install.techidaily.com/upgrading-your-game-mouse-effortless-installation-widow-7-style/"><u>Upgrading Your Game Mouse - Effortless Installation Widow 7 Style</u></a></li>
 <li><a href="https://solve-info.techidaily.com/utilizing-cookiebot-technology-for-enhanced-user-personalization-and-seo-success/"><u>Utilizing Cookiebot Technology for Enhanced User Personalization & SEO Success</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

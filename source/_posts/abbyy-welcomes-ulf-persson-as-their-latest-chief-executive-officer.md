@@ -1,22 +1,40 @@
 ---
 title: ABBYY Welcomes Ulf Persson as Their Latest Chief Executive Officer
-date: 2024-09-03T22:46:42.856Z
-updated: 2024-09-04T22:46:42.856Z
+date: 2024-09-08T23:40:18.539Z
+updated: 2024-09-09T23:40:18.539Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c80fad792e3cb229a3e653969139437b39335328a63ecf71a877586d96fe497a.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135476/26400" target="_top" id="2135476">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135476/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Welcomes Ulf Persson as Their Latest Chief Executive Officer
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY® Group Appoints New CEO
 
 January 19, 2017
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY Group has announced the appointment of [Ulf Persson](https://tools.techidaily.com/abbyy/products/) \- its current Chairman of the Board - as the Group’s new CEO. Ulf Persson will succeed Sergey Andreev, who has been leading the company for the past 17 years.
 
 ABBYY Group has also announced other changes in its top management. ABBYY Founder David Yang will return as Chairman of the Board, a position he previously held. ABBYY Group former Senior VP and CFO Vadim Tereshchenko’s role has been considerably expanded. He will now hold the positions of COO and CFO as well as that of Deputy CEO.
@@ -102,10 +120,3 @@ Connect with us
 <li><a href="https://screen-mirroring-recording.techidaily.com/top-screen-capture-contenders-a-comprehensive-review-for-2024/"><u>Top Screen Capture Contenders  A Comprehensive Review for 2024</u></a></li>
 <li><a href="https://ai-video-apps.techidaily.com/updated-try-filmora-video-editor-and-download-this-powerful-and-intuitive-program-to-help-you-cut-trim-split-your-videos/"><u>Updated Try Filmora Video Editor and Download This Powerful and Intuitive Program to Help You Cut, Trim, Split Your Videos</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

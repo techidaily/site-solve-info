@@ -1,12 +1,18 @@
 ---
 title: "Cookiebot-Driven Insights: Advanced Analytics Powering Your Business Intelligence"
-date: 2024-09-03T22:46:41.270Z
-updated: 2024-09-04T22:46:41.270Z
+date: 2024-09-08T23:40:17.022Z
+updated: 2024-09-09T23:40:17.022Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c9271a8faf33c0a549b22ca0028cd9619d63965df7208919633e76ad2ce6d7e3.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cookiebot-Driven Insights: Advanced Analytics Powering Your Business Intelligence
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -21,6 +27,12 @@ KYC refers to the steps a business, typically a financial institution, takes to 
 
 ![KYC-compliance-process-1](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/kyc-compliance-a-comprehensive-guide/kyc-compliance-process-1.jpg?h=444&w=848)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 In this article, we’ll explain what KYC is, the KYC process, why it’s important, and how you can leverage technology to manage the risk of financial crime and ensure regulatory compliance.
 
 Jump to:
@@ -33,19 +45,19 @@ Jump to:
 [KYC compliance in the digital age](https://tools.techidaily.com/abbyy/products/)  
 [Frequently asked questions](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 
 
 <!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="125" height="125" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## What is KYC compliance?
 
@@ -59,12 +71,6 @@ There are three key components of KYC:
 
 ## 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## KYC compliance laws
 
 The rules around KYC are governed by several national and international laws. Most KYC laws fall under AML regimes. These regimes are based on the recommendations of the Financial Action Task Force (FATF), a pan-government organization formed to fight money laundering, terrorism, and proliferation financing. 
@@ -82,8 +88,26 @@ Some of the other key international KYC laws include:
 * **The Money Laundering Act – 2017 (MLA)** governs the UK, defining customer verification rules for reporting entities.
 * **Proceeds of Crime (Money Laundering) and Terrorist Financing Act (PCMLTFA)** of Canada sets the KYC requirements and rules for reporting entities.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 
 
+<!-- affiliate ads begin -->
+<span id="1982461">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## KYC requirements by industry
 
 KYC compliance laws apply to global businesses across a range of industries, with some industries implementing more stringent rules in recent years. Some of the biggest industries required to comply with KYC are:
@@ -119,15 +143,21 @@ To comply with KYC regulations, insurance companies must verify the identity of 
 
 Under KYC regulations, real estate professionals should perform customer due diligence to prevent money laundering. Real estate businesses in the US must also comply with AML regulations when conducting transactions through financial institutions. FinCEN is authorized to issue Geographic Targeting Orders (GTOs) in high-risk jurisdictions, mandating insurance companies to identify the individuals behind companies or entities used in high-value or cash real estate transactions.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Steps to implementing a compliant KYC process
 
 ![KYC-compliance-process-2](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/kyc-compliance-a-comprehensive-guide/kyc-compliance-process-2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 The KYC process begins with the Customer Identification Program (CIP), where financial institutions gather a customer’s basic identifying information:
 
@@ -166,20 +196,8 @@ Employee training is critical for communicating, controlling, and safeguarding k
 * General information on AML/CFT and KYC regulatory compliance requirements
 * How to identify and report transactions to a regulator or authority
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Implement a robust Customer Identification Program (CIP)
 
 A successful Customer Identification Program (CIP) hinges on thorough risk assessments at both the institutional and individual account level. Global CIP guidelines offer useful directions which should lay the foundation for every CIP policy. However, it’s the responsibility and discretion of each institution to define its own risk levels and internal policies. Like other AML compliance measures, CIPs should be clearly and formally documented to guide all employees and satisfy regulatory requirements.
@@ -192,20 +210,20 @@ To create a CIP that’s robust and tailored to your institution's risk-based ap
 * The size of your institution
 * Your institution’s location and customer diversity across different geographic areas
 
+<!-- affiliate ads begin -->
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 
 
-<!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="150" height="125" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Leverage advanced KYC technology
 
 Financial services institutions face a unique set of challenges. Crimes, such as fraud, terrorist activity, and money laundering, are committed by bypassing banking processes or using suspicious documents, resulting in billions of dollars in fines and legal risks. Although evolving regulations aim to solve these problems, these institutions often find themselves with fractured processes and repetitive due diligence requests, causing further problems, including:
@@ -224,12 +242,6 @@ Financial services institutions face a unique set of challenges. Crimes, such as
 
 [Request a demo](https://tools.techidaily.com/abbyy/products/) to find out how ABBYY Timeline could improve your [KYC compliance](https://tools.techidaily.com/abbyy/products/) process and streamline your business critical processes.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## KYC challenges
 
 While KYC regulations are designed to be clear and robust, there are increasing challenges to implementing them.
@@ -238,12 +250,6 @@ A benefit of the international commitment to preventing financial crime is that 
 
 In addition, with the increasing significance of data privacy, regulators are imposing stricter rules on businesses to safeguard customer data and use KYC information solely for its intended purpose. Balancing due diligence to protect customer data, while fielding the risks of financial crime, can be difficult to balance. Coupling these challenges with the growing digitization of the KYC process, it can be difficult for institutions to keep up with regulations.
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
-  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## KYC compliance in the digital age
 
 Digital transformation across KYC compliance processes has led to the advent of eKYC, where businesses use online processes to verify customer identities and transactions. Financial services companies increasingly use mobile and web-enabled solutions that incorporate on-device technology and biometric authentication (such as facial recognition) to accurately identify customers in the digital environment. 
@@ -256,6 +262,12 @@ Your customers will be able to onboard through their mobile or desktop, helping 
 
 [Request demo](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Frequently asked questions
 
 ##### What documents are typically required for KYC verification?

@@ -1,22 +1,46 @@
 ---
 title: "Cookiebot: Your Gateway to Enhanced Web Analytics and Personalized Marketing"
-date: 2024-09-03T22:46:45.696Z
-updated: 2024-09-04T22:46:45.696Z
+date: 2024-09-08T23:40:21.029Z
+updated: 2024-09-09T23:40:21.029Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5447d4b1d6c26ac1013cfb2d49090f8ec42a2498f1b68640f57bb2af396017e5.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cookiebot: Your Gateway to Enhanced Web Analytics and Personalized Marketing
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Putting Automated Document Processing Into Action
 
 December 21, 2017
 
 ![Kryon Systems AI-based solution of choice is ABBYY FlexiCapture | ABBYY Blog Post](https://static2.abbyy.com/abbyycommedia/25256/8921e_smm_kryonsystems_blog.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 As Artificial Intelligence continues to shape and accelerate the way we handle information and process data, it is also helping innovation-focused companies to use new AI-infused capabilities to improve business outcomes. One example is the Tel Aviv-based Kryon Systems, a global provider of intelligent Robotic Process Automation (RPA) solution. Kryon Systems recently decided to combine AI-powered document automation technology with its RPA solutions to create a single platform for document automation and streamline invoice and purchase order processing.
 
 Kryon Systems AI-based solution of choice is ABBYY FlexiCapture, a top-of-the-line platform for automated processing of unstructured documents. By integrating FlexiCapture into its Leo RPA platform, the company will be able to offer businesses best-in-class RPA services that include the ability to parse unstructured data for invoice and purchase order processing.
@@ -35,6 +59,12 @@ Invoices, which vary by supplier, are automatically read and processed, providin
 
 [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") [Robotic Process Automation (RPA)](https://www.abbyy.com/blog/robotic-process-automation-rpa/ "Robotic Process Automation (RPA)") [Intelligent Document Processing (IDP)](https://www.abbyy.com/blog/intelligent-document-processing-idp/ "Intelligent Document Processing (IDP)") 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -137,10 +167,3 @@ Connect with us
 <li><a href="https://solve-info.techidaily.com/utilizing-cookiebot-technology-for-improved-data-collection-and-analysis/"><u>Utilizing Cookiebot Technology for Improved Data Collection and Analysis</u></a></li>
 <li><a href="https://facebook-video-share.techidaily.com/veil-of-secrecy-hiding-objects-from-digital-eyes-for-2024/"><u>Veil of Secrecy  Hiding Objects From Digital Eyes for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
-  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

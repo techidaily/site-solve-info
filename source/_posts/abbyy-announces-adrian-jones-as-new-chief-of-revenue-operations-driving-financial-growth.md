@@ -1,24 +1,54 @@
 ---
 title: ABBYY Announces Adrian Jones as New Chief of Revenue Operations, Driving Financial Growth
-date: 2024-09-03T22:46:41.060Z
-updated: 2024-09-04T22:46:41.060Z
+date: 2024-09-08T23:40:16.824Z
+updated: 2024-09-09T23:40:16.824Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f0922cdea4398af9eb93c3915c9d932ac3a495368c2166a8e69e3bccbb692700.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Announces Adrian Jones as New Chief of Revenue Operations, Driving Financial Growth
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Adrian Jones wird Chief Revenue Officer bei ABBYY um die aggressive Wachstumsstrategie auf dem Markt für intelligente Prozessautomatisierung voranzutreiben
 
 18\. Januar 2022
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Adrianjones 848X444](https://static2.abbyy.com/abbyycommedia/35091/adrianjones-848x444.jpg) 
 
+<!-- affiliate ads begin -->
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Adrian Jones, mit langjähriger Erfahrung im Bereich der intelligenten Automatisierung und im IT-Vertrieb, wird neuer Chief Revenue Officer (CRO) bei ABBYY. Jones leitete große globale Vertriebsteams bei mehreren marktführenden Unternehmen, darunter Automation Anywhere, Symantec, Oracle und Hewlett Packard. Bei ABBYY wird Jones die globale Go-to-Market-Strategie des Unternehmens mit dem Ziel anführen, das aggressive Umsatzwachstum fortzusetzen. Dabei wird der Schwerpunkt auf dem Markt für intelligente Prozessautomatisierung (IPA) liegen, den IDC in seinem jüngsten [Bericht](https://www.idc.com/getdoc.jsp?containerId=US47469221)1 auf 17,3 Milliarden US-Dollar schätzt.
 
 „Adrians Eintritt in unser Führungsteam ist ein bedeutender Meilenstein für ABBYY und für unser Bestreben, Unternehmen durch das Erzeugen von Mehrwert aus Geschäftsdaten und -prozessen bei der Lösung ihrer größten Herausforderungen zu unterstützen", kommentiert Ulf Persson, Chief Executive Officer bei ABBYY. „Adrians Erfahrung in leitenden Positionen bei einigen der weltweit größten Unternehmen über mehrere Kontinente hinweg und seine tadellose Erfolgsbilanz bei der Umsetzung von umsatzsteigernden Maßnahmen werden umgehend dazu beitragen, dass wir unsere Digital Intelligence-Lösungen schneller auf den Markt bringen."
@@ -31,6 +61,12 @@ Jones ist derzeit als Senior Advisor für das Private-Equity-Unternehmen Warburg
 
 1 IDC, Worldwide Intelligent Process Automation Market Shares, 2020: Solid Growth Across Cloud Segments, Doc # US47469221, June 2021.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Über ABBYY
 
 ABBYY ermöglicht es, mit seiner Digital Intelligence Plattform die gesamten Geschäftsprozesse und Informationen, die ein Unternehmen antreiben, zu analysieren und im Detail zu verstehen. ABBYY-Technologien werden von mehr als 5.000 Unternehmen weltweit eingesetzt, darunter viele Fortune-500-Unternehmen. Die als führend ausgezeichneten Lösungen im Bereich[Intelligent Document Processing (IDP)](https://tools.techidaily.com/abbyy/products/) und [Process Discovery & Mining](https://tools.techidaily.com/abbyy/products/) steigern Effizienz, Rentabilität und Wettbewerbsfähigkeit eines Unternehmens und verbessern das Kundenerlebnis nachhaltig. ABBYY ist ein globales Unternehmen mit Niederlassungen in 14 Ländern. Weitere Informationen finden Sie unter <https://www.abbyy.com/de>.
@@ -38,27 +74,21 @@ ABBYY ermöglicht es, mit seiner Digital Intelligence Plattform die gesamten Ges
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber.
 
 <!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="150" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Pressekontakt:
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
-  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Bianca Stupp
 
 _ABBYY_

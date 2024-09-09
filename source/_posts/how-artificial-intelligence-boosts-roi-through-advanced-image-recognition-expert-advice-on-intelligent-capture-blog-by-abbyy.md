@@ -1,7 +1,7 @@
 ---
 title: How Artificial Intelligence Boosts ROI Through Advanced Image Recognition - Expert Advice on Intelligent Capture | Blog by ABBYY
-date: 2024-09-03T22:46:45.336Z
-updated: 2024-09-04T22:46:45.336Z
+date: 2024-09-08T23:40:20.689Z
+updated: 2024-09-09T23:40:20.689Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8398659134dc24374c71d0ed649ae9e802ceefac033bb56636ce9acb89582f53.jpg
@@ -11,12 +11,30 @@ thumbnail: https://thmb.techidaily.com/8398659134dc24374c71d0ed649ae9e802ceefac0
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## AI with ROI: Why businesses should care about intelligent capture
 
 March 22, 2018
 
 ![AI with ROI: Why businesses should care about intelligent capture | ABBYY Blog Post](https://static4.abbyy.com/abbyycommedia/25268/9077e_blog_why-every-business-should-care-about-intelligent-captureblog.png) 
 
+<!-- affiliate ads begin -->
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The current wave of innovations brought about by Artificial Intelligence (AI) is automating business processes and improving efficiencies. This means that all forward-looking businesses should be analyzing the value they stand to gain from AI adoption. Artificial intelligence (AI) will contribute as much as $15.7 trillion to the global economy by 2030, according to a [research](https://www.pwc.com/gx/en/issues/analytics/assets/pwc-ai-analysis-sizing-the-prize-report.pdf) by PwC. That enormous value creation comes from productivity gains resulting from automating business processes and augmenting the existing labor force, as well as increased demand for higher quality and more personalized AI-based products.
 
 Despite the - potential benefits from AI adoption, many organizations have been reluctant to make investments in AI because they have difficulty tracking true ROI on such investments. AI requires a fundamental shift in how organization collects, processes and leverages its data for intelligent automation. This calls for update of IT infrastructure and internal processes, changes people’s roles in the organizations, while the positive results of these changes may not be visible in the short term. This makes such changes risky and delays the return on the investments.
@@ -25,25 +43,31 @@ However, it is not always the case. Intelligent Capture is a good example of AI 
 
 Modern intelligent capture lies at the core of AI transformation since it creates a new way of collecting data. It can read, understand and extract information and insight from any unstructured data source, with a level of accuracy good enough to tackle high-volume, repeatable processes like accounts payable or sales order processing.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Accelerating Business Processes
 
 What is so special about intelligent capture technology is that organizations use different types of unstructured data - documents, images, emails or web content - and can therefore benefit from the intelligent capture. What makes it even more important is that capture technology not only provides data for processing ongoing transactions, it is also a source of training datasets for machine learning algorithms. This smart platform help to automate business processes and leverage AI to practice and “learn” allowing companies to focus more on their strategic goals and ultimately on improving their bottom line.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Effective and Efficient Data Processing
 
 AI requires training while training requires labelled datasets. If, for example, an organization wants to train AI to control and manage expenses, it needs to ensure that expenses are properly recorded and data from all incoming invoices and receipts is processed accurately and timely. This is exactly what intelligent capture does— capture data with accuracy and precision, which could be used for training of AI systems. Modern intelligent capture technology extracts data from billions of forms, financial documents, medical records, IDs and other sources in thousands of organizations. Efficiency of this transactional data extraction is proven by strong ROI coming from early payment discounts, no late fees, and higher customers’ satisfaction.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
-  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Increasing the Value of Data
 
@@ -52,16 +76,10 @@ For today’s businesses, structured data is the new currency with a value and a
 [Enterprise](https://tools.techidaily.com/abbyy/products/) [Intelligent Document Processing (IDP)](https://www.abbyy.com/blog/intelligent-document-processing-idp/ "Intelligent Document Processing (IDP)") [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") [OCR](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="125" height="125" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Like, share or repost
 

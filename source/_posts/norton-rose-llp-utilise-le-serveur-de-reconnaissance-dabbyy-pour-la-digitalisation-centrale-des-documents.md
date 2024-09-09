@@ -1,7 +1,7 @@
 ---
 title: Norton Rose LLP Utilise Le Serveur De Reconnaissance D'ABBYY Pour La Digitalisation Centrale Des Documents
-date: 2024-09-03T22:46:45.453Z
-updated: 2024-09-04T22:46:45.453Z
+date: 2024-09-08T23:40:20.807Z
+updated: 2024-09-09T23:40:20.807Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a7c2cae58c74793489ce0f31c71cf2fc559db86f47849200c699a169a5f76d3f.png
@@ -13,6 +13,12 @@ thumbnail: https://thmb.techidaily.com/a7c2cae58c74793489ce0f31c71cf2fc559db86f4
 
 Legal | Digital Archiving
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114265/17093" target="_top" id="2114265">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114265" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114265/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Le géant et cabinet juridique Norton Rose LLP centralise la dématérialisation de ses documents avec ABBYY
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/fr/70588.png?h=40&iar=0&w=120)
@@ -25,10 +31,28 @@ Juridique | Archivage numérique
 
 ![](https://static1.abbyy.com/abbyycommedia/14891/cs-norton-556x303.jpg) 
 
+<!-- affiliate ads begin -->
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Aperçu du client
 
 ![Norton Rose LLP](https://static4.abbyy.com/abbyycommedia/14698/nortonrose_logo.gif) 
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 | Prénom         | Norton Rose LLP                                                     |
 | -------------- | ------------------------------------------------------------------- |
 | Sièges sociaux | London, UK                                                          |
@@ -83,10 +107,22 @@ ABBYY Recognition Server permet aujourd’hui à Norton rose LLP d’accroître 
 
 [![ABBYY Recognition Server est maintenant nommé FineReader Server](https://static4.abbyy.com/abbyycommedia/20638/11-frs-casepreview.jpg)](https://tools.techidaily.com/abbyy/products/) ") [ABBYY Recognition Server (maintenant FineReader Server)](https://tools.techidaily.com/abbyy/products/) ") 
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [En savoir plus](https://tools.techidaily.com/abbyy/products/) ") 
 
 [![12-legal](https://static2.abbyy.com/abbyycommedia/14362/12-legal.jpg)](https://tools.techidaily.com/abbyy/products/) [Secteur juridique](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123468/16836" target="_top" id="2123468">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123468" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123468/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [En savoir plus](https://tools.techidaily.com/abbyy/products/) 
 
 [![cs-norton-360x162](https://static5.abbyy.com/abbyycommedia/14890/cs-norton-360x162.jpg)](https://static4.abbyy.com/abbyycommedia/17758/cas-client-norton-rose-fr.pdf "version PDF") [version PDF](https://static4.abbyy.com/abbyycommedia/17758/cas-client-norton-rose-fr.pdf "version PDF") 
@@ -102,10 +138,10 @@ Partager  True ?  : ""
 [Tous les sièges d’ABBYY](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Prêt à parler à un expert ?
 

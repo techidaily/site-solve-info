@@ -1,12 +1,18 @@
 ---
 title: "ABBYY Welcomes Paul Nizov as Their Latest Appointment: Chief Information Security Officer"
-date: 2024-09-03T22:46:41.132Z
-updated: 2024-09-04T22:46:41.132Z
+date: 2024-09-08T23:40:16.891Z
+updated: 2024-09-09T23:40:16.891Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/66ccde26d86877f06eba74ce71d6ed3e3e1b37f9fff9b02e8a19618a5ac1ec1e.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Welcomes Paul Nizov as Their Latest Appointment: Chief Information Security Officer
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
@@ -17,8 +23,26 @@ April 20, 2021
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<span id="1982499">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![News Noimage](https://static1.abbyy.com/abbyycommedia/33654/news-noimage.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY, a Digital Intelligence company, today announced Paul Nizov has joined the company’s leadership team as Chief Information Security Officer. In this newly established role, Paul will advocate the importance and impact of security among the company’s leadership team; manage security risk; and oversee the strategic, operational, and budgetary aspects of secure software development, data privacy, and information protection.
 
 The CISO role is of paramount importance for technology organizations, and we’re excited Paul has joined ABBYY to continue to drive the highest standards of security for SaaS and on-premise deployments of our rapidly growing Digital Intelligence solutions. The addition of Paul to our team reflects our commitment to provide customers and partners with products and solutions designed, deployed, and delivered with state-of-the-art security practices in mind. Information security and data privacy are non-negotiables.
@@ -35,6 +59,12 @@ Paul has built and managed information and cyber security programs in sectors su
 
 Paul holds a Juris Doctor from the SMU Dedman School of Law, a Bachelor of Science in Electrical Engineering from the University of Texas at Dallas, and the following information security certifications: CISSP and CISM. Paul is also a U.S. military veteran, having served in the U.S. Navy as a Nuclear Submarine Officer. As part of his military service, Paul graduated from Naval Nuclear Power School in Charleston, South Carolina, and Naval Nuclear Prototype in Ballston Spa, New York.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115935/19272" target="_top" id="2115935">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115935" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115935/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### About ABBYY
 
 ABBYY empowers organizations to gain a complete understanding of their business processes and the content that fuels them with its [Digital Intelligence](https://tools.techidaily.com/abbyy/products/) platform. ABBYY technologies are used by more than 5,000 companies, including many of the Fortune 500, and is recognized for its leadership in [Intelligent Document Processing](https://tools.techidaily.com/abbyy/products/) (IDP) and [Process Discovery & Mining](https://tools.techidaily.com/abbyy/products/) for driving significant impact where it matters most: customer experience, effectiveness, profitability, and competitive advantage. ABBYY is a global company with offices in 14 countries. For more information, visit [www.abbyy.com/company/about-us/](https://tools.techidaily.com/abbyy/products/).[](https://tools.techidaily.com/abbyy/products/)
@@ -42,26 +72,20 @@ ABBYY empowers organizations to gain a complete understanding of their business 
 ABBYY and the ABBYY Logo are either registered trademarks or trademarks of ABBYY Software Ltd. Other product names mentioned herein may be trademarks and/or registered trademarks of their respective owners and are hereby recognized.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### ABBYY Editorial Contact
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### Gina Ray, APR
 

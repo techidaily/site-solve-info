@@ -1,24 +1,48 @@
 ---
 title: ジェームズ・ライター氏がABBYYの新しいCFOとして昇格
-date: 2024-09-03T22:46:43.794Z
-updated: 2024-09-04T22:46:43.794Z
+date: 2024-09-08T23:40:19.341Z
+updated: 2024-09-09T23:40:19.341Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b00431bdf0c9ec5881d711d0e.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115948/19272" target="_top" id="2115948">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115948" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115948/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ジェームズ・ライター氏がABBYYの新しいCFOとして昇格
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY社、James Ritterが最高財務責任者（CFO）に就任
 
 2月9日, 2022
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![James Ritter](https://static1.abbyy.com/abbyycommedia/35217/james-ritter.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ドキュメントデータとビジネスプロセスを完全に理解することで真のデジタルトランスフォーメーション（DX）を実現するABBYY社（本社：米国ノースカロライナ州、日本法人ABBYYジャパン株式会社、本社：神奈川県横浜市、代表取締役：小原洋）は、財務成長戦略の一環としてJames Ritter（ジェームズ・リッター）を最高財務責任者（CFO）に任命しました。James Ritterは、国際サービスとソフトウェア会社に20年以上の経験を持ち、会計、財務統制、収益認識、財務管理、業務改善、戦略開発に実績を誇ります。高成長ソフトウェアに関する経験と、Ernst & Young、PricewaterhouseCoopersで得た知見を生かし、ABBYYの成長をサポートするとともに、市場をリードするABBYYのインテリジェントオートメーションソリューションへの投資を継続する予定です。
 
 ABBYY社の最高経営責任者（CEO）を務めるUlf Persson（ウルフ・パーソン）は次のように述べています。「ABBYYにとって非常に重要な時期にJames Ritterを最高財務責任者（CFO）に迎えることをうれしく思います。成長戦略の推進に大きく貢献してくれると期待します。ABBYYは常に成長と収益性を両立させており、お客様に最高のサービスを提供している際には持続可能なビジネスモデルに力を入れています。彼は、成長を重視した経営と堅調な財務に必要な知識、経験、情熱を備え、すでに経営陣にとってすばらしい人材であることを実証しています。彼と私たちの今後に期待しています」
@@ -27,6 +51,12 @@ ABBYY社の最高財務責任者（CFO）に就任したJames Ritterは次のよ
 
 Ritterは、WPP、Ferrovial、BigCommerceなど複数の世界企業で上級管理職を務めてきました。2021年6月に財務担当バイスプレジデントとしてABBYYに入社する前は、国際的な企業向けソフトウェア会社であるAccruentのVPコントローラーでした。ローワン大学で会計学士号を取得し、公認会計士の資格を持つとともに、現在はボストン大学のクエストロムビジネススクールのMBA課程で学んでおり、テキサス州在住です。
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120864/26400?prodsku=Mercury" target="_top" id="2120864">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120864/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### ABBYYについて
 
 1989年創業のABBYYはあらゆる組織に真のデジタルトランスフォーメーション（DX）を実現するリーディングカンパニーとして、ドキュメントデータとビジネスプロセスの完全な理解を可能にするインテリジェントなビジネス製品を提供しています。金融、保険、輸送、製造、その他業界の企業が名を連ねるFortune 500の企業の多くを含む5,000以上の企業で使用されており、インテリジェント ドキュメント プロセッシング（IDP）およびプロセス ディスカバリー & マイニングの分野でのリーダーシップにより、ユーザーエクスペリエンス、効果、収益性、競争上の優位性など、最も重要な点に大きな影響を与えています。ABBYYは世界14カ国にオフィスを構えてグローバルに活動しています。詳細については <https://www.abbyy.com/ja>/ をご覧ください。
@@ -34,10 +64,10 @@ Ritterは、WPP、Ferrovial、BigCommerceなど複数の世界企業で上級管
 ABBYYとABBYYのロゴは、ABBYY Software Ltd.の登録商標または商標です。本記事に記載されているその他の製品名は、各所有者の商標または登録商標の場合があります。
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 報道関係者お問い合わせ先
 

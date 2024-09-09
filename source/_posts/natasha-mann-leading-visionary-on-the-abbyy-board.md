@@ -1,24 +1,54 @@
 ---
 title: Natasha Mann - Leading Visionary on the ABBYY Board
-date: 2024-09-03T22:46:45.798Z
-updated: 2024-09-04T22:46:45.798Z
+date: 2024-09-08T23:40:21.121Z
+updated: 2024-09-09T23:40:21.121Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/bb9708a331c4c3dd31e799c079bb73652a9e75d1a08dd178d051b1af275cc7e6.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Natasha Mann - Leading Visionary on the ABBYY Board
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Natasha Mann
 
 Board of Director
 
 ![743x418_Natasha_Mann](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/management/headshots/cards-headshots/743x418_natasha_mann.jpg?h=418&iar=0&w=743)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Natasha Mann serves as a Board of Director at ABBYY where she works with the CEO and executive management team to accelerate ABBYY’s market leadership as an intelligent automation solutions provider and drive the company’s growth strategy globally.
 
 Natasha is a Principal at Marlin Equity Partners where her primary responsibilities include deal qualification, conducting due diligence, transaction execution and support and portfolio monitoring. Prior to joining Marlin, she worked at TSG Consumer Partners and TPG Growth where she specialized in leveraged buyouts and growth equity investments across the consumer, technology and telecom sectors. Previously, Natasha worked at Deutsche Bank in the Technology, Media & Telecom Group where she focused on mergers and acquisitions, debt and equity financings, and other strategic advisory initiatives. Natasha earned a B.S. in Business Administration with concentration in Finance, Accounting, and Business Economics and Public Policy from the Kelley School of Business at Indiana University.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Ready to speak with an expert?
 
 [Schedule a demo](https://tools.techidaily.com/abbyy/products/)[Get in touch](https://tools.techidaily.com/abbyy/products/)
@@ -87,10 +117,3 @@ Natasha is a Principal at Marlin Equity Partners where her primary responsibilit
 <li><a href="https://solve-info.techidaily.com/warum-fehlt-es-bei-deutschen-firmen-oftmals-an-einem-verstandnis-fur-rpa-was-zu-misserfolgen-fuhrt-insights-von-abbyy/"><u>Warum Fehlt Es Bei Deutschen Firmen Oftmals an Einem Verständnis Für RPA, Was Zu Misserfolgen Führt – Insights Von ABBYY</u></a></li>
 <li><a href="https://solve-info.techidaily.com/abbyycfo/"><u>ジェームズ・ライター氏がABBYYの新しいCFOとして昇格</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030381/7443" target="_top" id="2030381">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030381" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030381/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

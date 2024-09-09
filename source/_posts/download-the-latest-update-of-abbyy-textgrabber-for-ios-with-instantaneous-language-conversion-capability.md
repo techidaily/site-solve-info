@@ -1,22 +1,40 @@
 ---
 title: Download the Latest Update of ABBYY TextGrabber for iOS with Instantaneous Language Conversion Capability!
-date: 2024-09-03T22:46:45.079Z
-updated: 2024-09-04T22:46:45.079Z
+date: 2024-09-08T23:40:20.469Z
+updated: 2024-09-09T23:40:20.469Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/622d9fe73f7f1e73d5569e41ea521313a670d1c14e23661bf478ad1eace74e43.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Download the Latest Update of ABBYY TextGrabber for iOS with Instantaneous Language Conversion Capability!
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115935/19272" target="_top" id="2115935">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115935" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115935/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Now Free to Download, ABBYY TextGrabber for iOS Introduces Real-Time Translation Feature
 
 June 07, 2018
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY®, a global provider of content intelligence solutions and services, today announced a major update to TextGrabber for iOS. The application now translates text in real time online and offline and is free to download with a premium subscription for a number of features.
 
 The revamped TextGrabber instantly captures text in 61 languages and translates it in real time to 104 languages online and 10 languages offline. The app allows users to translate text of any color on any background directly on the camera preview screen eliminating the need to take a photo or crop it. In contrast to other translation apps, it does not require users to download languages in order to translate offline.
@@ -120,10 +138,3 @@ Connect with us
 <li><a href="https://solve-info.techidaily.com/unlocking-new-ocr-features-with-abbyy-finereader-engine-update-to-version-12/"><u>Unlocking New OCR Features with ABBYY FineReader Engine Update to Version 12</u></a></li>
 <li><a href="https://solve-info.techidaily.com/abbyy-timeline-5er/"><u>タスクマイニング機能付きのABBYY Timeline 5でネットワーク分析:人間関�er、プロセス、コンテンツ</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030381/7443" target="_top" id="2030381">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030381" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030381/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

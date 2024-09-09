@@ -1,7 +1,7 @@
 ---
 title: "Boost Traffic With Cookiebot: The Ultimate SEO and Marketing Solution for Modern Websites"
-date: 2024-09-03T22:46:40.602Z
-updated: 2024-09-04T22:46:40.602Z
+date: 2024-09-08T23:40:16.464Z
+updated: 2024-09-09T23:40:16.464Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7edef45fd75169561f9bad79743f47061c9d71920f2617de0a787d279dfb1ee7.jpg
@@ -19,6 +19,12 @@ August 18, 2022
 
 ![](https://static3.abbyy.com/abbyycommedia/35911/848x444-professionals-13.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 “An integral part of AI-enabled process automation is implementation of trustworthy AI best practices.”
 
 _Andrew Pery, AI Ethics Evangelist and Digital Transformation Consultant_
@@ -32,21 +38,33 @@ I had the privilege of participating in three roundtable discussions that explor
 * Democratization of AI
 * Three Recommendations to Fully Benefit From the Business Value of AI Technologies
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Digital Trust and Identity Management: Adoptions trends and challenges associated with digital identity
 
 COVID-19 accelerated the trend toward AI-powered chatbots, virtual financial assistants, and touchless customer onboarding, using AI-based biometric identity verification. This trend is confirmed in research by Cap Gemini i, which shows that 78% of consumers surveyed are planning to increase use of AI technologies, including digital identity management, in their interactions with financial services organizations. Biometric identity verification is more secure and removes onboarding friction, as evidenced in a Payments.com survey ii, which revealed that nearly 75% of US consumers “rely on their memory to recall passwords,” and 90% use the same password across many sites.
 
 ![AI in Business - woman on phone](https://static1.abbyy.com/abbyycommedia/33513/customer-experience-new.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 These inherent benefits notwithstanding, the roundtable discussion raised a number of challenges. Chief among them is [continued consumer distrust of AI technologies](https://www.biometricupdate.com/201906/survey-shows-biometrics-not-trusted-or-understood-by-majority-of-consumers) and how their ubiquitous nature impacts privacy and security rights, with 30% of survey respondents indicating that they would be more comfortable sharing their biometric information if their financial service providers provided more transparency in explaining how their information is collected, managed, and secured. Another challenge discussed was the development and adoption of international standards iii for digital identity management and the need for collaboration iv among diverse stakeholders, including regulators. Consumers also need to have better control over their digital identities.
 
 Today, digital identity management is typically a centralized process, which is prone to cyberattacks and to privacy breaches. There is momentum toward a more [decentralized digital identity management](https://venturebeat.com/2022/02/19/decentralized-identity-solutions-could-bring-true-ownership-and-security-to-gaming/) framework that gives consumers more control over their own digital identities without dependence on third-party service providers.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2123470/16836" target="_top" id="2123470">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123470" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123470/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### AI Governance and Regulatory Frameworks: AI governance best practices designed to minimize AI bias and engender consumer trust
 
@@ -55,10 +73,10 @@ While, according to The OECD’s tracker on national AI policies, there are over
 [Learn more about ABBYY's guiding principles for fostering the development, productization, and marketing of trustworthy AI.](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Democratization of AI: How AI is rapidly proliferating from a highly technical domain of data scientists to line of business users
 
@@ -71,10 +89,10 @@ _Sean O'Brien_
 As Sean O’Brien ix, an academic at Yale Law School and the founder of Yale’s Privacy Lab, recently warned: “Low code can be like fast food: delivered quickly and in bright packaging, but bad for you, your community, and your ecosystem.” It is important that while no-code / low-code AI development delivers inherent efficiency improvements and time to value, its implementation must include comprehensive testing to ensure that it performs in accordance with initial design objectives, removes potential bias in the training data set, and is secure from adversarial AI attacks that can undermine AI algorithmic outcomes.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Three recommendations organizations may want to consider to fully benefit from the business value of AI technologies
 
@@ -84,12 +102,6 @@ A data-driven approach assists in determining where the applications of AI techn
 
 ![AI in Business - Whiteboard session with a group of people, one standing and four others sitting at table](https://static1.abbyy.com/abbyycommedia/33533/brainstorm-whiteboard-1-new.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### 2\. Combine task mining and process mining 
 
 Second, the combination of task mining and [process mining](https://tools.techidaily.com/abbyy/products/) can further help organizations gain insight to end-to-end process execution by visualizing the flow of work through the process stages and see the delays, bottlenecks, and outliers. Process mining gives line of business facts and figures from real-time event log data to back up their decisions, assess the value of AI automation opportunities, continuously monitor the performance of AI systems, and combine process mining with machine learning and artificial intelligence to achieve highly integrated and fully automated insights to forecast processes in their future state, and take action to ensure positive outcomes.
@@ -126,12 +138,6 @@ ix ["Low Code: Satisfying Meal or Junk Food?" by Pam Baker | Information Week, 2
 
 ![Andrew Pery ABBYY](https://static1.abbyy.com/abbyycommedia/25715/andrewpery-99x99.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Andrew Pery
 
 Digital transformation expert and AI Ethics Evangelist for ABBYY
@@ -140,12 +146,6 @@ Andrew Pery is an AI Ethics Evangelist at intelligent automation company [ABBYY]
 
 Connect with Andrew on [LinkedIn](https://www.linkedin.com/in/andrew-pery-ll-m-cipp-c-cipp-e-3a536726/).
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

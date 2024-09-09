@@ -1,22 +1,46 @@
 ---
 title: "Cookiebot-Enhanced User Experience: Tailored Content & Targeting"
-date: 2024-09-03T22:46:42.241Z
-updated: 2024-09-04T22:46:42.241Z
+date: 2024-09-08T23:40:17.941Z
+updated: 2024-09-09T23:40:17.941Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f06ecdd32f0e95a7a4f703e01e2d64ef66252665cb47e60c44797d0e0a016c7b.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cookiebot-Enhanced User Experience: Tailored Content & Targeting
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Unravelling the mysteries of medical billing with artificial intelligence
 
 May 25, 2017
 
 ![Unravelling the mysteries of medical billing with artificial intelligence | ABBYY Blog Post](https://static5.abbyy.com/abbyycommedia/25196/unravelling-the-mysteries-of-medical-billing-with-artificial-intelligence.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Medical bills are difficult to decipher. In most cases, they contain “test codes” and “CPT codes” which makes spotting an error very difficult. Reviewing medical records is both expensive and time consuming because they are usually provided in an unstructured textual form such as a Word document or PDF. Up to 90 percent of hospital bills contain errors totaling some $750 billion annually, according to a recent study. A person trying to recover funds associated with overcharging requires requesting the relevant patient medical records and having them reviewed by a clinician. Today, [intelligent text recognition](https://tools.techidaily.com/abbyy/products/) and AI can analyze the unstructured textual data contained in medical records, which can be used by clinicians to accurately extract entities, events, and facts. AI technologies also provide capabilities to automatically cross-reference the information contained within the medical records such as CPT Codes, ICD Codes, Drugs, Dosages and Medical Tests.
 
 Read the full article here: [Health IT Outcome](https://www.healthitoutcomes.com/doc/unravelling-the-mysteries-of-medical-billing-with-artificial-intelligence-0001).
@@ -25,6 +49,12 @@ _By David Bayer, Vice President, Compreno Group at ABBYY_
 
 [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Healthcare](https://tools.techidaily.com/abbyy/products/) [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -138,10 +168,3 @@ Connect with us
 <li><a href="https://solve-info.techidaily.com/unlocking-new-ocr-features-with-abbyy-finereader-engine-update-to-version-12/"><u>Unlocking New OCR Features with ABBYY FineReader Engine Update to Version 12</u></a></li>
 <li><a href="https://solve-info.techidaily.com/peak-matrix2024-idp/"><u>アバビイ調査で優勝者を決める：エベレスト・コンソーシアムのPEAK Matrixリーダー指数2024 - IDP</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

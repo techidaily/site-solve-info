@@ -1,22 +1,40 @@
 ---
 title: Warum Fehlt Es Bei Deutschen Firmen Oftmals an Einem Verständnis Für RPA, Was Zu Misserfolgen Führt – Insights Von ABBYY
-date: 2024-09-03T22:46:45.652Z
-updated: 2024-09-04T22:46:45.652Z
+date: 2024-09-08T23:40:20.984Z
+updated: 2024-09-09T23:40:20.984Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3ad0b37de8405ddff0a5f39b812ec8d893ee35987fd8e7537df266174c877eec.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115914/19272" target="_top" id="2115914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115914" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Warum Fehlt Es Bei Deutschen Firmen Oftmals an Einem Verständnis Für RPA, Was Zu Misserfolgen Führt – Insights Von ABBYY
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 61% deutscher Unternehmen nennen fehlendes Prozessverständnis als Grund für RPA-Flops
 
 13\. Mai 2020
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Eine globale Studie von ABBYY zeigt, auf welchem Stand Unternehmen in Sachen RPA und Process Mining im Jahr 2020 sind_
 
 Eine kürzlich durchgeführte globale Studie von ABBYY ergab, dass das Verstehen der Unternehmensprozesse der primäre Erfolgsfaktor für Automatisierungsprojekte in deutschen Unternehmen ist. Im internationalen Vergleich ist zu sehen, dass Deutschland beim Einsatz von innovativen Technologien noch Schlusslicht ist.
@@ -112,10 +130,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-fix-iphone-13-pro-unavailable-issue-with-ease-drfone-by-drfone-ios/"><u>In 2024, How To Fix iPhone 13 Pro Unavailable Issue With Ease | Dr.fone</u></a></li>
 <li><a href="https://ai-topics.techidaily.com/what-is-ai-text-to-video-in-2024/"><u>What Is AI Text to Video, In 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

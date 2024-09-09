@@ -1,50 +1,74 @@
 ---
 title: "Expediting Cross-Border Trade: The Impact of a Five-Minute Clearance Gap at the UK-EU Frontier"
-date: 2024-09-03T22:46:41.592Z
-updated: 2024-09-04T22:46:41.592Z
+date: 2024-09-08T23:40:17.310Z
+updated: 2024-09-09T23:40:17.310Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f4ca93c2e74735632031e3a4405d77d7b0983d4143ac728b22e36df439e2bb35.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Expediting Cross-Border Trade: The Impact of a Five-Minute Clearance Gap at the UK-EU Frontier
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
 CASE STUDY | TRANSPORTATION & LOGSITICS
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115936/19272" target="_top" id="2115936">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115936" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115936/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Five-Minute Clearance Between UK and EU Border Expedites Delivery of Goods
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/customer-stories/white-logos/customstrack_logo_2024_white.png?h=32&iar=0&w=120)
 
+<!-- affiliate ads begin -->
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The administrative burden caused by BREXIT on both sides of the newly re-instated border between the UK and the EU causes headaches for manufacturers. CustomsTrack is a start-up company that uses artificial intelligence to simplify complex import and export processes. It identified potential to significantly simplify and accelerate the process of filing documents with the national customs systems through intelligent automation.
 
 Having in mind the legal nature of customs declarations accuracy is of utmost importance. With ABBYY IDP, we experience 100% accuracy and 99% straight-through processing rate.
 
 Joe Corcoran, Lead Consultant CustomsTrack
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Challenge
 
 * The complexity of customs clearance processes for midsized manufacturers impact cross-border trade.
 * The process is lengthy and cumbersome. Manual keying of data into national customs systems is error-prone, slow, and costly.
 * Delays at customs due to missing or incorrect information is an issue, particularly for manufacturers of FMCG.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024326/7443" target="_top" id="2024326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024326" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024326/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Solution
 
 * ABBYY’s intelligent document processing (IDP) solution extracts data from commercial invoices and packing lists with close to 100 percent accuracy. It sends the data to the CustomsTrack solution to automatically create export and import customs declarations for filing with national customs systems.
 * With the CustomsTrack solution, international enterprises can take control over customs operations, eliminating the need for customs brokerage services, which add cost and complexity to the process.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Value
 
@@ -62,10 +86,16 @@ Joe Corcoran, Lead Consultant CustomsTrack
 ![FC_1](https://content.abbyy.com/-/media/project/abbyy/abbyy/products/flexicapture/fc_1.jpg?h=392&iar=0&w=696)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### ABBYY Solutions for Accounts Payable Automation
 
@@ -73,48 +103,12 @@ Joe Corcoran, Lead Consultant CustomsTrack
 
 ![overview image](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/ap-automation/overview-image.jpg?h=800&iar=0&w=1392)
 
-<!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### PDF Version
 
 [Read the document](https://content.abbyy.com/-/media/Project/Abbyy/Abbyy/Insights/Customer-Stories/PDFs/CustomsTrack-case-study-intelligent-document-processing-en.pdf)
 
 ![laptop mug](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/newsroom/news-images/laptop-mug.jpg?h=836&iar=0&w=1486)
 
-<!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="540" height="960" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="540" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Ready to speak with an expert?
 
 [Contact us](https://tools.techidaily.com/abbyy/products/)

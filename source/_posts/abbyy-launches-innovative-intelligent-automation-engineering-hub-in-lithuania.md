@@ -1,16 +1,34 @@
 ---
 title: ABBYY Launches Innovative Intelligent Automation Engineering Hub in Lithuania
-date: 2024-09-03T22:46:42.838Z
-updated: 2024-09-04T22:46:42.838Z
+date: 2024-09-08T23:40:18.524Z
+updated: 2024-09-09T23:40:18.524Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0c6d2fd1a73159563e57dda315b30eb330741092cc6760e2a82edb3563c1b5c8.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Launches Innovative Intelligent Automation Engineering Hub in Lithuania
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY eröffnet neues Intelligent Automation Engineering Center in Litauen
 
 29\. März 2022
@@ -19,12 +37,24 @@ thumbnail: https://thmb.techidaily.com/0c6d2fd1a73159563e57dda315b30eb330741092c
 
 ![News 15 Businessbuildings](https://static4.abbyy.com/abbyycommedia/33670/news-15-businessbuildings.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115950/19272" target="_top" id="2115950">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115950" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115950/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Das Unternehmen für intelligente Automatisierung ABBYY hat ein neues Büro in Vilnius, der Hauptstadt Litauens, eröffnet, um die Verlegung seiner ukrainischen Mitarbeiter zu unterstützen. Die von der litauischen Niederlassung bereitgestellten technischen Ressourcen umfassen den Kundensupport, Professional Services, das Customer Success Management und Schulungen. Es ergänzt die bereits in anderen Regionen Europas und in den Vereinigten Staaten vorhandenen technischen Ressourcen.
 
 „Mit der Eröffnung eines kundenorientierten Engineering Centers in der pulsierenden, technikbegeisterten Stadt Vilnius erreichen wir zwei Ziele: die Stärkung des Kundensupports für unsere branchenführenden intelligenten Prozessautomatisierungslösungen auf hohem Niveau und die sichere Verlagerung ukrainischer Mitarbeiter nach Litauen", kommentiert Ulf Persson, CEO von ABBYY. „Als wachsendes globales Unternehmen werden wir weiterhin in unsere technische und personelle Infrastruktur investieren, um den größtmöglichen Erfolg für unsere Kunden zu gewährleisten."
 
 Das neue Engineering Center von ABBYY ist die 15\. globale Niederlassung des Unternehmens.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Über ABBYY
 
 ABBYY treibt die intelligente Automatisierung voran. Wir gestalten die Art und Weise, wie Menschen arbeiten neu, indem wir Automatisierungsplattformen mit der Intelligenz ausstatten, die es Unternehmen ermöglicht, ihr Geschäft zu beschleunigen. Unsere Lösungen wandeln Unternehmensdaten in verwertbare Daten um und liefern die Erkenntnisse, die für ein smarteres und schnelleres Arbeiten erforderlich sind.
@@ -36,20 +66,20 @@ ABBYY ist ein globales Unternehmen mit Sitz in den USA und Niederlassungen in 15
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Pressekontakt:
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118304/7443" target="_top" id="2118304">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118304" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118304/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### Bianca Stupp
 

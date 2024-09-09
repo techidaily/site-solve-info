@@ -1,16 +1,28 @@
 ---
 title: Experience Tailored Navigation with Cookiebot Technology
-date: 2024-09-03T22:46:45.744Z
-updated: 2024-09-04T22:46:45.744Z
+date: 2024-09-08T23:40:21.078Z
+updated: 2024-09-09T23:40:21.078Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/bbabbb54d3c500910e24c2679e705faf485aa6e3dec58c98406031448135ca6a.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Experience Tailored Navigation with Cookiebot Technology
 
 [Back to The Intelligent Enterprise](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Welcome to The Intelligent Enterprise 
 
 ######   
@@ -30,6 +42,18 @@ Still, many of the same challenges exist: volatile market conditions, reduced wo
 
 However, there is a noticeable slowing in information technology (IT) decision-making. The haste during the pandemic to bypass standard sales cycles has left many organizations with technical debt and siloed solutions that haven’t made the impact promised. This has caused decision makers to untangle and reassess their automation solutions and be more prudent with future investments.
 
+<!-- affiliate ads begin -->
+<span id="1983588">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How AI Identity Proofing Is Transforming Government Services
 
 eBook
@@ -48,6 +72,12 @@ I encourage you to subscribe to The Intelligent Enterprise and learn about other
 
 ![Ulf Persson 110X110 (2)](https://static4.abbyy.com/abbyycommedia/37001/ulf-persson_110x110-2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Ulf Persson
 
 Chief Executive Officer at ABBYY
@@ -59,10 +89,10 @@ Over the past 20 years, Ulf Persson has been involved as an investor and board m
 Follow Ulf on [LinkedIn](https://www.linkedin.com/in/ulf-persson-10085a79/).
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
-  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Additional Insights:
 
@@ -71,10 +101,16 @@ Follow Ulf on [LinkedIn](https://www.linkedin.com/in/ulf-persson-10085a79/).
 [![Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them](https://static1.abbyy.com/abbyycommedia/37015/onboarding_875247286_848x444.jpg) **Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them** Read more](https://tools.techidaily.com/abbyy/products/) [![How AI Can Help Government Agencies Win at Total Experience (TX)](https://static5.abbyy.com/abbyycommedia/37014/government_1214434168_848x444.jpg) **How AI Can Help Government Agencies Win at Total Experience (TX)** Read more](https://tools.techidaily.com/abbyy/products/) [![Creating an Intelligent Automation Symphony](https://static1.abbyy.com/abbyycommedia/36940/tlp_ia_orchestra_485765348_848x444.jpg) **Creating an Intelligent Automation Symphony** Read more](https://tools.techidaily.com/abbyy/products/) [![Document AI Creating a Safer World](https://static1.abbyy.com/abbyycommedia/37016/saferworld_863497498_848x444.jpg) **Document AI Creating a Safer World** Read more](https://tools.techidaily.com/abbyy/products/) [![Customer Point of View: Approach Automation Step by Step](https://static4.abbyy.com/abbyycommedia/37013/fte_613347676_848x444.jpg) **Customer Point of View: Approach Automation Step by Step** Read more](https://tools.techidaily.com/abbyy/products/) [![The Changing Role of the Finance Leader](https://static5.abbyy.com/abbyycommedia/37012/finance_1134322021_848x444.jpg) **The Changing Role of the Finance Leader** Read more](https://tools.techidaily.com/abbyy/products/) [![Three Ways AI Is Making Employees Happier](https://static2.abbyy.com/abbyycommedia/36944/ai_happier_employees_1160730188_848x444.jpg) **Three Ways AI Is Making Employees Happier** Read more](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424533">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### Subscribe for updates
 

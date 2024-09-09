@@ -1,22 +1,46 @@
 ---
 title: ABBYY's Revolutionary Approach Zur Dokumentenverarbeitung Und Kategorisierung
-date: 2024-09-03T22:46:41.149Z
-updated: 2024-09-04T22:46:41.149Z
+date: 2024-09-08T23:40:16.909Z
+updated: 2024-09-09T23:40:16.909Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7104eb033fbf632865800cb348d315fa27012665cace64350a90155028571e6d.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY's Revolutionary Approach Zur Dokumentenverarbeitung Und Kategorisierung
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY mit neuem Ansatz zur Dokumentenklassifizierung
 
 12\. Januar 2017
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _ABBYY Smart Classifier in Westeuropa verfügbar: Neue sprachbasierte Software unterstützt Unternehmen im Content Management, sortiert unstrukturierte Informationen und macht sie nutzbar_
 
 ABBYY Europe, ein führender Anbieter von Technologien und Lösungen für Dokumentenerkennung, Data Capture und Linguistik gibt heute die Verfügbarkeit von >ABBYY Smart Classifier auf dem europäischen Markt bekannt. Das neue Produkt bietet präzise Dokumentenklassifizierung und unterstützt Unternehmen dabei, unstrukturierte Informationen zu katalogisieren und sie so besser nutzbar zu machen. Basierend auf [Compreno®](https://tools.techidaily.com/abbyy/products/), ABBYYs innovativer Natural Language Processing (NLP) Technologie, kategorisiert Smart Classifier große Dokumentenbestände schnell und zuverlässig basierend auf statistischer und semantischer Inhaltsanalyse. So klassifiziert sind Informationen dann bereit für Suche und Zugriff, automatisches Routing innerhalb der Organisation, intelligente Datenextraktion oder eine fundierte Entscheidungsfindung.  
@@ -148,10 +172,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://solve-info.techidaily.com/peak-matrix2024-idp/"><u>アバビイ調査で優勝者を決める：エベレスト・コンソーシアムのPEAK Matrixリーダー指数2024 - IDP</u></a></li>
 <li><a href="https://solve-info.techidaily.com/abbyy-timeline-5er/"><u>タスクマイニング機能付きのABBYY Timeline 5でネットワーク分析:人間関�er、プロセス、コンテンツ</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

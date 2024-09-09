@@ -1,7 +1,7 @@
 ---
 title: "Launching Intelligent Transit Solutions: Insights From the ABBYY Blog"
-date: 2024-09-03T22:46:45.392Z
-updated: 2024-09-04T22:46:45.392Z
+date: 2024-09-08T23:40:20.743Z
+updated: 2024-09-09T23:40:20.743Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c3e502f20e7efdaa79fe7247c347cba062451d0a182bc95c04756bb4182724ea.jpg
@@ -17,23 +17,47 @@ October 13, 2017
 
 ![Initiating smart transportation| ABBYY Blog Post](https://static2.abbyy.com/abbyycommedia/25246/8778e_blog-a-digital-transformation-is-needed-in-transportationblog.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115930/19272" target="_top" id="2115930">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115930" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115930/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 As digital experiences and trends go mainstream, transportation and logistics companies will need to invest or deepen their investment in relevant technology areas. However, many 3PL vendors continue to deal with manual data entry while everything else in their lives has gone digital. Compounding the challenges are driver shortages, the increase of data from Internet-of-Things (IoT) devices, and the rise of emerging geographic markets with antiquated paper-based systems. Transportation companies cannot delay advancing their digital journeys without losing their business to more transient and volatile competition such as Google’s same-day delivery, Amazon’s drone package delivery, self-driving trucks, and the inevitable Uber for Trucking.
 
 There are four areas where digital initiatives will have an immediate impact.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Leveraging innovative technology to improve customer experience
 
 Customer engagement applications are now an integral part of our daily life and can unlock exponential growth for the transportation industry. When tightly integrated into backend systems of record (SOR) they become strategic tools for enhancing experiences in customer onboarding, trace and tracking, omnichannel invoice validation and processing. By deploying applications for planning routes, tracing schedule or delivering information in real-time, transport companies can improve customer engagement and boost revenue.
 
+<!-- affiliate ads begin -->
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Guide your digital journey
 
 If you have invested in your digital initiatives, you probably expect your ROI in the form of speed of execution and agility to reduce existing business latencies and inefficiencies. However, documents like bills of lading, customs declarations, claims documents, proof of delivery, driver logs, catering and fuel receipts, carrier invoices and expenses still drive and support most 3PL business processes. Drawing on the use of the latest document processing technologies like _Intelligent Capture,_ as well as increasing efficiency through cloud-based solutions, are essential to the success of digitization of transport. Even if a relatively small percentage of logistic data is still locked in paper, it slows down the workflow process. Repetitive and mundane tasks like scanning, tracking and tracing or monitoring shipment schedules, invoicing validation and credit collections can complicate the digital efforts and drive away customers.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Improve Workflow Transparency
 
@@ -42,16 +66,16 @@ Having a digitized and efficient workflow will provide customers transparency in
 However, to have a dynamic workflow, intelligent capture is needed to automate the process of classifying document types. Auto-classification of document types into classes and subclasses delivers a tremendous business value. It reduces the cognitive tasks and burden on workers, thereby minimizing errors and operational labor costs, improving worker satisfaction and accelerating the transaction.
 
 <!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Gain Context from Data
 
@@ -62,10 +86,16 @@ Digital transformation in needed in the transportation industry to evolve your o
 [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Intelligent Document Processing (IDP)](https://www.abbyy.com/blog/intelligent-document-processing-idp/ "Intelligent Document Processing (IDP)") [Transportation & Logistics](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Like, share or repost
 

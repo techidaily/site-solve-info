@@ -1,22 +1,40 @@
 ---
 title: Cookiebot-Enhanced Site Performance and Personalization
-date: 2024-09-03T22:46:43.962Z
-updated: 2024-09-04T22:46:43.962Z
+date: 2024-09-08T23:40:19.506Z
+updated: 2024-09-09T23:40:19.506Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/cfe1e4fd673ca5fb5a36d3dc03d18f188db6311040ef6f07e920236b71a10c10.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123465/16836" target="_top" id="2123465">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123465" border="0" alt="https://techidaily.com" width="80" height="31"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123465/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cookiebot-Enhanced Site Performance and Personalization
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114265/17093" target="_top" id="2114265">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114265" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114265/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY : deux nouvelles nominations au comité exécutif
 
 21 septembre 2020
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Aileen Allkins et Anubhav Saxena, respectivement reconnus pour la réussite de projets de transformation digitale menés chez Microsoft et Automation Anywhere, rejoignent le comité exécutif d’ABBYY dans l’optique d’accompagner la forte croissance de l’entreprise._
 
 ABBYY, le spécialiste de l’intelligence digitale, annonce un renforcement de son comité exécutif. Aileen occupe désormais le poste d’administrateur non exécutif et Anubhav devient membre du conseil consultatif. Ces nominations font suite à celle du vétéran des nouvelles technologies Robert Youngjohns au poste de président de son conseil d'administration. 
@@ -123,10 +141,3 @@ Connect with us
 <li><a href="https://some-guidance.techidaily.com/ultimate-guide-to-the-lg-bp350-visual-experience-for-2024/"><u>Ultimate Guide to the LG BP350 Visual Experience for 2024</u></a></li>
 <li><a href="https://android-unlock.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-motorola-g54-5g-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for Motorola G54 5G Users</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

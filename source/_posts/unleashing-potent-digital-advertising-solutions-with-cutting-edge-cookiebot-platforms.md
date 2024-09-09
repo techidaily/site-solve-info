@@ -1,22 +1,40 @@
 ---
 title: Unleashing Potent Digital Advertising Solutions with Cutting-Edge Cookiebot Platforms
-date: 2024-09-03T22:46:44.688Z
-updated: 2024-09-04T22:46:44.688Z
+date: 2024-09-08T23:40:20.119Z
+updated: 2024-09-09T23:40:20.119Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0f9975c7424be8ab80f0e3edfa04cf204d756fbbde35db8886dbe8cbc049b368.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Unleashing Potent Digital Advertising Solutions with Cutting-Edge Cookiebot Platforms
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Business Card Reader launches cloud-based web client
 
 June 01, 2017
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY®, a leading global provider of technologies and solutions to action information, today announced the launch of the cloud-based web client for ABBYY Business Card Reader available at [abbyybcr.com](http://www.abbyybcr.com/). The new web version gives iOS and Android users access to their digitized contacts on a computer, in addition to a smartphone, tablet and Apple Watch. Due to the cross-platform synchronization, business cards digitized using the mobile app are instantly uploaded to the cloud storage, which is encrypted and protected to guarantee user security and privacy.
 
 The new web app makes working with long contact lists comfortable and efficient – on a larger computer screen, it is much easier to view both sides of each business card, edit contact information, manage groups, add and update notes, send emails, visit partners’ websites or find addresses on maps.
@@ -131,10 +149,3 @@ Connect with us
 <li><a href="https://techidaily.com/what-you-need-to-know-to-improve-your-xiaomi-redmi-note-13-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>What You Need To Know To Improve Your Xiaomi Redmi Note 13 5G Hard Reset | Dr.fone</u></a></li>
 <li><a href="https://howto.techidaily.com/xiaomi-civi-3-not-connecting-to-wi-fi-12-quick-ways-to-fix-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Xiaomi Civi 3 Not Connecting to Wi-Fi? 12 Quick Ways to Fix | Dr.fone</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

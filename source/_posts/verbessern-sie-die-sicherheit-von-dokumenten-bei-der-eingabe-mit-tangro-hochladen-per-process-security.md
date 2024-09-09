@@ -1,22 +1,46 @@
 ---
 title: Verbessern Sie Die Sicherheit Von Dokumenten Bei Der Eingabe Mit Tangro® - Hochladen per Process Security
-date: 2024-09-03T22:46:45.634Z
-updated: 2024-09-04T22:46:45.634Z
+date: 2024-09-08T23:40:20.969Z
+updated: 2024-09-09T23:40:20.969Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/cf1ae4b3cdb5debdafe3b02949517a45048f6142dd7f5f842e985181e8a620c0.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Verbessern Sie Die Sicherheit Von Dokumenten Bei Der Eingabe Mit Tangro® - Hochladen per Process Security
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## tangro® erhöht Prozess-Sicherheit im Dokumenteneingang dank ABBYY
 
 10\. Mai 2016
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY Europe, ein führender Anbieter von Technologien und Lösungen für Dokumentenerkennung, Data Capture und Linguistik, erhöht die Ausfallsicherheit von Lösungen der tangro software components GmbH weiter. Der Hersteller von embedded SAP-Lösungen setzt bei seiner Software zur automatisierten Dokumentenverarbeitung schon lange auf die OCR-Technologie von ABBYY für die Dokumentendigitalisierung und Texterkennung (OCR). Diese ist die Basis für die Datenextraktion und die darauf folgende Verarbeitung in SAP. Dank der neuen Funktion ‚redundanter Netzwerk-Lizenz-Manager‘ im integrierten ABBYY OCR-Toolkit können Applikationen von tangro nun einen durchgängigen, ausfallsicheren Betrieb bei der Texterkennung im Dokumenteneingang sichern. Kunden von tangro gewinnen dadurch eine höhere Prozess- und Investitionssicherheit.
 
 Die tangro software components GmbH ist ausgewiesener Experte für die automatisierte Verarbeitung eingehender Dokumente in SAP. Mit der tangro Inbound Suite bietet der Software-Hersteller eine Komplettlösung für die automatisierte Dokumenteneingangsverarbeitung, die SAP-embedded ist. tangro nutzt seit Jahren das Software Development Kit ABBYY FineReader Engine erfolgreich für die OCR-Komponente in der hauseigenen Lösung für die Belegverarbeitung. Je nach Kundenprojekt werden damit bis zu mehreren Tausend Dokumente pro Tag verarbeitet. Die integrierte ABBYY OCR-Technologie konvertiert Text in eingescannten Dokumenten in weiterverarbeitbare und strukturierte Daten, die dann an die entsprechenden SAP-Workflows übergeben werden. Dieser Arbeitsschritt ist wesentlich für die automatisierte Dokumenteneingangsverarbeitung. Ein Ausfall des Systems würde alle Folgeprozesse beeinträchtigen, zusätzliche Kosten für die Wiederherstellung des Systems verursachen und das Risiko von Datenverlusten erhöhen – vor allem bei hohen Dokumentenvolumen.
@@ -138,10 +162,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://solve-info.techidaily.com/untapped-opportunities-how-british-enterprises-can-harness-automation-advantages-according-to-abbyy-insights/"><u>Untapped Opportunities: How British Enterprises Can Harness Automation Advantages, According to ABBYY Insights</u></a></li>
 <li><a href="https://solve-info.techidaily.com/utilizing-cookiebot-technology-for-enhanced-user-personalization-and-seo-success/"><u>Utilizing Cookiebot Technology for Enhanced User Personalization & SEO Success</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

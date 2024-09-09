@@ -1,16 +1,28 @@
 ---
 title: Photography Tips & Task Management Secrets Revealed on ABBYY Blog
-date: 2024-09-03T22:46:41.777Z
-updated: 2024-09-04T22:46:41.777Z
+date: 2024-09-08T23:40:17.485Z
+updated: 2024-09-09T23:40:17.485Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1b264feb60401b06f1b5b9d369aaa689e44f7f3921972fa9eb3d747a1df53b5a.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Photography Tips & Task Management Secrets Revealed on ABBYY Blog
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120864/26400?prodsku=Mercury" target="_top" id="2120864">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120864/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Promo Codes, Perfect Photos, and Getting Things Done
 
 September 11, 2017
@@ -33,11 +45,29 @@ In most cases, you get a promo code in the form of a link. You just tap it on yo
 2\. Click "Updates", and then - the icon (blue silhouette in a circle) or your photo in the upper right corner.  
 ![Redeem App Store Promo Code iPhone iPad](https://static1.abbyy.com/abbyycommedia/30514/1-angl.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 3\. Sign in with your Apple ID.
 
 4\. Click "Redeem gift card or code".  
 ![Enter your gift card download code iPhone](https://static1.abbyy.com/abbyycommedia/30515/4-angl.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 5\. That’s it! Your app will start downloading immediately.  
 ![ABBYY FineScanner PRO PDF Redeem](https://static1.abbyy.com/abbyycommedia/25937/img_3983-e1505139004792.png)
 
@@ -52,21 +82,21 @@ Here’s how you do it:
 2\. From the same **Account** menu, choose **Redeem...**.  
 ![itunes redeem promo code on computer account](https://static1.abbyy.com/abbyycommedia/25938/macos-itunes12-5-menu-account-redeem-dropdown-e1505139115703.jpg)  
 ![redeem gift card macbook itunes](https://static1.abbyy.com/abbyycommedia/25939/macos-itunes12-5-redeem-code-gift-card-e1505139171775.jpg)
+<!-- affiliate ads begin -->
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 3\. Enter your account password once again, then paste your promo code into the field at the bottom and you’re done.
 
-<!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Android Tip: How to Redeem Your Google Play Promo Code**
 
 The procedure is similar for Android-powered devices. Here again, you are most likely to get a promo link, which can be easily activated with a mere tap on your device. If you all you have is a string of digits and letters, please follow the steps below (there’re also a detailed guide from Google [here](https://support.google.com/googleplay/answer/3422659?hl=en)):
@@ -77,10 +107,10 @@ The procedure is similar for Android-powered devices. Here again, you are most l
 ![reedeem Google Play promo](https://static1.abbyy.com/abbyycommedia/31172/1-1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 3\. Enter your promo code.  
 ![redeem promo code Google Play](https://static1.abbyy.com/abbyycommedia/31173/2.png)
@@ -97,10 +127,16 @@ There’s also an alternative route: you can use the web version of Google Play 
 ![redeem activate promo code android](https://static1.abbyy.com/abbyycommedia/25940/f445d31baebfda3cef1cda1b51f7860f-e1505142714275.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024326/7443" target="_top" id="2024326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024326" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **ABBYY Tip: How to Take Photos Like a Pro**
 
@@ -110,72 +146,72 @@ Unsurprisingly, the quality of OCR is heavily dependent on the quality of docume
 ![abbyy ocr poor lighting](https://static1.abbyy.com/abbyycommedia/25941/4.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="80" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 2\. **Wrong focus point** is another image defect that may make you want to rip your hair out. Why is it that sometimes the camera will focus on any object in sight save the text that you need to capture? Digital cameras use special technology to determine the distance to the subject. To perform reliably, it needs sufficient lighting and high-contrast objects. Besides, it is often fine-tuned for portraits and common indoor and outdoor scenes. If your camera has hard time focusing on the text, give it a helping hand by pointing the lens to some high-contrast (e.g. black and white) area. It’s best to give the camera some time to focus on the text instead of taking a few hasty snapshots in the hope that you can improve their sharpness later.  
 ![fix wrong focus point taking photos](https://static1.abbyy.com/abbyycommedia/31175/5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 3\. **Blur** is caused by camera shake. It is more likely to occur in dark environments, because the camera will keep the shutter open until the sensor gets enough light. Even if you have the steady hands of a neurosurgeon, your heartbeats may transfer to the camera and cause blur. So, if your camera is not equipped with optical image stabilization, shoot like a marksman: hold the camera steady in your hands, hold your breath and softly press the shutter release button. If you need to take lots of pictures in one session, we would advise using a flexible clamp mount. We use one ourselves and can confirm that it does the trick.  
 ![finescanner text analyse blurred photo](https://static1.abbyy.com/abbyycommedia/25942/6.jpg)
 
 4\. **Shadows and glare.** These, too, are also caused by uneven or insufficient lighting. Using the flash may help, but its trickier with small objects like business cards. Hot spots may occur where you least expect them. If your text is printed on glossy paper, position the camera so that you don’t see the direct reflection of the lamp on the document. Light should be evenly distributed over the document. Look out for shadows. Remember that your arms can obstruct the light and cause shadows too. If this is the case, you may want to reposition the camera, move to another room or add an extra light source.  
 ![textgrabber ocr abbyy glare](https://static1.abbyy.com/abbyycommedia/25943/7.jpg)![finescanner text recognition image shadows](https://static1.abbyy.com/abbyycommedia/25944/8.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 5\. **“Difficult” backgrounds.** These can cause some headache. The background is not the subject, but it often attempts to pull the focus to itself. The general rule of thumb is to shoot against uniform backgrounds and have as few other objects in the frame as possible. Avoid white backgrounds, though.  
 ![finescanner text analyse background](https://static1.abbyy.com/abbyycommedia/25945/img_5353-e1505149724965.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 6\. **Poor angle.** If you shoot at an angle, rather than positioning the camera directly above the document, make sure that the angle is not too steep. Otherwise, the image correction algorithms may become helpless. The trapezoid correction mechanism can work wonders, but it’s not omnipotent and won’t be able to restore the document to its normal rectangular self if you shoot it from a prone position.  
 ![finescanner text analyse poor angle](https://static1.abbyy.com/abbyycommedia/25946/9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114263/17093" target="_top" id="2114263">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114263" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114263/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 7\. **Camera problems.** Not all device cameras are created equal. If you plan to use your smartphone as a portable scanner, take a closer look at its camera specs. It should produce a sharp picture across the entire frame, be able to adjust white balance reasonably well, not distort object boundaries, and perform well in different lighting environments. Smartphones tend to be equipped with better cameras than tablets.  
 ![bad quality of photo finescanner](https://static1.abbyy.com/abbyycommedia/25947/10.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 To sum up: uniform non-white backgrounds, even natural lighting and steady hands will give you a picture that’s perfectly suitable for OCR. Modern cameras (and users) are very good, but we hope these tips you will help you move a few steps closer to perfection.
 
 ![TextGrabber FineScanner OCR](https://static1.abbyy.com/abbyycommedia/25948/11.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030373/7443" target="_top" id="2030373">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030373" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030373/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **App of the Week: Keeping Track of Your Tasks with Asana**
 
 ![Asana on mobile](https://static1.abbyy.com/abbyycommedia/31182/12.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 There has never been a shortage of task managing apps, but my app of choice is [Asana](https://asana.com/). It’s the task managing app that I always recommend to my colleagues and that I would like to tell you about today. Here’s what I consider its strong points that make it worthy of your attention:
 
@@ -188,24 +224,12 @@ There has never been a shortage of task managing apps, but my app of choice is [
 
 Actually, Asana is actively evolving towards a project management tool with all the necessary PM features, including teams, discussions, projects, dashboards where you can add and remove project cards, etc. All the features are very well documented in detailed [Asana guides](https://asana.com/guide) (these are all in English, but it shouldn’t be a problem for most users). With all this horsepower under the hood, the app is equally useful as a personal task manager.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **First-Hand Experience:** Advice From a Colleague
 
 _The author of this week’s column is Anna Koltsova, Head of the Mobile Marketing group at ABBYY_
 
 ![ABBYY Advice from colleague Marketing Management](https://static1.abbyy.com/abbyycommedia/25950/img_20170611_160245_1024-2-e1505144205494.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 I’ve spent quite some time managing projects and assigning tasks and one thing I know for certain — the more specific you are when setting a task, the more likely you are to get the result that you’re expecting. This is even truer when you assign a task to a new member of your team, especially if they lack the necessary experience. Better spend an extra five minutes on explaining everything at the outset than losing hours ironing out defects at the final stages. This rule equally applies outside your work environment. When setting a task, be sure to commit the following to paper:
 
 1. What it is exactly that you want done, specified in excruciating detail. As you write things down, numerous finer points pop up that could easily escape your attention in spoken communication. If you already have some good examples of what you want to get, as a result, share them with the person who will be doing the work for you this time (“Good artists copy; great artists steal” **©** Pablo Picasso).
@@ -217,6 +241,12 @@ We hope you find these tips useful. As always, your comments, ideas, and suggest
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

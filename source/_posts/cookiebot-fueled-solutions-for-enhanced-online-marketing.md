@@ -1,7 +1,7 @@
 ---
 title: Cookiebot-Fueled Solutions for Enhanced Online Marketing
-date: 2024-09-03T22:46:45.065Z
-updated: 2024-09-04T22:46:45.065Z
+date: 2024-09-08T23:40:20.455Z
+updated: 2024-09-09T23:40:20.455Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8802195183c08c165ad84f773d4a1ece25e2e1ef5e2831cec1a8db2407d53562.jpg
@@ -17,14 +17,32 @@ BPO and Shared Services | Accounts Payable Automation
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/en/182415.png?h=40&iar=0&w=120)
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Faster, Streamlined, Automated Invoice Processing with Engeneum and ABBYY
 
 BPO and Shared Services | Accounts Payable Automation 
 
 ![Craig International](https://static1.abbyy.com/abbyycommedia/36208/15114-craig-international-556x303.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Customer Overview
 
 ![Craig International](https://static1.abbyy.com/abbyycommedia/36205/craig-international-logo-opengraph.png) 
@@ -39,6 +57,12 @@ BPO and Shared Services | Accounts Payable Automation
 
 ![Engeneum Limited](https://static2.abbyy.com/abbyycommedia/32019/engeneum-logo.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 | Name         | Engeneum Limited                              |
 | ------------ | --------------------------------------------- |
 | Headquarters | The Blade, Abbey Square, Reading, RG1 3BE     |
@@ -90,24 +114,30 @@ Significantly reduced invoice processing errors and improved efficiency in accou
 
 [![Learn more about ABBYY solutions for accounts payable automation](https://static4.abbyy.com/abbyycommedia/14351/1-accounts-payable.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY Solutions for Accounts Payable Automation](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Download the PDF version](https://static1.abbyy.com/abbyycommedia/36209/15114-craig-international-360x162.png)](https://static1.abbyy.com/abbyycommedia/36204/craig-international-shared-services-case-study-en.pdf "PDF Version") [PDF Version](https://static1.abbyy.com/abbyycommedia/36204/craig-international-shared-services-case-study-en.pdf "PDF Version") 
 
+<!-- affiliate ads begin -->
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Read the document](https://static1.abbyy.com/abbyycommedia/36204/craig-international-shared-services-case-study-en.pdf "PDF Version") 
 
-<!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="80" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

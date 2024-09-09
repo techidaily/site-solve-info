@@ -1,22 +1,46 @@
 ---
 title: "Boost Your Site with Automated Personalization: The Cookiebot Advantage"
-date: 2024-09-03T22:46:43.831Z
-updated: 2024-09-04T22:46:43.831Z
+date: 2024-09-08T23:40:19.375Z
+updated: 2024-09-09T23:40:19.375Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/29cfc21c1254cb70322b91195c7081ab1c044155fd0a604dc9fcf1b208976460.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Boost Your Site with Automated Personalization: The Cookiebot Advantage
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY社、世界有数のアナリスト企業NelsonHall社の 「Process Discovery & Mining NEAT Assessment 2021」でリーダーの評価を獲得
 
 12月16日, 2021
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ドキュメントデータとビジネスプロセスを完全に理解することで真のデジタルトランスフォーメーション（DX）を実現するABBYY社（本社：米国ノースカロライナ州、日本法人ABBYYジャパン株式会社、本社：神奈川県横浜市、代表取締役：小原洋）は、世界有数のアナリスト企業であるNelsonHall社の「Process Discovery & Mining NEAT Assessment 2021（2021年のプロセスディスカバリーとプロセスマイニングのNEATベンダー評価）」においてリーダーの評価を獲得したことを発表しました。デジタルオペレーションの変革を専門とするNelsonHall社は、戦略的ソーシングマネージャーが、多様な基準や事業状況でベンダーのパフォーマンスを評価し、プロセスマイニングの具体的な能力、デスクトッププロセス検出、プロセス変革を計画および推進する能力において最も優れたベンダーを見極められるようNEAT評価ツールを作成しています。
 
 ABBYY社のCMOを務めるScott Opitzは、次のように述べています。
@@ -27,6 +51,12 @@ _ABBYY社のCMOを務めるScott Opitzは、次のように述べています_
 
 _![](https://static1.abbyy.com/abbyycommedia/34891/pdm-neat-accelerate-process-change-final.png?width=848&height=848)_
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY社は、将来的な顧客の要件を満たすことができる点と、すぐに利益をもたらす能力の点で比較評価され、業界でトップグループに位置づけられました。主な評価ポイントは、提供する製品の成熟度、提供能力、顧客が得られる利益、顧客とのパートナーシップ、革新を進めるメカニズム、契約期間を通じて顧客のビジネスをどの程度サポートしているのかなどが挙げられています。
 
 「ABBYY社は、ネイティブのプロセスマイニングとタスクマイニングの機能を備え、2つの機能を緊密に統合した非常に希少なプラットフォームを提供しています。ユーザーは360度全方位からの正確なデータ把握によって複数のレベルでビジネスプロセスを理解し、業務変革を計画することができます。ABBYY社がリーダーに位置付けられている理由は、これらの機能と同社の業務変革支援に向けた投資が大きな要因です」
@@ -127,16 +157,3 @@ Connect with us
 <li><a href="https://tech-revival.techidaily.com/the-spectrum-of-ai-innovation-and-associated-risks/"><u>The Spectrum of AI Innovation & Associated Risks</u></a></li>
 <li><a href="https://solve-info.techidaily.com/abbyy-timeline-5er/"><u>タスクマイニング機能付きのABBYY Timeline 5でネットワーク分析:人間関�er、プロセス、コンテンツ</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="540" height="960" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

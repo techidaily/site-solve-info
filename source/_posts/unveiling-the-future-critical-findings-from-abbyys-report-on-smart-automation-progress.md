@@ -1,24 +1,54 @@
 ---
 title: "Unveiling the Future: Critical Findings From ABBYY's Report on Smart Automation Progress"
-date: 2024-09-03T22:46:42.773Z
-updated: 2024-09-04T22:46:42.773Z
+date: 2024-09-08T23:40:18.463Z
+updated: 2024-09-09T23:40:18.463Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a33821f7d1add97134f0556ceb5947dead1c89e2bf8e16eab36445ca53259ede.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Unveiling the Future: Critical Findings From ABBYY's Report on Smart Automation Progress
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115930/19272" target="_top" id="2115930">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115930" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115930/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## AI budgets increased over 80% within enterprises globally, according to the ABBYY State of Intelligent Automation Report
 
 September 20, 2023
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![News Partners31](https://static4.abbyy.com/abbyycommedia/33881/news-partners31.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **_IT leaders report a significant impact to customer value, employees’ well-being, and enterprises’ return on AI investments._**
 
 The economy may have had a downward impact on enterprise investments, but these increased exponentially when implementing AI, according to 82% of IT executives taking part in the latest State of Intelligent Automation Report: Impact of the Economy on AI Priorities, commissioned by ABBYY.
@@ -44,16 +74,16 @@ More details about AI investments, ROI expected and achieved, budget priorities,
 
 ![](https://static1.abbyy.com/abbyycommedia/37805/infographic-economic-challenges-survey-en.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115925/19272" target="_top" id="2115925">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115925" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115925/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Methodology
 
 This research was conducted by Sapio Research in July 2023 on behalf of ABBYY. 1000 IT decision makers from 17 industries including financial services, healthcare, transportation/logistics/supply chain, insurance, retail, government/public sector, and healthcare were surveyed across the US, UK, Germany, and France to understand how the current global economic stagnation is impacting investments in intelligent automation. The survey also looked at what technologies, if any, organizations plan to adopt in the near future.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### About ABBYY
 
 ABBYY puts your information to work. We combine innovation and experience to transform data from business-critical documents into intelligent actionable outcomes in over 200 languages in real time. We enable more than 10,000 companies globally, including many of the Fortune 500, to drive significant impact where it matters most: customer experience, operational excellence, and competitive advantage. ABBYY is a global company with headquarters in Milpitas, CA and offices in 14 countries, and is the [Official Intelligent Automation Partner of Arsenal Women Football Club](https://tools.techidaily.com/abbyy/products/). For more information, visit [www.abbyy.com/company/about-us/](https://tools.techidaily.com/abbyy/products/) and follow us on [LinkedIn](https://www.linkedin.com/company/abbyy), [Twitter](https://twitter.com/ABBYY%5FSoftware) and [Facebook](https://www.facebook.com/ABBYYsoft).
@@ -61,27 +91,15 @@ ABBYY puts your information to work. We combine innovation and experience to tra
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
-  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115943/19272" target="_top" id="2115943">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115943" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115943/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### ABBYY Editorial Contact
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
-<!-- affiliate ads begin -->
-<span id="1983539">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Gina Ray
 
 _ABBYY_

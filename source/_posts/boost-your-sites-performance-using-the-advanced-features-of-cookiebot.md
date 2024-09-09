@@ -1,7 +1,7 @@
 ---
 title: Boost Your Site's Performance Using the Advanced Features of Cookiebot
-date: 2024-09-03T22:46:40.638Z
-updated: 2024-09-04T22:46:40.638Z
+date: 2024-09-08T23:40:16.497Z
+updated: 2024-09-09T23:40:16.497Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5d7817aad095517ef8a3802d67c136a4ed2562ac9acdb56f193b79911b70ed6c.png
@@ -17,6 +17,12 @@ CASE STUDY | TRANSPORT UND LOGISTIK
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/customer-stories/white-logos/dhl.png?h=40&iar=0&w=120)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/customer-stories/content-images/ds-644_deutsche-post-dhl_thumbnail_1486x836.jpg?h=836&iar=0&w=1486)
 
 Die Deutsche Post ist der größte Postdienstleister in Europa und gehört zu DHL Group, dem weltweit führenden Logistikunternehmen. DHL ist auf Wachstum ausgerichtet und treibt die digitale Transformation in allen Bereichen des Unternehmens voran. Die Integration des bestehenden Technologie-Stacks der Deutschen Post mit ABBYY hat die Effizienz gesteigert und Transaktionskosten gesenkt.
@@ -36,10 +42,10 @@ Deutsche Post DHL suchte nach einer Lösung, um:
 * eine Integration mit der Robotic Process Automation (RPA) des Unternehmens umzusetzen
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Lösung
 
@@ -50,10 +56,10 @@ Die Automatisierung der Verarbeitung von Zahlungsavisen mit ABBYY IDP hat die Ef
 Die Deutsche Post war in der Lage, einen Teil des Prozesses zu automatisieren, der noch viel manuelle Arbeit erforderte, um so Mitarbeiter für höherwertige Aufgaben freizusetzen.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115927/19272" target="_top" id="2115927">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115927" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115927/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Ergebnis
 
@@ -68,10 +74,10 @@ Die Deutsche Post war in der Lage, einen Teil des Prozesses zu automatisieren, d
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/products/flexicapture/fc_1.jpg?h=392&iar=0&w=696)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135474/26400" target="_top" id="2135474">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135474" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135474/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### ABBYY Solutions for Accounts Payable Automation
 
@@ -80,10 +86,10 @@ Die Deutsche Post war in der Lage, einen Teil des Prozesses zu automatisieren, d
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/ap-automation/overview-image.jpg?h=800&iar=0&w=1392)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### PDF Version
 
@@ -92,16 +98,16 @@ Die Deutsche Post war in der Lage, einen Teil des Prozesses zu automatisieren, d
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/newsroom/news-images/laptop-mug.jpg?h=836&iar=0&w=1486)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2031472/7443" target="_top" id="2031472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2031472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2031472/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024329/7443" target="_top" id="2024329">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024329" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024329/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Erfahren Sie mehr über ABBYY
 

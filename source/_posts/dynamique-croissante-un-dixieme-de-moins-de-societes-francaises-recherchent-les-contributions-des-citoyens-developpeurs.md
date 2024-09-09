@@ -1,22 +1,40 @@
 ---
 title: "Dynamique Croissante : Un Dixième De Moins De Sociétés Françaises Recherchent Les Contributions Des 'Citoyens Développeurs'"
-date: 2024-09-03T22:46:44.077Z
-updated: 2024-09-04T22:46:44.077Z
+date: 2024-09-08T23:40:19.602Z
+updated: 2024-09-09T23:40:19.602Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7f38f48d6c1e2e7dd4ffc2cf3530de002749e2e66d038be493fc55f20cd91a70.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Dynamique Croissante : Un Dixième De Moins De Sociétés Françaises Recherchent Les Contributions Des 'Citoyens Développeurs'
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Selon ABBYY, moins d’1/3 des entreprises françaises font appel aux « Citizen Developers »
 
 08 juin 2021
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 * _98 % des entreprises ont rencontré des freins importants à leurs projets de transformation digitale. 7 décideurs sur 10 désignent comme cause la pandémie et le télétravail._
 * _1 entreprise sur 5 a complètement abandonné son projet de transformation digitale et 1 sur 5 n'a pas utilisé la technologie comme prévu ou a constaté qu'elle ne fonctionnait pas comme attendu._
 * __Les entreprises françaises s'appuient peu sur le « No / Low Code » dont l’adoption pourrait les aider à prospérer._
@@ -50,6 +68,12 @@ _Tableau : « Quelles technologies utilisez-vous dans le cadre de vos projets de
 
 ![Infographie - Étude sur la transformation digitale | ABBYY](https://static1.abbyy.com/abbyycommedia/33196/infographics-outlook-on-digital-transformation-fr.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115945/19272" target="_top" id="2115945">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115945/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Méthodologie** 
 
 Cette étude dressant l'état des lieux de la transformation digitale des entreprises a été menée par ABBYY en partenariat avec Sapio Research en avril-mai 2021 auprès de 1 220 décideurs informatiques appartenant à des entreprises de plus de 1 000 employés en France, au Royaume-Uni, en Allemagne, aux États-Unis et au Japon.
@@ -124,10 +148,3 @@ Connect with us
 <li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-vegas-or-premiere-choosing-the-best-video-editing-software-for-you/"><u>Updated 2024 Approved Vegas or Premiere? Choosing the Best Video Editing Software for You</u></a></li>
 <li><a href="https://techidaily.com/will-motorola-edge-2023-play-avchd-mts-files-by-aiseesoft-video-converter-play-mts-on-android/"><u>Will Motorola Edge 2023 play AVCHD mts files?</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

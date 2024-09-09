@@ -1,22 +1,52 @@
 ---
 title: Enhance Your Digital Marketing Strategy Using Smart Tracking Technology – Empowered by Cookiebot Solutions
-date: 2024-09-03T22:46:44.263Z
-updated: 2024-09-04T22:46:44.263Z
+date: 2024-09-08T23:40:19.751Z
+updated: 2024-09-09T23:40:19.751Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/521e77f0b3c0772eff4a23cfd11435c9aec9bd0ff071d26df4ceb26b659a82cf.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Enhance Your Digital Marketing Strategy Using Smart Tracking Technology – Empowered by Cookiebot Solutions
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## AI with ROI: Why businesses should care about intelligent capture
 
 March 22, 2018
 
 ![AI with ROI: Why businesses should care about intelligent capture | ABBYY Blog Post](https://static4.abbyy.com/abbyycommedia/25268/9077e_blog_why-every-business-should-care-about-intelligent-captureblog.png) 
 
+<!-- affiliate ads begin -->
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The current wave of innovations brought about by Artificial Intelligence (AI) is automating business processes and improving efficiencies. This means that all forward-looking businesses should be analyzing the value they stand to gain from AI adoption. Artificial intelligence (AI) will contribute as much as $15.7 trillion to the global economy by 2030, according to a [research](https://www.pwc.com/gx/en/issues/analytics/assets/pwc-ai-analysis-sizing-the-prize-report.pdf) by PwC. That enormous value creation comes from productivity gains resulting from automating business processes and augmenting the existing labor force, as well as increased demand for higher quality and more personalized AI-based products.
 
 Despite the - potential benefits from AI adoption, many organizations have been reluctant to make investments in AI because they have difficulty tracking true ROI on such investments. AI requires a fundamental shift in how organization collects, processes and leverages its data for intelligent automation. This calls for update of IT infrastructure and internal processes, changes people’s roles in the organizations, while the positive results of these changes may not be visible in the short term. This makes such changes risky and delays the return on the investments.
@@ -25,31 +55,25 @@ However, it is not always the case. Intelligent Capture is a good example of AI 
 
 Modern intelligent capture lies at the core of AI transformation since it creates a new way of collecting data. It can read, understand and extract information and insight from any unstructured data source, with a level of accuracy good enough to tackle high-volume, repeatable processes like accounts payable or sales order processing.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Accelerating Business Processes
 
 What is so special about intelligent capture technology is that organizations use different types of unstructured data - documents, images, emails or web content - and can therefore benefit from the intelligent capture. What makes it even more important is that capture technology not only provides data for processing ongoing transactions, it is also a source of training datasets for machine learning algorithms. This smart platform help to automate business processes and leverage AI to practice and “learn” allowing companies to focus more on their strategic goals and ultimately on improving their bottom line.
 
-<!-- affiliate ads begin -->
-<span id="1983446">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Effective and Efficient Data Processing
 
 AI requires training while training requires labelled datasets. If, for example, an organization wants to train AI to control and manage expenses, it needs to ensure that expenses are properly recorded and data from all incoming invoices and receipts is processed accurately and timely. This is exactly what intelligent capture does— capture data with accuracy and precision, which could be used for training of AI systems. Modern intelligent capture technology extracts data from billions of forms, financial documents, medical records, IDs and other sources in thousands of organizations. Efficiency of this transactional data extraction is proven by strong ROI coming from early payment discounts, no late fees, and higher customers’ satisfaction.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Increasing the Value of Data
 
@@ -58,10 +82,16 @@ For today’s businesses, structured data is the new currency with a value and a
 [Enterprise](https://tools.techidaily.com/abbyy/products/) [Intelligent Document Processing (IDP)](https://www.abbyy.com/blog/intelligent-document-processing-idp/ "Intelligent Document Processing (IDP)") [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") [OCR](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Like, share or repost
 

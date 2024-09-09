@@ -1,24 +1,60 @@
 ---
 title: "Driven by Cookiebot: Enhancing Your Website's Visitor Tracking"
-date: 2024-09-03T22:46:45.094Z
-updated: 2024-09-04T22:46:45.094Z
+date: 2024-09-08T23:40:20.486Z
+updated: 2024-09-09T23:40:20.486Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c8505bae3e314a2b381005e22ef6317da32419f0b4525c4f54b2150317447813.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Driven by Cookiebot: Enhancing Your Website's Visitor Tracking
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Welcomes Clayton C. Peddy as CISO to Ensure Robust InfoSec and Cybersecurity Efforts in AI
 
 May 21, 2024
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![743x418_Clayton_Peddy](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/management/headshots/cards-headshots/743x418_clayton_peddy.jpg?h=46%25&w=80%25)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [ABBYY](https://tools.techidaily.com/abbyy/products/), the global leader in purpose-built AI for intelligent automation, has appointed Clayton C. Peddy as its Chief Information Security Officer (CISO). As CISO, he will lead the company's infosec initiatives ensuring ABBYY continues to maintain the highest standards of data protection, regulatory compliance, and innovation for its customers. 
 
 Peddy has over two decades of cybersecurity, software development, architecture consulting, and digital transformation and has held security leadership roles at industry-leading organizations such as OutSystems and Citrix. 
@@ -39,6 +75,18 @@ Clayton’s appointment as CISO of ABBYY will accelerate the development and dep
 
 In addition to his professional pursuits, Peddy is a published author and highly regarded speaker in the cybersecurity and technology sectors. He has served as a Computer Science Industry Board Member at California State University, Chico, and actively volunteers with youth.
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### About ABBYY
 
 ABBYY puts your information to work with purpose-built AI. We combine innovation and experience to transform data from business-critical documents into intelligent actionable outcomes in over 200 languages in real time. We are trusted by more than 10,000 companies globally, including many of the Fortune 500, to drive significant impact where it matters most: accelerate the customer experience, operational excellence, and competitive advantage. ABBYY is a global company with headquarters in Milpitas, CA and offices in 12 countries, and is the [Official Intelligent Automation Partner of Arsenal Women Football Club](https://tools.techidaily.com/abbyy/products/). For more information, visit [www.abbyy.com/company/about-us/](https://tools.techidaily.com/abbyy/products/) and follow us on [LinkedIn](https://www.linkedin.com/company/abbyy), [Twitter](https://twitter.com/ABBYY%5FSoftware), [Facebook](https://www.facebook.com/ABBYYsoft) and [Instagram](https://www.instagram.com/abbyyglobal/).
@@ -124,10 +172,3 @@ Connect with us
 <li><a href="https://win-howtos.techidaily.com/step-by-step-solutions-for-when-your-dell-camera-wont-work-with-windows/"><u>Step-by-Step Solutions for When Your Dell Camera Won't Work with Windows</u></a></li>
 <li><a href="https://fake-location.techidaily.com/will-the-ipogo-get-you-banned-and-how-to-solve-it-on-oppo-reno-11-pro-5g-drfone-by-drfone-virtual-android/"><u>Will the iPogo Get You Banned and How to Solve It On Oppo Reno 11 Pro 5G | Dr.fone</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

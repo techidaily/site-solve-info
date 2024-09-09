@@ -1,22 +1,40 @@
 ---
 title: "Comment AbbeyVision Domine Le Marché Avec Son OCR en Faveur Des Connaisseurs Du Monde Du Vin : Découverte Exclusive De ABBYY Actualités"
-date: 2024-09-03T22:46:44.948Z
-updated: 2024-09-04T22:46:44.948Z
+date: 2024-09-08T23:40:20.349Z
+updated: 2024-09-09T23:40:20.349Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/965654acbd64cd762e18be6423e980e53d1c3fa7dd1512b5cfdc18b0e2b93a57.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Comment AbbeyVision Domine Le Marché Avec Son OCR en Faveur Des Connaisseurs Du Monde Du Vin : Découverte Exclusive De ABBYY Actualités
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115908/19272" target="_top" id="2115908">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115908" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115908/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## L’OCR d’ABBYY au service de Vivino, l’appli la plus prisée des amateurs de vin dans le monde
 
 28 janvier 2016
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Évaluations collaboratives et liste des détaillants sont désormais directement à la portée des consommateurs**  
   
 ABBYY, acteur majeur de la reconnaissance de documents, de la capture de données et des technologies linguistiques, annonce aujourd’hui que [Vivino](http://www.vivino.com), l’application mobile des amateurs de vin la plus téléchargée dans le monde\*, a intégré avec succès la technologie de reconnaissance optique de caractères (OCR) d’ABBYY, et afin de permettre l’extraction d’informations à partir de la carte des vins des restaurants. Avant de commander du vin, le client peut utiliser l’appli Vivino pour prendre une photo de l’offre des vins et accéder ainsi instantanément à de précieuses informations qui l’aideront à choisir la bonne bouteille. La technologie OCR d’ABBY intégrée permet d’extraire le texte de la photo, pour avoir accès à la base de données des évaluations et notations de dégustation Vivino, base alimentée par 12 millions d’utilisateurs, ce qui en fait la plus grande source de données œnologiques au monde.\*
@@ -110,10 +128,3 @@ Connect with us
 <li><a href="https://solve-info.techidaily.com/warum-fehlt-es-bei-deutschen-firmen-oftmals-an-einem-verstandnis-fur-rpa-was-zu-misserfolgen-fuhrt-insights-von-abbyy/"><u>Warum Fehlt Es Bei Deutschen Firmen Oftmals an Einem Verständnis Für RPA, Was Zu Misserfolgen Führt – Insights Von ABBYY</u></a></li>
 <li><a href="https://solve-info.techidaily.com/abbyycfo/"><u>ジェームズ・ライター氏がABBYYの新しいCFOとして昇格</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

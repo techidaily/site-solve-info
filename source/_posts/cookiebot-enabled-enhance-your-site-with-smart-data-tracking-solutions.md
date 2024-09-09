@@ -1,16 +1,28 @@
 ---
 title: "Cookiebot-Enabled: Enhance Your Site with Smart Data Tracking Solutions"
-date: 2024-09-03T22:46:40.663Z
-updated: 2024-09-04T22:46:40.663Z
+date: 2024-09-08T23:40:16.515Z
+updated: 2024-09-09T23:40:16.515Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ceeb71131f67470128687850a84b0078790624844b7b52caccd45c8365ecdd85.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121335/18498" target="_top" id="2121335">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121335/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cookiebot-Enabled: Enhance Your Site with Smart Data Tracking Solutions
 
 [Back to The Intelligent Enterprise](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123477/16836" target="_top" id="2123477">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123477" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123477/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Successfully Integrate Computer Vision, Large Language Models, and Intelligent Document Processing
 
 ###### by Marcelo Ribeiro Araújo, Solution Consultant
@@ -35,6 +47,12 @@ White paper
 
 [Learn more](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123480/16836" target="_top" id="2123480">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123480" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123480/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Claims automation: An ABBYY Vantage use case
 
 **The ABBYY Vantage intelligent document processing platform provides easily consumable artificial intelligence-based skills/models to understand documents quickly and easily.** Vantage provides over 150 pre-trained skills (AI models) that can read, understand, and extract information from business documents, helping businesses accelerate hyperautomation.
@@ -154,16 +172,3 @@ Connect with us
 <li><a href="https://solve-info.techidaily.com/unveiling-the-future-critical-findings-from-abbyys-report-on-smart-automation-progress/"><u>Unveiling the Future: Critical Findings From ABBYY's Report on Smart Automation Progress</u></a></li>
 <li><a href="https://solve-info.techidaily.com/utilizing-cookiebot-technology-for-improved-data-collection-and-analysis/"><u>Utilizing Cookiebot Technology for Improved Data Collection and Analysis</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="540" height="960" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

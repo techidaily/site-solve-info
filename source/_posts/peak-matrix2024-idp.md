@@ -1,22 +1,46 @@
 ---
 title: アバビイ調査で優勝者を決める：エベレスト・コンソーシアムのPEAK Matrixリーダー指数2024 - IDP
-date: 2024-09-03T22:46:40.925Z
-updated: 2024-09-04T22:46:40.925Z
+date: 2024-09-08T23:40:16.733Z
+updated: 2024-09-09T23:40:16.733Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ac7b7d7eb1b61e878d4715837135fe97081096b41d9601e6ca5eb36f744ec4b7.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## アバビイ調査で優勝者を決める：エベレスト・コンソーシアムのPEAK Matrixリーダー指数2024 - IDP
 
 レポート 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 6年連続6回目： エベレストグループ、PEAK Matrix®評価でABBYYをインテリジェント文書処理（IDP）製品のリーダーに選出
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115913/19272" target="_top" id="2115913">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115913" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115913/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### ABBYYは、エベレストグループの2024年度PEAK Matrix®評価で再びインテリジェント文書処理（IDP）製品 のリーダーに選ばれました。 
 
 ![PEAK_Matrix_2024_-_Intelligent_Document_Processing__IDP__-_ABBYY](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/resource-center/content-images/peak_matrix_2024_-_intelligent_document_processing__idp__-_abbyy.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 あらゆるインテリジェントオートメーションプラットフォームに統合可能な、業界唯一のローコード/ノーコードIDPプラットフォームであるABBYY Vantageを擁するABBYYは、その卓越したビジョンと能力、さらに市場への影響力が高く評価されています。Vantageは、ABBYY Marketplaceで提供される、ものの数分で使い始めることのできる事前構築済みのAIモデルを使用して、定型および非定型文書を処理する機能を備えています。 
 
 エベレストグループのIDP PEAK Matrix®評価は、AI、コグニティブ機能、生成AIを活用し、ビジネス文書に含まれるデータから最大の価値と意味を抽出する最高のIDPソリューションを見つけるために、世界中の組織から信頼されています。評価におけるリーダーは、特に業界特有のユースケースや文書タイプ用の、事前構築モデルやOOTBパッケージソリューションの拡充など、IDP機能への継続的な投資と革新を特徴としています。 
@@ -28,10 +52,10 @@ ABBYYは、エベレストグループのインテリジェント文書処理（
 _**Vaibhav Bansal, Vice President, Everest Group**_
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
-  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## ABBYYにご関心をお寄せいただき、誠にありがとうございます。 
 

@@ -1,22 +1,46 @@
 ---
 title: Enhanced Conversion Tracking with the Cookiebot Integration
-date: 2024-09-03T22:46:45.154Z
-updated: 2024-09-04T22:46:45.154Z
+date: 2024-09-08T23:40:20.539Z
+updated: 2024-09-09T23:40:20.539Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a6fbcf7b87c69b74abd8f2d894637274c942b2c57ba584189354e0290ce20d66.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Enhanced Conversion Tracking with the Cookiebot Integration
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Vantage Plattform integriert erstmals menschenähnliche Skills in die „Digital Workforce“
 
 2\. April 2019
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Vantage ermöglicht es Geschäftskunden, Ziele der digitalen Transformation zu beschleunigen_
 
 Im Rahmen der diesjährigen Hannover Messe präsentiert ABBYY, ein weltweit führender Anbieter von Lösungen und Services für Content IQ, zum ersten Mal seine neue Unternehmensplattform ABBYY Vantage™. Vantage ist die erste Enterprise-Lösung, die Unternehmen dabei unterstützt, ihre digitale Transformation zu beschleunigen, indem es intelligente Automatisierungsplattformen wie Robotergesteuerte Prozessautomatisierung (RPA) und Business Process Automation (BPA) um neue und erweiterte kognitive Skills ergänzt, damit sie wie menschliche Mitarbeiter funktionieren. Die neue Plattform kann bei Finanzdienstleistern und Versicherungen, Unternehmen in Transport und Logistik, Fertigung und weiteren Branchen eingesetzt werden. Es nehmen bereits mehrere namhafte Unternehmenskunden und Beratungspartner erfolgreich am Early Adopter Programm teil, darunter der Industrie- und Pharmakonzern Merck Sharp & Dohme (MSD), Symphony Ventures, RoboRana, und RPAbox.
@@ -138,10 +162,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://win11-tips.techidaily.com/techniques-for-expunging-windows-search-graphics/"><u>Techniques for Expunging Windows Search Graphics</u></a></li>
 <li><a href="https://unlock-android.techidaily.com/unlock-your-xiaomi-redmi-note-12-proplus-5gs-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>Unlock Your Xiaomi Redmi Note 12 Pro+ 5Gs Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

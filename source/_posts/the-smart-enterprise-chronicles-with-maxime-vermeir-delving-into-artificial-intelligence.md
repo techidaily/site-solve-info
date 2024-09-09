@@ -1,16 +1,28 @@
 ---
 title: The Smart Enterprise Chronicles with Maxime Vermeir – Delving Into Artificial Intelligence
-date: 2024-09-03T22:46:42.742Z
-updated: 2024-09-04T22:46:42.742Z
+date: 2024-09-08T23:40:18.430Z
+updated: 2024-09-09T23:40:18.430Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8802195183c08c165ad84f773d4a1ece25e2e1ef5e2831cec1a8db2407d53562.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The Smart Enterprise Chronicles with Maxime Vermeir – Delving Into Artificial Intelligence
 
 [Back to The Intelligent Enterprise](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Introducing the AI Pulse Podcast
 
 ###### by Max Vermeir, Senior Director of AI Strategy
@@ -29,6 +41,12 @@ This first episode dives into a topic that I believe is still at the peak of the
 
 You can listen to the full episode above, and subscribe to The Intelligent Enterprise so you won’t miss new episodes published monthly here.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How AI-Powered Document Processing Is Changing AP
 
 Blog
@@ -37,6 +55,12 @@ Blog
 
 ![Maxime Vermeir 110X110 (1)](https://static3.abbyy.com/abbyycommedia/37004/maxime-vermeir_110x110-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Maxime Vermeir
 
 Senior Director of AI Strategy
@@ -46,16 +70,10 @@ With a decade of experience in product and technology, Maxime Vermeir is an entr
 Connect with Max on [LinkedIn](https://www.linkedin.com/in/maximevermeir/).
 
 <!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="540" height="960" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2123472/16836" target="_top" id="2123472">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123472" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123472/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Additional Insights:
 
@@ -64,10 +82,16 @@ Connect with Max on [LinkedIn](https://www.linkedin.com/in/maximevermeir/).
 [![Are Large Language Models (LLMs) the Future?](https://static2.abbyy.com/abbyycommedia/37511/are-llms-the-future_848x444.jpg) **Are Large Language Models (LLMs) the Future?** Read more](https://tools.techidaily.com/abbyy/products/) [![Digital Employees the Key to Your Organization’s Digital Transformation](https://static3.abbyy.com/abbyycommedia/38054/ds-191_digital-employees-transformation_848x444.jpg) **Digital Employees the Key to Your Organization’s Digital Transformation** Read more](https://tools.techidaily.com/abbyy/products/) [![Making the Business Case for Investing in AI and Intelligent Automation](https://static2.abbyy.com/abbyycommedia/38051/ds-191_making-the-business-case_848x444.jpg) **Making the Business Case for Investing in AI and Intelligent Automation** Read more](https://www.abbyy.com/intelligent-enterprise/making-the-business-case-for-investing-in-ai-and-intelligent-automation/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### Subscribe for updates
 

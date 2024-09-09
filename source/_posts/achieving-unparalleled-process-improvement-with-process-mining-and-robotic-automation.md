@@ -1,7 +1,7 @@
 ---
 title: Achieving Unparalleled Process Improvement with Process Mining & Robotic Automation
-date: 2024-09-03T22:46:43.814Z
-updated: 2024-09-04T22:46:43.814Z
+date: 2024-09-08T23:40:19.360Z
+updated: 2024-09-09T23:40:19.360Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ddbe93c1f383d863e063fbca9f6400fefa603d0725cd39b0f3a07fbfec69fabd.jpeg
@@ -11,6 +11,12 @@ thumbnail: https://thmb.techidaily.com/ddbe93c1f383d863e063fbca9f6400fefa603d072
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Process mining and RPA: Achieving Process Excellence
 
 ###### Tamas Mahr
@@ -33,19 +39,13 @@ Process mining is leveraged across various industries to model and present proce
 * **Financial services**. Financial services firms use process mining to streamline their interorganizational processes, from onboarding to loan processing. Process models will highlight inefficiencies or bottlenecks in process flows that should be addressed, including handling times and error rates.
 * **Healthcare**. Healthcare organizations manage several, complex in-person and online systems. With process mining, you'll get insight into the day-to-day details of process execution. Healthcare companies can use this data to make improvements such as optimizing patient flow and reallocating appointments, which will improve overall quality of patient care.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 
 
 <!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
-  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## What is RPA?
 
@@ -57,14 +57,14 @@ RPA is valuable across all industries, namely:
 * **Transportation and logistics**. RPA is most often used for routine logistics tasks such as order management, invoice processing and data entry. Employing automation in these areas helps to relieve employees to focus on higher-value tasks.
 * **Insurance**. Similarly to financial services, insurance process flows are rife with data-heavy tasks. RPA is used to automate manual tasks such as form processing, claims processing, and policy administration.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How process mining improves RPA results
 
 Process mining and RPA are both technologies businesses employ to optimize their processes. But they serve different, complementary purposes.
@@ -84,6 +84,18 @@ Overall, process mining improves RPA results by establishing a data-driven found
 
 Process mining, paired with RPA, allows businesses to:
 
+<!-- affiliate ads begin -->
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Monitor and assess automated process performance regularly
 
 An invaluable facet of process mining is the ability to monitor process improvements. You can specify scenarios or conditions that should trigger real-time alerts for process review. This ensures your processes follow ongoing business compliance.
@@ -92,25 +104,31 @@ An invaluable facet of process mining is the ability to monitor process improvem
 
 Process mining provides a comprehensive, end-to-end view of actual process execution, spanning multiple applications. These insights will highlight high-value RPA opportunities, considering all process variations, times and cost implications.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Execute RPA at enterprise scale 
 
 Scaling from tens to hundreds, or thousands, of bots requires significant process control at a business-wide level. Process mining provides the aerial performance view you need to ensure automation is synchronized across every business system it touches.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115935/19272" target="_top" id="2115935">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115935" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115935/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Avoid automation of broken or poorly executed processes
 
 Full process visibility allows teams to identify, analyze and correct process execution issues before investing resources into RPA. You'll have detailed insights to effectively address inefficient tasks, bottlenecks or compliance risks.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
-  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Maintain post-RPA visibility for impacted processes
 
@@ -120,6 +138,12 @@ By employing process mining to monitor your automation’s upstream and downstre
 
 Pairing process mining and RPA helps businesses to accelerate their digital transformation, by spotlighting redundant processes. With a more streamlined operational landscape, you can expand the scope of RPA investments while reducing time to value.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Achieve process excellence by combining process mining and RPA
 
 Accelerate your digital transformation with our end-to-end process intelligence platform, [ABBYY Timeline](https://tools.techidaily.com/abbyy/products/).
@@ -133,10 +157,10 @@ To unlock unparalleled business efficiency and performance, speak to one of our 
 ![](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Tamas Mahr
 

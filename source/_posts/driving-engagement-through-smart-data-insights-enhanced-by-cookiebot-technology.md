@@ -1,16 +1,34 @@
 ---
 title: "Driving Engagement Through Smart Data Insights: Enhanced by Cookiebot Technology"
-date: 2024-09-03T22:46:42.362Z
-updated: 2024-09-04T22:46:42.362Z
+date: 2024-09-08T23:40:18.062Z
+updated: 2024-09-09T23:40:18.062Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e8b3883133d6f512c5920076f733b9da53c8a6ea2a98528d0cbb835531035bed.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Driving Engagement Through Smart Data Insights: Enhanced by Cookiebot Technology
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The New Normal: How Has the Quarantine Changed the Way You Work?
 
 October 01, 2020
@@ -23,75 +41,81 @@ We learned that 82.1% of respondents switched to a remote work setting during th
 
 ![](https://static1.abbyy.com/abbyycommedia/29708/productivity-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115919/19272" target="_top" id="2115919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115919" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115919/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Have you been more productive?
 
 Our survey found that 43% of respondents noted they were more productive working from home than in an office, while 32.6% stated that they hadn’t noticed a difference in their level of productivity, and 21.8% claimed that they were less productive. Some respondents shared that they had mixed feeling about working from home.
 
 ![](https://static1.abbyy.com/abbyycommedia/29709/productivity-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 _“Mixed - more productive some days, less productive other days”_  
 _“I tried to be as productive as in my work office. The difference was in the time. I had more often pause, then I had worked later, out of worktime.”_  
 _“Depends, some things went better, others worse..”_  
 _“Some of each”_ 
 
-<!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="540" height="960" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Have you been more motivated?
 
 As for the motivation while working from home, 36.2% of our users haven’t noticed any changes in their motivation level. Nearly the same, 35.4% felt more motivated while working remotely. And 27% of respondents stated that their motivation level dropped.
 
 ![](https://static1.abbyy.com/abbyycommedia/29710/productivity-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115943/19272" target="_top" id="2115943">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115943" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How long did your typical work day last?
 
 A typical work day during the quarantine mostly lasted 8 – 10 hours (33.8%). Of our respondents, 25.7% worked 6 – 8 hours a day, and 19.6% worked 4 – 6 hours.
 
 ![](https://static1.abbyy.com/abbyycommedia/29711/productivity-4.jpg)  
 Compared to pre-COVID, 43.2% of respondents worked longer hours for personal reasons while staying home, and 27.3% worked shorter hours for personal reasons. Here’s what some respondents shared:
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 _“Longer hours because of dissolution of work boundaries.”_  
 _“Working at home while providing full time care has resulted in extremely long work days to complete my workload.”_  
 _“I will not say I work more or less compared to when things were normal. However, I have noticed that there are lot of time-wasting activities from other colleagues or superiors which rarely comes up when working from home.”_  
 _“Longer hours due to feeling I must perform better under the circumstance of working from home rather than an office building.”_ 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### What is your preferred workplace arrangement when you will be able to return to the office?
 
 Respondents (53%) said that going forward, they would prefer an arrangement that enables flexibility between working from home and working in the office. Many indicated they prefer either splitting their time 50/50 or working mostly from home with some days in the office.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Any advantages?
 
 Participants of the survey pointed out many advantages of remote work. The most popular were:
 
 ![](https://static1.abbyy.com/abbyycommedia/29712/productivity-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
-  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Also, some of our users shared their advantages:
 
 _“Being in the comfort of my home allows me to take a quick break and pet my cats or step outside for fresh air. Having windows open with sounds of nature. No fluorescent lights, no phones ringing, my music as loud as I want. Being able to prep dinner before 5\. Taking a nice walk during my lunch hour. These are a few of my favorite things!”_  
@@ -99,12 +123,6 @@ _“Less ineffective communication.”_
 _“More productive not wasting money on petrol and travel time and parking the car once I get to work”_  
 _“Better food at home. Possibility to have conf calls while doing simple things around the house like watering plants or enjoying the comforts of my home.”_ 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### …Or disadvantages?
 
 ![](https://static1.abbyy.com/abbyycommedia/29713/productivity-6.jpg)What about the disadvantages of remote work? In the survey, 51.4% of respondents stated that there are more distractions at home. The lack of in-person communication with colleagues was a disadvantage for 38.9% of our users, and 29.3% didn’t have a comfortable workstation at home. Here are some less positive thoughts about remote work from our survey participants:
@@ -114,59 +132,59 @@ _“The lack of in-person communication, in general, makes it less fun to work f
 _“I spend longer periods sitting and not moving around every so often.”_  
 _“Workstation not as powerful as in the Office.”_ 
 
+<!-- affiliate ads begin -->
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Work-life balance
 
 The majority of respondents (56%) also noted that working from home has impacted their work-life balance positively. Only 16.3% stated that their work-life balance had been negatively impacted by the lockdown.
 
 ![](https://static1.abbyy.com/abbyycommedia/29714/productivity-7.jpg)  
 While 40.6% of respondents preferred dispersing work and relaxation throughout the day, 24.8% experienced trouble switching from work to relaxation.
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114265/17093" target="_top" id="2114265">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114265" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114265/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Was it more stressful?
 
 The research showed that working remotely helped 43.8% of respondents to cut down on their stress level, and while 34.5% didn’t notice any changes in their stress level, unfortunately, 20.5% of our users felt more stressed while working from home.
 
 ![](https://static1.abbyy.com/abbyycommedia/29715/productivity-8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
-  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### What about your screen time and gadgets usage?
 
 The lockdown made people use their gadgets more, with 65.1% of respondents mentioning that their screen time has increased.
 
 ![](https://static1.abbyy.com/abbyycommedia/29716/productivity-9.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 We also asked our users what are their favorite off-screen ways of relaxation. The most important was, to our surprise, watching TV shows and movies, mentioned by 50.6% of respondents. Here are other activities:
 
 ![](https://static1.abbyy.com/abbyycommedia/29717/productivity-10.jpg)  
 Digital Detox, which is a popular term today, is practiced by 21.9%, and 28.8% try to rest from their gadgets, but sometimes fail.  
-<!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 We also wanted to learn if our users follow any blogs or podcasts on meditation, yoga, mindfulness practice, etc. Only 22.2% of survey participants do. Here are some of the named blogs and podcasts; maybe you’ll find something useful for yourself:
 
 * [Kody Bateman, The world and everything in it](https://kodybateman.com/)

@@ -1,7 +1,7 @@
 ---
 title: "Experienced Dev Leader: Mihajlo Mulic Takes the Helm as Senior Software Pro at ABBYY"
-date: 2024-09-03T22:46:42.589Z
-updated: 2024-09-04T22:46:42.589Z
+date: 2024-09-08T23:40:18.284Z
+updated: 2024-09-09T23:40:18.284Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/150327f2d987016a4ee34ba4bcfca25233b747d0406c31e769e57594f793215f.jpg
@@ -29,6 +29,18 @@ Absolutely! At ABBYY, my role involves wearing many hats. I work on developing n
 
 What I love most is that every day is different, and every problem requires a unique solution. In the long run, this leads to continuous improvement.
 
+<!-- affiliate ads begin -->
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### That's an exciting mix of challenges! What does a typical day look like for you at ABBYY?
 
 ABBYY is all about flexibility in the workplace, so I can organize my day in a way that works the best for me. It allows me to structure my day for maximum productivity both in my work and personal life. Remote working and fewer meetings mean I can be efficient without sacrificing my personal life.
@@ -41,18 +53,42 @@ The added perk is that I can work from different locations, which is a huge bonu
 
 ![Berlin, Germany - Mihajlo Mulic](https://static1.abbyy.com/abbyycommedia/38044/mihajlo-mulic-abbyy-berlin.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115915/19272" target="_top" id="2115915">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115915" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115915/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Your work journey is quite diverse; what was your previous experience before ABBYY, and how did you find your way into this area of Software Development?
 
 Before joining ABBYY, I worked in various software development companies, on products ranging from Advanced Distribution Management Systems for electrical grids to Financial Management Systems.
 
 My academic background was initially in financial mathematics, but my heart was always in computer programming, dating back to my high school days. High school exposed me to mathematics and programming allowing me to gain a really solid set of skills, since I attended the class for gifted students. This made the transition to software engineering smooth and easy, and the rest... is history.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### What attracted you to ABBYY, what's the best part of your job at ABBYY?
 
 The most exciting part, without a doubt, is the people. I have the privilege of working with incredibly smart and talented individuals. At ABBYY I found the perfect balance between autonomy and teamwork, which I believe is essential to allow space for creativity and to maximize your productivity.
 
 My job is very dynamic in nature, there are different problems to solve each day, and it keeps things exciting. You're constantly challenged to solve problems, innovate, and improve solutions.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### What do you find most challenging in your role?
 
 Haha! The most challenging part is, ironically, solving different problems every day. In the short term, it can sometimes feel intense, but in the long run, it's what leads to personal and professional growth.
@@ -61,28 +97,10 @@ The beginning, transitioning into a new role or company, is often the toughest. 
 
 ![Santorini, Greece - ABBYY Software Developers - Mihajlo Mulic](https://static1.abbyy.com/abbyycommedia/38045/mihajlo-mulic-abbyy-santorini.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Your top advice to someone looking to follow a career path in Software Development?
 
 My advice is simple: cultivate curiosity and patience. **Curiosity keeps you asking questions and exploring, while patience enables you to tackle complex problems. Both are crucial for continuous learning, a must in the fast-evolving landscape of software engineering.**
 
-<!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="120" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Work-life balance is important—how would you define it for yourself?
 
 Work-life balance is something quite individual, and ABBYY's [flexible working arrangements](https://tools.techidaily.com/abbyy/products/) allowed me to tailor it to my needs and liking.
@@ -92,18 +110,18 @@ Sometimes this means staying late to finish a task, but sometimes it could mean 
 ![](https://static1.abbyy.com/abbyycommedia/38047/mihajlo-mulic-family-1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![](https://static1.abbyy.com/abbyycommedia/38048/mihajlo-mulic-family-2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Lastly, could you recommend us a book/movie/series/ or activity you have recently discovered or are enjoying at the moment? What’s so great about it?
 
@@ -111,6 +129,12 @@ Not long after I was born, my parents opened a bookstore (pictured below), and i
 
 ![](https://static1.abbyy.com/abbyycommedia/38049/mihajlo-mulic-library.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Since then, I've really broadened my reading horizons. I even got impatient waiting for translations and started diving into books in English. One that stands out is _The Wheel of Time_ series, which just got its television adaptation that is fantastic. Although, I'd say it's worth reading the books first.
 
 Aside from reading and watching movies/series, I really enjoy running, traveling, and occasionally, video gaming.
@@ -128,47 +152,29 @@ Want to follow Mihajlo's footsteps and join one of our tech hubs? You're in luck
 [Meet Our Team](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="80" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Related posts
 
 ![](https://static4.abbyy.com/abbyycommedia/37800/sofia-tarasova_848x444.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [ABBYY Spotlight: Sofia Tarasova, People Partner for the Research and Development and Product Development teams](https://tools.techidaily.com/abbyy/products/) 
 
 ![](https://static2.abbyy.com/abbyycommedia/37579/milos-savic_cover_848x444-2.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [ABBYY Spotlight: Milos Savic, Security Compliance Officer](https://tools.techidaily.com/abbyy/products/) 
 
 #### Subscribe for blog updates

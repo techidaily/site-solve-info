@@ -1,12 +1,18 @@
 ---
 title: "Meinungsforschungsanalyse Mit ABBYY: Wie Connexions Zur Optimierung Seiner Methoden Beiträgt"
-date: 2024-09-03T22:46:41.708Z
-updated: 2024-09-04T22:46:41.708Z
+date: 2024-09-08T23:40:17.414Z
+updated: 2024-09-09T23:40:17.414Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b7fdec82e5e2a50f89b07a18bb64e205705f93d7819f0fe370579d848f9daaea.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
+  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Meinungsforschungsanalyse Mit ABBYY: Wie Connexions Zur Optimierung Seiner Methoden Beiträgt
 
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
@@ -19,27 +25,27 @@ Social Work
 
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Connexions setzt auf ABBYY bei der Auswertung von Meinungsumfragen
 
 [Druckversion des Artikels anzeigen oder herunterladen (PDF 229 kb)](https://static5.abbyy.com/abbyycommedia/6144/cs-connexions-fc-d.pdf) 
 
 Tag für Tag sehen sich Unternehmen und Organisationen weltweit der monumentalen Aufgabe gegenüber, Dokumente zu verarbeiten, die so schnell und kostengünstig wie möglich digital erfasst werden müssen. Connexions Berkshire – einer von mehreren Connexions Standorten im Vereinigten Königreich – ist eine dieser Organisationen.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030381/7443" target="_top" id="2030381">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030381" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030381/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Der Hintergrund
 
 Connexions Berkshire plante eine Umfrage mit dem Titel „Beteiligung an positiven Unternehmungen“ (Participation in Positive Activities, PIPA) unter ca. 9.500 Jugendlichen. Die Ergebnisse würden die Erfassung von ungefähr 13 Datenposten pro Person erfordern, und der gesamte Informationsrücklauf müsste dann in die Connexions Datenbank übernommen werden. Selbst bei einer geschätzten Beteiligung von nur 50 % wären dann über 60.000 Posten manuell durch das Team bei Connexions zu erfassen gewesen. Wie Connexions Knowledge Manager Steve Maddison es formulierte, „wäre die manuelle Erfassung ganz offensichtlich eine Mammut-Aufgabe gewesen, für die wir entweder vorübergehend zusätzliches Personal einstellen oder die jetzige Belegschaft in großem Umfang zusätzlich belasten hätten müssen.“ Die logische Schlussfolgerung war, nach einer Lösung für Formularverarbeitung und Data Capture zu suchen, mit der der gesamte Prozess automatisiert werden konnte.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Die Lösung
 
@@ -53,20 +59,20 @@ Es ging eine Anfrage an ABBYY, das Software-Portfolio vorzustellen, worauf die A
 Nach der Installation und der Inbetriebnahme von FlexiCapture 8.0 Professional ist das Handling der im Connexions Büro eingehenden Umfragedaten recht einfach. Alle Fragebögen werden vor Ort schnell eingescannt und mit FlexiCapture verarbeitet, anschließend werden die Daten erfasst und in die Connexions Datenbank exportiert. FlexiCapture unterstützt Connexions bei der zentralen Sammlung und Zuordnung der Daten und macht das Outsourcing einzelner Arbeitsschritte überflüssig. So sind sowohl die zeitgerechte Verarbeitung als auch die sichere Überwachung der Daten garantiert.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Das Ergebnis
 
 In zehn Monaten der Nutzung von FlexiCapture konnte Connexions die Verarbeitungszeit seiner Umfrageergebnisse von mehreren Wochen auf nur zwei Tage verkürzen, die Einstellung von Zeitarbeitskräften ist somit nicht notwendig. In diesem Zeitraum wurden weit über 15.000 Formulare verarbeitet und Connexions schätzt, dass diese Zahl in den nächsten Monaten auf knapp 30.000 anwachsen wird. Zu diesem Zeitpunkt werden sich die Investitionskosten bereits amortisiert haben. „ABBYY FlexiCapture ermöglicht es uns, zusätzliche Aufgaben zu übernehmen, die wir vorher einfach nicht hätten bewältigen können. Überdies hat es den Ablauf unserer Umfragen effizienter gestaltet, so dass unsere Mitarbeiter weniger Zeit für Verwaltungsvorgänge aufwenden müssen und sich auf die Arbeit mit jungen Menschen konzentrieren können", erläutert Maddison.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Der Blick nach vorn
 
@@ -74,12 +80,6 @@ Connexions Berkshire hat bereits entschieden, weitere Lizenzen der Software zu e
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Über ABBYY und Kontaktmöglichkeiten
 
 [Zur ABBYY Unternehmensübersicht ›](https://tools.techidaily.com/abbyy/products/)
@@ -89,16 +89,10 @@ Connexions Berkshire hat bereits entschieden, weitere Lizenzen der Software zu e
 Teilen 
 
 <!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="80" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Sind Sie bereit, mit einem Experten zu sprechen?
 

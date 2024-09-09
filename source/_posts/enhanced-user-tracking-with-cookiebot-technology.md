@@ -1,22 +1,46 @@
 ---
 title: Enhanced User Tracking with Cookiebot Technology
-date: 2024-09-03T22:46:43.420Z
-updated: 2024-09-04T22:46:43.420Z
+date: 2024-09-08T23:40:19.033Z
+updated: 2024-09-09T23:40:19.033Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8ad1313081653043389b0ec9ab2777fbe6983525a9b9183de9916f4cf1facd61.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Enhanced User Tracking with Cookiebot Technology
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Contribution of digital workers to grow by 50% in two years, finds new global research
 
 November 21, 2019
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Human-machine collaboration - the new normal for successful businesses._ 
 _Researchers find that organizations need content intelligence to advance digital transformation._
 
@@ -27,6 +51,12 @@ New survey from leading research firm IDC has revealed the true extent of softwa
 It is not just mundane, repetitive jobs like data input that new digital colleagues will help human workers complete in the years ahead. The growth of machine learning (ML) through human-centric artificial intelligence (AI) means robot assistants will also help employees make better decisions. In most cases, these technologies enhance rather than replace human capabilities. For example, the survey found that technology evaluating information will grow by 28% in two years, and 18% of activities related to reasoning and decision making will be performed by machines.  
 ![](https://static1.abbyy.com/abbyycommedia/23915/en-press-release.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
   
 IDC forecasts that the intelligent process automation (IPA) software market, which includes content intelligence and robotic process automation (RPA), will grow from $13.1 billion in 2019 to $20.7 billion in 2023\. Since many of the repetitive processes and tasks that are well suited for automation by RPA are document and content centric, content intelligence technologies frequently go hand-in-hand with RPA in intelligent process automation use cases. Automation initiatives will also be enabled by process intelligence, a new generation of process mining tools providing complete visibility into business processes – the critical foresight needed to improve the success of an IPA project.
 
@@ -123,10 +153,3 @@ Connect with us
 <li><a href="https://extra-hints.techidaily.com/in-2024-advanced-techniques-for-implementing-luts-in-creative-suite/"><u>In 2024, Advanced Techniques for Implementing LUTs in Creative Suite</u></a></li>
 <li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-a-locked-realme-narzo-60x-5g-phone-by-drfone-android/"><u>In 2024, How to Reset a Locked Realme Narzo 60x 5G Phone</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

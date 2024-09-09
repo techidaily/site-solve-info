@@ -1,7 +1,7 @@
 ---
 title: Cookiebot-Enabled Analytics Solutions for Streamlined User Experience Tracking
-date: 2024-09-03T22:46:43.115Z
-updated: 2024-09-04T22:46:43.115Z
+date: 2024-09-08T23:40:18.760Z
+updated: 2024-09-09T23:40:18.760Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5c825ad46d87b3691d3904b2e30aab153935e0b73ee1b460d4fca7fb954d5641.jpg
@@ -19,12 +19,24 @@ August 20, 2018
 
 People seem to be using their mobile everywhere, even in the workplace. Today we’ll tell how businesses can take advantage of mobile technology. Also tips on using the ABBYY BCR in advertising and measuring your Internet speed and exotic pets.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Corporate Mobility
 
 Almost all companies today use some sort of mobile or computer technology to optimize their business processes and improve efficiency. At the same time, almost every employee owns a smartphone, a tablet or a laptop. Those of them who have access to sensitive information, proprietary databases, and confidential documents pose a serious security risk, as the data they work with can be hijacked by fraudsters and become available to the competition. Naturally, information security is a top priority for company management and IT departments.
 
 ![corporate mobility](https://static1.abbyy.com/abbyycommedia/31221/1-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The obvious solution would seem to be to banish all personal mobile devices from the workplace. But the downsides to this approach are just as obvious. Firstly, banning smartphones would have an adverse effect on workforce loyalty, as many employees would see it as an encroachment on their personal freedoms. Secondly, working from home[is a global trend](http://under30ceo.com/why-is-working-from-home-such-a-big-trend/). Many professionals no longer have to come to the office every day in order to do their job properly. Some of them don’t even need a permanent desk, saving their companies thousands on office leases.
 
 ![trendy office workspace](https://static1.abbyy.com/abbyycommedia/31222/2-2.jpg)
@@ -39,6 +51,12 @@ The BYOD approach relies on[EMM](https://en.wikipedia.org/wiki/Enterprise%5Fmobi
 
 ![Enterprise Mobility Management](https://static1.abbyy.com/abbyycommedia/31224/4-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 EMM is an umbrella term that covers many different mechanisms. Each company must select the EMM mechanism that best suits its needs after considering many different factors, such as:
 
 * Do you need full control over your employees’ mobile devices, including the ability to erase all of their data remotely?
@@ -66,6 +84,12 @@ MIM allows you to access your company’s databases from your mobile device over
 
 ![mobile content management](https://static1.abbyy.com/abbyycommedia/31226/6-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115931/19272" target="_top" id="2115931">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115931" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 This is similar to MIM, but offers more powerful content management capabilities. MCM provides content access controls and secure file-level access to databases stored on mobile devices. MCM platforms also support many of the popular cloud storage services.
 
 [**MEM**](https://www.codeproof.com/solutions/mobile-expense-management/) **(Mobile Expense Management)**
@@ -84,18 +108,36 @@ The screenshot below shows a corporate app store maintained by [Aviadvigatel](ht
 
 ![corporate app management screenshot](https://static1.abbyy.com/abbyycommedia/31228/8-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115918/19272" target="_top" id="2115918">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115918" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115918/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 In companies like these, employees deal with highly sensitive information that costs millions, so they are only allowed to install apps vetted by their IT departments.
 
 In the next screenshot, you can see the desktop of a corporate iPad displaying the apps that are used for work.
 
 ![WorxHome iPad screenshot](https://static1.abbyy.com/abbyycommedia/31229/9-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 There are security tools available for the majority of popular mobile platforms, including iOS, Android, and Windows 10 Mobile. Similar solutions are also available for Mac OS and Windows.
 
 A recent[survey](https://www.forrester.com/report/Vendor+Landscape+Enterprise+Mobility+Management+EMM+Solutions+2017/-/E-RES137481) by[Forrester Research](https://go.forrester.com/) involving 2114 international companies revealed that 77% of them are planning to continue to implement EMM solutions.
 
 In the next issues we will talk more about the tools of corporate mobility and security.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **ABBYY Tip: How to Use BCR in Advertising Agency**
 
 Those who work in advertising need to interact with hundreds of business contacts, including suppliers, contractors, space providers, event managers, designers, and many more.
@@ -104,6 +146,12 @@ Here’s a picture of a business card book of an advertising manager. It current
 
 ![business card book](https://static1.abbyy.com/abbyycommedia/26423/10-1-1024x576.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The owner has to thumb through this book carefully to find a contact. When she needs to share contacts with colleagues, they either take snapshots of the business cards they need or just borrow the paper originals, which can be easily lost.
 
 To have your business contacts always to hand, you can digitize them using [BCR](http://qrs.ly/ip56xfe), an app that captures business cards and stores them on your mobile device. Capturing cards with [BCR](http://qrs.ly/ip56xfe) is [six times faster than typing the details manually](https://tools.techidaily.com/abbyy/products/). You can also instantly share your business cards with your colleagues, access your repository from iOS or Android devices or from a desktop computer, create Excel reports, and perform lots of other useful manipulations.
@@ -120,12 +168,6 @@ When you open the app on your device, you will see a large GO button. Tap it and
 
 ![change server Speedtest](https://static1.abbyy.com/abbyycommedia/31232/13.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Should you want to double-check, you can change the remote server that is contacted by the app. Simply tap **CHANGE SERVER** on the main tab and you will see the available servers and how far they are from you.
 
 You can also change the speed units and the gauge scale.
@@ -135,10 +177,10 @@ You can also change the speed units and the gauge scale.
 ![change gauge scale Speedtest](https://static1.abbyy.com/abbyycommedia/31231/12.png)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
-  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 The app will store your past measurements for reference. These can be found by tapping the **Results** tab at the bottom of the screen. History details include date and time, speed, and type of connection.
 
@@ -147,24 +189,18 @@ The[Android](https://play.google.com/store/apps/details?id=org.zwanoo.android.sp
 ![check mobile coverage in Speedtest](https://static1.abbyy.com/abbyycommedia/31235/16-1.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![check mobile coverage in Speedtest](https://static1.abbyy.com/abbyycommedia/31236/17-1-300x617.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 The app is available on[iOS](https://itunes.apple.com/at/app/speedtest-net-speed-test/id300704847?mt=8) and[Android](https://play.google.com/store/apps/details?id=org.zwanoo.android.speedtest).
 
@@ -175,10 +211,10 @@ _By Milana Petruk, Webmaster_
 ![Tip from colleague Milana Petruk](https://static1.abbyy.com/abbyycommedia/26425/18-1-937x1024.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 **Choosing a scaly pet**
 
@@ -201,12 +237,6 @@ P.S. You can find the previous issue of this newsletter [here](https://tools.tec
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

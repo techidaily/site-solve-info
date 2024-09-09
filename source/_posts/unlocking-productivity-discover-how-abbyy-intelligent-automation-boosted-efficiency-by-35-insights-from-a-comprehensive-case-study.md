@@ -1,7 +1,7 @@
 ---
 title: "Unlocking Productivity: Discover How ABBYY Intelligent Automation Boosted Efficiency by 35%% - Insights From a Comprehensive Case Study"
-date: 2024-09-03T22:46:42.757Z
-updated: 2024-09-04T22:46:42.757Z
+date: 2024-09-08T23:40:18.447Z
+updated: 2024-09-09T23:40:18.447Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6816402dd23c56a105ec64bc0a33bec17942a9ec34c261fc2115b1bb0464ace8.jpg
@@ -13,10 +13,28 @@ thumbnail: https://thmb.techidaily.com/6816402dd23c56a105ec64bc0a33bec17942a9ec3
 
 Transportation & Logistics | Accounts Payable Automation
 
+<!-- affiliate ads begin -->
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 35% Increase in Efficiency Thanks to ABBYY Intelligent Automation
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/en/134499.png?h=40&iar=0&w=120)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
 ## 35% Increase in Efficiency Thanks to ABBYY Intelligent Automation
@@ -79,14 +97,38 @@ ABBYY’s IDP platform accelerates line item recognition, capture, and extractio
 
 [![ABBYY FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Learn more about ABBYY Vantage](https://static2.abbyy.com/abbyycommedia/24337/mailroom_automation_360x162.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY Vantage](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Learn more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Download the PDF version](https://static1.abbyy.com/abbyycommedia/37645/clay-lacy-aviation-case-study-intelligent-document-processing-en_tn_360x162.jpg)](https://static5.abbyy.com/abbyycommedia/37585/clay-lacy-aviation-case-study-intelligent-document-processing-en.pdf "PDF Version") [PDF Version](https://static5.abbyy.com/abbyycommedia/37585/clay-lacy-aviation-case-study-intelligent-document-processing-en.pdf "PDF Version") 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Read the document](https://static5.abbyy.com/abbyycommedia/37585/clay-lacy-aviation-case-study-intelligent-document-processing-en.pdf "PDF Version") 
 
 [More about ABBYY](https://tools.techidaily.com/abbyy/products/) 
@@ -94,10 +136,10 @@ ABBYY’s IDP platform accelerates line item recognition, capture, and extractio
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Ready to talk to an expert?
 

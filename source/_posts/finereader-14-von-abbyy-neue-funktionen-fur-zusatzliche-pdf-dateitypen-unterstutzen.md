@@ -1,22 +1,46 @@
 ---
 title: "FineReader 14 Von ABBYY: Neue Funktionen Für Zusätzliche PDF-Dateitypen Unterstützen"
-date: 2024-09-03T22:46:44.428Z
-updated: 2024-09-04T22:46:44.428Z
+date: 2024-09-08T23:40:19.886Z
+updated: 2024-09-09T23:40:19.886Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/cdf4d7c5a6e11bc2ecb600573fb51d6d46dc48a05d2a33906086e284e9c970a7.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## FineReader 14 Von ABBYY: Neue Funktionen Für Zusätzliche PDF-Dateitypen Unterstützen
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY erweitert Funktionalitäten in FineReader 14 zur Unterstützung zusätzlicher PDF-Formate
 
 30\. Oktober 2018
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Das PDF-Tool ist mit der neuesten OCR-Technologie ausgestattet und erleichtert den Zugang und das Bearbeiten digitaler Dokumente_
 
   
@@ -158,10 +182,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://solve-info.techidaily.com/unraveling-the-mystery-how-map-books-connect-to-boosting-process-intelligence-insights-from-abbyy/"><u>Unraveling the Mystery: How Map Books Connect to Boosting Process Intelligence - Insights From ABBYY</u></a></li>
 <li><a href="https://solve-info.techidaily.com/utilizing-cookiebot-technology-for-enhanced-user-personalization-and-seo-success/"><u>Utilizing Cookiebot Technology for Enhanced User Personalization & SEO Success</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

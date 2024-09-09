@@ -1,22 +1,40 @@
 ---
 title: Marlin Equity PartnersがABBYYに対する投資を開始 - 最新ニュース解析
-date: 2024-09-03T22:46:44.489Z
-updated: 2024-09-04T22:46:44.489Z
+date: 2024-09-08T23:40:19.939Z
+updated: 2024-09-09T23:40:19.939Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4c147f639cee2585f7f88020d64ed44f6ab3d2fb87afeca6ceadabb8d346628a.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Marlin Equity PartnersがABBYYに対する投資を開始 - 最新ニュース解析
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115941/19272" target="_top" id="2115941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115941" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Marlin Equity Partnersからの新たな投資がABBYYに意味すること
 
 6月30日, 2021
 
 ![](https://static2.abbyy.com/abbyycommedia/33048/marlin-blog-cover-1.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 5月11日に、ABBYYはテクノロジー分野にフォーカスしたグローバル投資企業である[Marlin Equity Partners](https://www.marlinequity.com/)による巨額の投資を公表。この投資により、同社はABBYYの筆頭株主となりました。この投資について、当社は次の理由から今後の活動に大きな期待を寄せています。まず、この投資は会社の成長の促進につながります。そしてABBYYが誇る高評価の世界的な革新技術であるDigital Intelligenceのプロダクトポートフォリオの歩みをさらに進めるために、必要となる資本が提供されます。
 
 5,000を超える顧客が、金融や医療、サプライチェーン、保険といったさまざまな業界で当社のソリューションを活用しています。PwC、FDA、Siemens、Deutsche Post DHL、PepsiCo、Volkswagenといった名だたるグローバル企業にABBYYソリューションをすでに利用していただいていることを光栄に思います。
@@ -27,6 +45,12 @@ thumbnail: https://thmb.techidaily.com/4c147f639cee2585f7f88020d64ed44f6ab3d2fb8
 
 ![two people wearing glasses smiling](https://static1.abbyy.com/abbyycommedia/32435/b-13.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 従業員あってこそのABBYYです。当社は、従業員の成長に必要なツールやスキルを投じ、引き続き投資していくことを計画しています。開発者から財務・営業・マーケティング担当まで、世界を舞台に[優れた人材を採用すること](https://tools.techidaily.com/abbyy/products/)もその計画の対象です。従業員が、家庭と社会のニーズでバランスを取りながらも、仕事で力を発揮できると感じられる、心をつかむ多様性に満ちた文化を醸成します。
 
 この投資にABBYYが期待を寄せる理由を、当社のパートナーや顧客に実際に確かめていただけることを願います。MarlinはこれまでABBYYが収めてきた業績に多大な価値を見いだし、頼れる成長志向のパートナーとして当社の新たな成長を導いてくれる存在です。
@@ -41,6 +65,12 @@ thumbnail: https://thmb.techidaily.com/4c147f639cee2585f7f88020d64ed44f6ab3d2fb8
 
 [エンタープライズ](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120866/26400?prodsku=mars" target="_top" id="2120866">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120866/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 
 シェア 
@@ -160,10 +190,3 @@ Connect with us
 <li><a href="https://data-wizards.techidaily.com/unveiling-top-secrets-in-data-reconstruction-via-vishakha/"><u>Unveiling Top Secrets in Data Reconstruction via Vishakha</u></a></li>
 <li><a href="https://android-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-itel-s23-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Itel S23 | Dr.fone</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
-  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

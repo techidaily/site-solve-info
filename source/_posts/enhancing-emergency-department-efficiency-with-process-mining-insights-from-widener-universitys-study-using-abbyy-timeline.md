@@ -1,16 +1,34 @@
 ---
 title: "Enhancing Emergency Department Efficiency with Process Mining: Insights From Widener University's Study Using ABBYY Timeline"
-date: 2024-09-03T22:46:44.356Z
-updated: 2024-09-04T22:46:44.356Z
+date: 2024-09-08T23:40:19.823Z
+updated: 2024-09-09T23:40:19.823Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6050aa5ce58a3d916a0355d32e6800af8938ccf6ad706af2327feef0ddd5dc8b.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Enhancing Emergency Department Efficiency with Process Mining: Insights From Widener University's Study Using ABBYY Timeline
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Process Mining in Healthcare: Widener University Students Use ABBYY Timeline to Improve ED Patient Flow
 
 ###### Norma Najera
@@ -19,6 +37,12 @@ September 23, 2022
 
 ![](https://static3.abbyy.com/abbyycommedia/35931/848x444-embedded-timeline-schema-analysis.jpeg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 As an undergraduate student attending Widener University for my Bachelor's in Business Analytics and Marketing, I couldn’t pass up the opportunity to go big for student project day. My mind was scattered as I struggled to decide what topic I wanted to choose related to my major. My colleague, Emily Pitcherello, recalled that our professor Ryan Raiker, senior director of [process intelligence](https://tools.techidaily.com/abbyy/products/) at ABBYY, had provided us with insight into his work by explaining the usefulness of [ABBYY Timeline](https://tools.techidaily.com/abbyy/products/) a couple of months prior.
 
 [Related article: What is process mining?](https://tools.techidaily.com/abbyy/products/)
@@ -39,6 +63,12 @@ ABBYY Timeline was able to demonstrate how, on average, the patients at this spe
 
 ![](https://static1.abbyy.com/abbyycommedia/35933/timeline-4.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 As a team of aspiring analysts, we were able to find potential improvements for the hospital such as QR codes on personal identification meant for healthcare workers, greater use of Apple’s iPhone features related to Medical ID, and the hiring of an experienced insurance verifier/coder.
 
 ![hopsital improvements with ABBYY Timeline](https://static1.abbyy.com/abbyycommedia/35938/timeline-3.png)
@@ -57,12 +87,24 @@ As our world moves towards a heightened technology era, it's crucial for the nex
 
 ![](https://static1.abbyy.com/abbyycommedia/35930/norma-najera_110x110.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Norma Najera
 
 Business Analytics BA, Marketing Minor, Widener University
 
 Norma Najera is currently a 2nd-year student at Widener University, expecting to graduate with a major in Analytics and a minor in Marketing, with a concentration in Data Analysis. I'm interested in taking any steps to combine my knowledge of both data analysis and marketing in my prospective professional career.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123472/16836" target="_top" id="2123472">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123472" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123472/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -174,16 +216,3 @@ Connect with us
 <li><a href="https://solve-info.techidaily.com/utilizing-cookiebot-technology-for-effective-user-tracking-and-personalization/"><u>Utilizing Cookiebot Technology for Effective User Tracking and Personalization</u></a></li>
 <li><a href="https://solve-info.techidaily.com/visionary-executive-neil-murphy-guides-global-strategy-as-emea-channel-chief-and-svp-at-top-level-sales-position/"><u>Visionary Executive Neil Murphy Guides Global Strategy as EMEA Channel Chief and SVP at Top-Level Sales Position</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="540" height="960" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

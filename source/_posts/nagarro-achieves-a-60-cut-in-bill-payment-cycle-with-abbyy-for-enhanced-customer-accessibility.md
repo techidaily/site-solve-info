@@ -1,22 +1,40 @@
 ---
 title: Nagarro Achieves a 60%% Cut in Bill Payment Cycle with ABBYY for Enhanced Customer Accessibility
-date: 2024-09-03T22:46:44.507Z
-updated: 2024-09-04T22:46:44.507Z
+date: 2024-09-08T23:40:19.956Z
+updated: 2024-09-09T23:40:19.956Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/2635526a9b4bc31b09f99f8ed1ec33a28f3bd1734d6693f161ca45fe2a6deac2.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Nagarro Achieves a 60% Cut in Bill Payment Cycle with ABBYY for Enhanced Customer Accessibility
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY hilft Nagarro: Bei der Schärfung des Kundenfokus, 60 Prozent schnellere Bearbeitung von Rechnungen
 
 April 9, 2024
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### ABBYY fördert die operative Exzellenz von Nagarro durch die Umstellung des Rechnungsverwaltungs- und -bearbeitungssystems des globalen Softwareentwicklungs- und Beratungsunternehmens.
 
 [ABBYY](https://tools.techidaily.com/abbyy/products/), ein führender KI-Anbieter für intelligente Automatisierung, unterstützt Nagarro bei der Verbesserung des Lebenszyklus der Rechnungsverarbeitung. Durch den Einsatz von ABBYY Vantage im Invoice Scanner for SAP S/4HANA® seiner globalen SAP-Einheit ist Nagarro nun in der Lage, seinen Kunden einen besseren Einblick in die Kosteneinsparungen zu geben, die im Vergleich zu manuellen Methoden erzielt werden. Gleichzeitig reduziert sich die Bearbeitungszeit von Rechnungen um 60 Prozent und die Genauigkeit erhöht sich. [ABBYY Vantage](https://tools.techidaily.com/abbyy/products/) ist eine branchenführende intelligente Dokumentenverarbeitungsplattform (IDP), die KI nutzt, um Dokumente automatisch zu lesen und zu verstehen und sie wie ein Mensch zu verarbeiten.
@@ -35,21 +53,27 @@ ABBYY Vantage ist eine IDP-Plattform, die die Automatisierung von Dokumentenproz
 
 ABBYY wurde von mehr als 10 Analystenfirmen als führend im Bereich IDP anerkannt, darunter auch als führend in der IDC MarketScape: Worldwide Intelligent Document Processing (IDP) 2023-2024\. Für weitere Informationen können [Sie den IDC-Bericht herunterladen](https://tools.techidaily.com/abbyy/products/).
 
+<!-- affiliate ads begin -->
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Über Nagarro
 
 Nagarro, ein weltweit führendes Unternehmen für Digital Engineering, unterstützt Kunden dabei, bewegliche, innovative, digital-first Unternehmen zu werden und dadurch auf ihren Märkten erfolgreich zu sein. Das Unternehmen zeichnet sich durch seinen unternehmerischen, agilen und globalen Charakter, seine CARING-Mentalität und seine „Fluidic Enterprise“-Vision aus. Nagarro beschäftigt über 18.000 Mitarbeitende und ist in 36 Ländern vertreten. Für weitere Informationen besuchen Sie bitte [www.nagarro.com](https://www.nagarro.com/en). Weitere Informationen über den [Invoice Scanner finden Sie hier](https://www.nagarro.com/en/services/erp/sap/add-ons/invoice-scanner).
 
 <!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Über ABBYY 
 

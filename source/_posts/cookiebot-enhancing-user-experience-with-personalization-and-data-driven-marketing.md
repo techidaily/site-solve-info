@@ -1,22 +1,40 @@
 ---
 title: "Cookiebot: Enhancing User Experience with Personalization and Data-Driven Marketing"
-date: 2024-09-03T22:46:42.269Z
-updated: 2024-09-04T22:46:42.269Z
+date: 2024-09-08T23:40:17.970Z
+updated: 2024-09-09T23:40:17.970Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7a5da68125bc45bc63708f2f580be8038605e22ab60525be31c19cd6a83a650a.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cookiebot: Enhancing User Experience with Personalization and Data-Driven Marketing
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY reflektiert mit neuem Branddesign seinen Fokus auf Menschen und die Digitale Transformation
 
 18\. März 2021
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY, ein globales Unternehmen für Digital Intelligence, hat heute seine neue, dynamische Corporate Brand Identity sowie das aktualisierte Logo vorgestellt. Das neue Branding, das zusammen mit der Marken- und Designagentur [Shuka](https://shuka.design/) entwickelt wurde, spiegelt wieder, wofür ABBYY steht: ein visionärer, innovativer, zuverlässiger und kreativer Experte, der Unternehmen weltweit hilft, Wege der Digitalen Transformation neu zu gestalten und zu beschleunigen
 
 Das Redesign bewahrt und belebt gleichzeitig den Ursprung der Marke. ABBYY ist ein etabliertes Unternehmen, das für seinen technologischen Scharfsinn bekannt ist. Durch die eigene Weiterentwicklung und das wachsende Angebot an innovativen Lösungen, spiegelt die neue Markenidentität genau diese Transformation wieder. Eine zentrale Grafik beinhaltet daher eine sich entfaltende Form, die von einem Designelement in ein weiteres übergeht und so die Transformation, den Wendepunkt und den Beginn einer neuen Zukunft symbolisiert. Das Logo ist zeitlos und doch modern, in einer klassischen Schriftart gehalten und in einer neuen, dynamischen roten Farbe. Die neue Farbgebung ist frisch, energetisch und modern. Die Farbverläufe stehen für die Transformation.
@@ -99,10 +117,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://solve-info.techidaily.com/verbessern-sie-die-sicherheit-von-dokumenten-bei-der-eingabe-mit-tangro-hochladen-per-process-security/"><u>Verbessern Sie Die Sicherheit Von Dokumenten Bei Der Eingabe Mit Tangro® - Hochladen per Process Security</u></a></li>
 <li><a href="https://solve-info.techidaily.com/warum-fehlt-es-bei-deutschen-firmen-oftmals-an-einem-verstandnis-fur-rpa-was-zu-misserfolgen-fuhrt-insights-von-abbyy/"><u>Warum Fehlt Es Bei Deutschen Firmen Oftmals an Einem Verständnis Für RPA, Was Zu Misserfolgen Führt – Insights Von ABBYY</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

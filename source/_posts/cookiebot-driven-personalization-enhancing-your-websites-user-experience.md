@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Driven Personalization: Enhancing Your Website's User Experience"
-date: 2024-09-03T22:46:42.173Z
-updated: 2024-09-04T22:46:42.173Z
+date: 2024-09-08T23:40:17.873Z
+updated: 2024-09-09T23:40:17.873Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/eba0a5b42c98b9f5083f688e46f3bb9b2578fe7a056aaed74ee36c6a269ef696.jpg
@@ -13,6 +13,12 @@ thumbnail: https://thmb.techidaily.com/eba0a5b42c98b9f5083f688e46f3bb9b2578fe7a0
 
 Consulting
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135474/26400" target="_top" id="2135474">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135474" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135474/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY aide les agences de traduction dans le secteur du droit et de la finance à proposer des services de qualité à leurs clients
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/fr/39648.png?h=40&iar=0&w=120)
@@ -26,16 +32,10 @@ Consulting
 _![](https://tools.techidaily.com/abbyy/products/)HL TRAD est une agence de traduction et d´interprétariat, spécialisée auprès des acteurs du droit, de la finance et du conseil, qui propose à ses clients des traductions libres ou assermentées, des interprètes et des services de relecture. Pour mieux répondre aux besoins de ses clients, HL TRAD constitue des équipes dont l'objectif est de mettre au point des solutions sur mesure. HL TRAD est implantée en France, en Angleterre et en Belgique. L´agence a récemment investi dans une solution permettant d'améliorer les procédures associées au traitement de documents importants à traduire._
 
 <!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="540" height="960" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Contexte
 
@@ -46,10 +46,10 @@ HL TRAD doit convertir des documents régulièrement pour répondre aux besoins 
 Eric Le Poole, gérant de HL TRAD, explique la raison pour laquelle trouver une solution de reconnaissance de texte (OCR) devenait essentielle: « Les documents sont au centre de notre activité, qu'il s'agisse de conclusions, de comptes annuels, de rapports de gestion, ou encore, de rapports de due diligence. La possibilité de convertir ces documents devait nous permettre de récupérer du texte, des tableaux et des graphiques en évitant une ressaisie fastidieuse et source d´erreurs. Les avantages recherchés étaient de faciliter le travail de nos collaborateurs et d´assurer un meilleur service à nos clients.»
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Solution
 
@@ -62,10 +62,10 @@ ABBYY FineReader est un logiciel de reconnaissance de texte, ou OCR, qui convert
 La précision d'ABBYY FineReader, sa vitesse, son prix et sa convivialité ont été des facteurs importants dans le processus de décision. Le nombre de langues de reconnaissance constituait également un facteur important. Presque toutes les agences de traduction doivent traiter des langues différentes quotidiennement. HL TRAD doit traiter des documents rédigés principalement en français, anglais, italien, néerlandais, allemand ou espagnol. Grâce à une capacité de reconnaissance jusqu´à 189 langues, aucune tâche ne résiste à ABBYY FineReader lorsqu'il s'agit de traiter des documents multilingues.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Résultat
 
@@ -74,16 +74,16 @@ Maintenant, HL TRAD effectue plus de 3600 tâches OCR par an sur des documents m
 « ABBYY est le logiciel qui permet à nos équipes commerciales et projets d'accomplir leur tâche plus rapidement et facilement » déclare Eric Le Poole. Travailler avec FineReader est devenu nécessaire pour HL TRAD. ABBYY FineReader permet de mieux répondre aux attentes de ses clients.
 
 <!-- affiliate ads begin -->
-<span id="1983584">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### A propos de HL TRAD
 
@@ -101,12 +101,6 @@ Tél.: +33 (0)1 30 09 41 90
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### A propos d’ABBYY et contact
 
 [Vers la description d’ABBYY ›](https://tools.techidaily.com/abbyy/products/)
@@ -116,10 +110,10 @@ Tél.: +33 (0)1 30 09 41 90
 Partager 
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
-  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Prêt à parler à un expert ?
 

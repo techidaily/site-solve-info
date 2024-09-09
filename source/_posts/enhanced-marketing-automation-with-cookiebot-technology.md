@@ -1,12 +1,18 @@
 ---
 title: Enhanced Marketing Automation with Cookiebot Technology
-date: 2024-09-03T22:46:45.198Z
-updated: 2024-09-04T22:46:45.198Z
+date: 2024-09-08T23:40:20.568Z
+updated: 2024-09-09T23:40:20.568Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/678fddf7ae4566a62c5d9f963bb3c78467acea0fb81bb49e5d9d8fec87876404.jpeg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Enhanced Marketing Automation with Cookiebot Technology
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -19,6 +25,12 @@ thumbnail: https://thmb.techidaily.com/678fddf7ae4566a62c5d9f963bb3c78467acea0fb
 
 ![](https://static1.abbyy.com/abbyycommedia/34766/skills-for-transportation-cover2-848x444.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 サプライチェーンは、消費者や産業界の生命線であり、とりわけ混乱の影響を受けやすいものです。 特にこの2年間、私たちは混乱の影響を経験してきましたが、混乱に加えて、厳しい納期と低マージンを余儀なくされる熾烈な競争を経験してきました。 サプライチェーンは、調達から出荷、通関、支払いに至るまで、すべてのプロセスで文書を常に利用しており、文書を処理できるかどうかは、企業の回復力、適応力、競争力、利益に直接影響します。
 
 しかし、文書の扱いに対するアプローチ方法は時代遅れであり、多くの場合、従来の光学式文字認識（OCR）の手順にロボティクプロセスオートメーション（RPA）の回避策を加えたものに頼っています。 もし、もっと良い方法があるとしたら？
@@ -33,12 +45,6 @@ thumbnail: https://thmb.techidaily.com/678fddf7ae4566a62c5d9f963bb3c78467acea0fb
 
 多くの場合、テクノロジープロバイダーや企業は、文書を記録システムのデータ問題にしがち、このような仮定のしかたは、混乱や競争に対して脆弱性をもたらすものです。 文書には貴重なデータとコンテンツの両方が含まれています。ただし後者には熟練した読解力と文脈に基づいた解釈が必要であり、迅速な意思決定が求められます。 熟練したスタッフは、この明確な目的のために文書やコンテンツに接しています。なぜなら、データは、日々、貨物を動かしたり、材料やサービスを調達したりする重要な意思決定に必要な情報の一部を提供するだけだからです。 人工知能 （AI） は、経験とデータの間のミッシングリンクを埋めて、熟練した読解力を文書に加えることができますが、サプライチェーンはまだその可能性を認識しておらず、オペレーションを変革することができていません。
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## オペレーションにドキュメント「スキル」を加える
 
 もし、熟練した訓練を受けた経験豊富な人材が必要ないのであれば、「文書問題」は10年前に解決していたでしょう。しかし、現実には、コンテンツに関する意思決定、すなわち調達、出荷、受領に関する意思決定を行うために、これらのスキルと経験が頻繁に必要とされています。 ほとんどの場合、データ抽出は十分であり、90％以上のストレートスルー・プロセッシングが一般的に期待できるようになっています。 しかし、そのようなレベルの効率性を実現するためには、ツールに組み込まれたContent Intelligenceが必要であり、それ以外にも高度な意思決定スキルが必要です。
@@ -48,10 +54,10 @@ thumbnail: https://thmb.techidaily.com/678fddf7ae4566a62c5d9f963bb3c78467acea0fb
 もはや、ドキュメントスキルの運用メリットを得るために、大きなキャプチャープラットフォームやフレームワークは必要ありません。 事前学習済みのコンテナ化されたドキュメント「スキル」（データだけでなく、文書に対して必要なアクションを理解する、事前に学習されたアクション）を持つAIの助けを借りれば、サプライチェーンはついに一般的なボトルネックを取り除き、輸送・物流から買掛金（AP）の支払い処理まで、あらゆるレベルのビジネスオペレーションが依存する文書主導のプロセスをコントロールできるようになります。
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 急速な変化に対応して輸送・物流業務を最適化したいとお考えですか？
 
@@ -60,10 +66,10 @@ thumbnail: https://thmb.techidaily.com/678fddf7ae4566a62c5d9f963bb3c78467acea0fb
 [ABBYY MarketplaceにアクセスするENG](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
-  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettiit.sjv.io/c/5597632/2114263/17093" target="_top" id="2114263">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114263" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114263/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## ABBYY Marketplaceのアプローチ方法
 
@@ -78,18 +84,18 @@ ABBYY VantageとMarketplaceには、ABBYYとABBYYパートナーが開発した�
 ![Reggie Twigg ABBYY](https://static4.abbyy.com/abbyycommedia/25636/02c-reggietwigg-99x99.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Reginald J. Twigg
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 

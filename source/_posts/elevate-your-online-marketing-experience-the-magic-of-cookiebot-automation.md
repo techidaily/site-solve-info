@@ -1,16 +1,28 @@
 ---
 title: "Elevate Your Online Marketing: Experience the Magic of Cookiebot Automation"
-date: 2024-09-03T22:46:44.141Z
-updated: 2024-09-04T22:46:44.141Z
+date: 2024-09-08T23:40:19.663Z
+updated: 2024-09-09T23:40:19.663Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8952485f60295f3d1e3d2e7fb384d7f4849fc0ba1ac13c5b58f754ed696cbd0a.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Elevate Your Online Marketing: Experience the Magic of Cookiebot Automation
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Expands Strategic Partnerships to Accelerate Modernization of Government Agencies
 
 April 25, 2023
@@ -19,6 +31,12 @@ April 25, 2023
 
 ![News 21 Partners](https://static1.abbyy.com/abbyycommedia/33676/news-21-partners.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [ABBYY](https://tools.techidaily.com/abbyy/products/) announced it has expanded its partnerships that serve state and local government agencies. Data from the Government Accountability Office revealed that [federal IT legacy systems cost over $330 million annually to maintain](https://itif.org/publications/2022/10/24/federal-hisp-digital-customer-experience/), while delivering sub-optimal service and carrying risks inherent to older platforms. To address the agencies’ needs to modernize both back-end and consumer-facing IT systems, ABBYY partnerships will expand the accessibility of its intelligent automation solutions to streamline cumbersome processes, enhance citizen experiences and improve the overall ability to meet constituents’ needs.
 
 Among ABBYY’s expanded partnerships is [MCCi](https://mccinnovations.com/), which was recently named as a company to watch in the annual [GovTech 100](https://www.govtech.com/100). MCCi has numerous ongoing initiatives to digitally transform government services, including unemployment and Social Security fraud mitigation and accounts payable automation. The city of Coppell, Texas is among their customers that have successfully automated accounts payable processes using ABBYY intelligent document processing solutions to turn key document insights into efficient outcomes. By leveraging ABBYY technology, Coppell reduced invoice processing time from days to minutes.
@@ -41,6 +59,12 @@ _Bruce Orcutt, SVP of Product Marketing at ABBYY_
 
 To learn more about how government agencies can improve the citizen experience and have their information work smarter, visit <https://www.abbyy.com/hub/gov/ai-identify-proofing-is-transforming-gov-services/?page=20>.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115935/19272" target="_top" id="2115935">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115935" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115935/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### About ABBYY
 
 ABBYY powers intelligent automation. We reimagine the way people work and how companies accelerate business by delivering the intelligence that fuels automation platforms. Our solutions transform enterprise data and empower you with the insights you need to work smarter and faster. 
@@ -51,37 +75,25 @@ ABBYY is a US-based global company with offices in 14 countries. For more inform
 
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024351/7443" target="_top" id="2024351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024351/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### About MCCi
 
 MCCi is a business process automation company that accelerates digital transformation by adding intelligence to your processes. As an IT services company with expertise in delivering end-to-end professional services provider, we provide our clients some of the leading technologies for business process automation, including Laserfiche for content services, Blue Prism and UiPath for robotic process automation, ABBYY for intelligent capture, and One Span for digital signatures. We are a trusted partner to over 1,100 government organizations, including cities, counties, state agencies, special districts, K-12, and higher education and are a proud GovTech 100 company for 2023.
 
 <!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### ABBYY Editorial Contact
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### Gina Ray
 

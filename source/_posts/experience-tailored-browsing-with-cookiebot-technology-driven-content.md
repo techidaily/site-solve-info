@@ -1,7 +1,7 @@
 ---
 title: Experience Tailored Browsing with Cookiebot Technology Driven Content
-date: 2024-09-03T22:46:45.281Z
-updated: 2024-09-04T22:46:45.281Z
+date: 2024-09-08T23:40:20.656Z
+updated: 2024-09-09T23:40:20.656Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/667c07bdb92da3d0cfc85ccd305dbbf14b3797ec47ad22d2523d6d2404f16cd1.jpg
@@ -17,8 +17,26 @@ November 07, 2017
 
 ![](https://static4.abbyy.com/abbyycommedia/26023/mobile-monday-8.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 In this issue, how to filter out external distractions using “Do Not Disturb” function, work with different tags in FineScanner and interesting app that will help to realize ideas. In the end, theory of bicameral mind and mindfulness of choice.
 
+<!-- affiliate ads begin -->
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **iOS Tip: How to Use the “Do Not Disturb” Feature**
 
 “Do Not Disturb” is probably the most useful phone mode when you are sleeping or snowed under at work. When enabled, the feature will muffle any incoming calls. It takes just a few taps to switch it on:
@@ -37,6 +55,12 @@ Since “Do Not Disturb” blocks out all incoming calls and notifications, you 
 
 ![ios iphone do not disturb feature](https://static1.abbyy.com/abbyycommedia/26025/225508-e1510058665909.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The first option is to add important contacts to the favourites list and instruct your phone to always notify you about calls from these people. The second option is to create a new group called, say, VIP and allow these chosen few to disturb your peace. Lastly, you can have phone numbers in your Contacts that can call and text you anytime.
 
 It’s quite a quest to enable the feature:
@@ -48,6 +72,12 @@ It’s quite a quest to enable the feature:
 
 ![ios do not disturb feature emergency bypass](https://static1.abbyy.com/abbyycommedia/26026/701c263c96db987db43d1146be5ed93a-e1510058771807.png)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Now you will get all notifications related to this caller, even if the **Do Not Disturb** option is turned on.
 
 Additionally, you can let through any caller who dials your number twice within the space of three minutes (persistence should be rewarded and emergencies should not be ignored).
@@ -71,6 +101,18 @@ At the bottom of the screen, turn on **Do not disturb**.
 
 ![android sound do not disturb feature](https://static1.abbyy.com/abbyycommedia/26027/48666df7-823d-4fb4-9cc7-e2aaa7b0feb5-e1510059030120.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The feature uses rules created by the user which tell the phone when it should go into **Do not disturb** mode. You can also specify several levels of quiet, from complete silence to priority calls and/or alarm sounds.
 
 Android comes with three ready-made rules: **Weekends**, **Event** and **Weeknight**. All you need to do is make the necessary adjustments and turn any of them on. For example, you can set up the phone to allow only calls from your family at weekends. Or you can make the sound of the alarm clock the only noise coming from your phone from 11:00pm to 07:00am on weekdays.
@@ -79,19 +121,19 @@ Android comes with three ready-made rules: **Weekends**, **Event** and **Weeknig
 
 ![do not disturb android choose rule type](https://static1.abbyy.com/abbyycommedia/26029/cf310a96-af2f-40b1-947a-568a2c5191f5-e1510059100215.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Of course, there may be non-recurring time periods when you shouldn’t be disturbed, such as during important meetings or concerts. These can be added individually by tapping **Event**. You can also add events directly from Google Calendar, which is really handy.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **ABBYY Tip: How to Add Tags in FineScanner**
 
@@ -100,13 +142,19 @@ Tags are a very useful invention. Using tag search, you can find that old contra
 1. Select a document.
 2. Tap **Properties** and start editing the document.![abbyy add tags in finescanner](https://static1.abbyy.com/abbyycommedia/26030/untitled-e1510059645865.png)
 3. In the **Tags** field, select the necessary tags from the list (e.g. **Work** or **Contract**) or add your own.![abbyy choose tags finescanner document ocr](https://static1.abbyy.com/abbyycommedia/26031/img_0083-e1510059671839.png)![abbyy add create new tag finescanner](https://static1.abbyy.com/abbyycommedia/26032/img_0084-e1510059696164.png)
-4. Click **Done** and go back to the ribbon. Now you will be able to find this document by specifying its tag in the search field.
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+4. Click **Done** and go back to the ribbon. Now you will be able to find this document by specifying its tag in the search field.
 
 You can tag all of your documents so that you don’t have to scroll through dozens of screens looking for some elusive contract. By the way, the iOS native Spotlight search engine also support tags.
 
@@ -118,25 +166,19 @@ Got lots of ideas but not enough time to put them all into practice? Try [Ideali
 
 ![idealist app idea realisation ios](https://static1.abbyy.com/abbyycommedia/26033/mycollages-6-e1506948419116.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Even if you don’t need any external advice, you may find the app useful for writing down worthwhile ideas, placing them into categories, and marking their statuses. [Idealist](https://itunes.apple.com/us/app/idealist-turn-your-idea-into/id975937527?mt=8)also nudges you towards more critical thinking, which is a useful skill for any adult, not just for inventors and entrepreneurs. Available on [iOS](https://itunes.apple.com/us/app/idealist-turn-your-idea-into/id975937527?mt=8).
 
 <!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **First-Hand Experience:** Advice From a Colleague
 
@@ -144,12 +186,6 @@ _Shared by Eugene Zudin, partner manager_
 
 **![advice colleague abbyy spend money wisely](https://static1.abbyy.com/abbyycommedia/26034/fjimnrfsihq-e1506953089696.jpg)**
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Almost half a century ago, the American psychologist Julian Jaynes came up with a wild yet compelling theory which he later developed in his 1976 book titled _The Origin of Consciousness in the Breakdown of the Bicameral Mind_, of which Richard Dawkins, the well-known evolutionary biologist, had this to say: “It is one of those books that is either complete rubbish or a work of consummate genius, nothing in between!”
 
 Put briefly, the theory states that up to a certain point in history we humans had no consciousness as we now understand it. Instead, our mind was _bicameral_, with one part taking decisions and giving orders while the other part listened and obeyed. The two parts ostensibly communicated using internal speech, akin to the inner voice we use when reasoning with ourselves in silent soliloquy. According to Jaynes, today we are all aware that these thoughts originate in our minds, whereas as little as 3000 years ago people thought that these were voices coming from on high—either from gods or, in later ages, from pharaohs or kings—which had to be believed and obeyed without reserve.
@@ -176,6 +212,12 @@ P.S. The coolest sale of the year is approaching! We are getting ready for it at
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115949/19272" target="_top" id="2115949">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115949" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

@@ -1,22 +1,46 @@
 ---
 title: How ABBYY’s Instantaneous Text Digitization Propels Rapid Advancements in the Digital Realm
-date: 2024-09-03T22:46:41.607Z
-updated: 2024-09-04T22:46:41.607Z
+date: 2024-09-08T23:40:17.325Z
+updated: 2024-09-09T23:40:17.325Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c1db4ec27c5136dcd8d29377fc669f9488ff5fcb91d758bff8fe15d9459484d0.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How ABBYY’s Instantaneous Text Digitization Propels Rapid Advancements in the Digital Realm
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Real-Time Text Recognition promises to accelerate the digital journey
 
 April 11, 2017
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _New ‘point and capture’ toolkit empowers instant use of text-based information viewed through smartphones and tablets_
 
 ABBYY Europe, a leading provider of technologies and solutions to action information, today introduced its new Real-Time Recognition technology, enabling ‘instant’ text extraction from the preview screen of mobile devices. Real-Time Recognition based on ABBYY technology enables faster, simpler extraction of text from documents and objects placed in the live video stream from smartphone and mobile device’ cameras. Data extracted using Real-Time Recognition can be used in a variety of mobile applications ranging from highly responsive customer services to automated enterprise processes and consumer apps.
@@ -122,16 +146,3 @@ Connect with us
 <li><a href="https://techidaily.com/undelete-lost-music-from-infinix-note-30-5g-by-fonelab-android-recover-music/"><u>Undelete lost music from Infinix Note 30 5G</u></a></li>
 <li><a href="https://solve-info.techidaily.com/unlocking-marketing-potential-with-predictive-analytics-from-cookiebot-technology/"><u>Unlocking Marketing Potential with Predictive Analytics From Cookiebot Technology</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="80" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

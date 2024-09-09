@@ -1,16 +1,34 @@
 ---
 title: Gartner's Magic Quadrant Recognizes ABBYY as a Standout Named Leader in OCR Technology
-date: 2024-09-03T22:46:40.778Z
-updated: 2024-09-04T22:46:40.778Z
+date: 2024-09-08T23:40:16.636Z
+updated: 2024-09-09T23:40:16.636Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6f8c62fe2349a0f207bb9e67da92ccbc024b72458dedec8efed25d3d7ef6c0d1.png
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Gartner's Magic Quadrant Recognizes ABBYY as a Standout Named Leader in OCR Technology
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Recognized as a Leader by Gartner in Process Mining Platforms
 
 ###### Catherine Johnson
@@ -21,6 +39,12 @@ ABBYY has been named [a Leader in the 2024 Gartner® Magic Quadrant™ for Proce
 
 ![abbyy-recognized-as-leader-by-gartner-in-process-mining-platforms](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/abbyy-recognized-as-a-leader-by-gartner-in-process-mining-platforms/abbyy-recognized-as-leader-by-gartner-in-process-mining-platforms.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115935/19272" target="_top" id="2115935">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115935" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115935/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 A Gartner Magic Quadrant is a culmination of research in a specific market, giving you a wide-angle view of the relative positions of the market’s competitors. To us, being positioned in the Leaders Quadrant not only means ABBYY has a track record of success in the market, but it also indicates ABBYY’s ability to facilitate and [support operational excellence](https://tools.techidaily.com/abbyy/products/), audit and compliance, automation, digital transformation, strategy to execution, and customer excellence.
 
 We think ABBYY’s placement in the Leaders quadrant is a testament to our strategic direction, comprehensive product portfolio, and robust performance. It is not just a reflection of our current capabilities but also an indicator of future potential—it demonstrates ABBYY’s continued efforts to address the growing demand for [advanced process mining solutions](https://tools.techidaily.com/abbyy/products/).
@@ -33,6 +57,18 @@ The 2024 Gartner report names ABBYY as a Leader in the Process Mining Platforms 
 
 ![Catherine JohnsonABBYY](https://www.abbyy.com/-/jssmedia/project/abbyy/abbyy/insights/blog/autors-Headshots/catherinejohnson-99x99.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Catherine Johnson
 
 Senior Director of Brand and Industry Relations at ABBYY
@@ -175,10 +211,3 @@ Connect with us
 <li><a href="https://solve-info.techidaily.com/unraveling-the-mystery-how-map-books-connect-to-boosting-process-intelligence-insights-from-abbyy/"><u>Unraveling the Mystery: How Map Books Connect to Boosting Process Intelligence - Insights From ABBYY</u></a></li>
 <li><a href="https://solve-info.techidaily.com/utilizing-cookiebot-technology-for-enhanced-user-personalization-and-seo-success/"><u>Utilizing Cookiebot Technology for Enhanced User Personalization & SEO Success</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

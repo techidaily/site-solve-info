@@ -1,22 +1,40 @@
 ---
 title: ABBYY Erweitert Internationaler Eintritt Zu Künstlicher Intelligenz Tools in Den Letzten Quartalen Von 2018
-date: 2024-09-03T22:46:44.765Z
-updated: 2024-09-04T22:46:44.765Z
+date: 2024-09-08T23:40:20.189Z
+updated: 2024-09-09T23:40:20.189Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/2dd2e24a58c5be887d5c8f88ca29fd663a35485eda34d7682bda60157d137f8e.png
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115939/19272" target="_top" id="2115939">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115939" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115939/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Erweitert Internationaler Eintritt Zu Künstlicher Intelligenz Tools in Den Letzten Quartalen Von 2018
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY baut im vierten Quartal 2018 den globalen Zugang zu seinen KI-fähigen Technologien weiter aus
 
 18\. Februar 2019
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Strategische Partnerschaften sowie Neubesetzung der Führungspositionen beschleunigt ABBYYs Marktdurchdringung mit Content IQ Lösungen_ 
 
 ABBYY®, ein weltweit führender Anbieter von Lösungen und Services für Content IQ, gibt nach dem vierten Quartal 2018 bekannt, dass seine Content IQ Lösungen und Dienstleistungen über die digitalen Marktplätze neuer strategischer Partner und Anbieter für Robotik-Prozessautomatisierung (RPA) noch einfacher verfügbar sind. Die hohe Dynamik bei den neu geschlossenen Partnerschaften und gewonnenen Unternehmenskunden ist auf zwei Dinge zurückzuführen: den zunehmenden Einsatz von RPA-Technologien in Unternehmen und die Notwendigkeit, Software-Roboter intelligenter zu gestalten. Darüber hinaus wurden neue Führungskräfte ernannt, um die weitere globale Expansion der KI-fähigen Technologien des Unternehmens voranzutreiben.
@@ -246,10 +264,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://buynow-marvelous.techidaily.com/top-picks-8-incredible-smartphone-games-for-gamers/"><u>Top Picks: 8 Incredible Smartphone Games for Gamers</u></a></li>
 <li><a href="https://smart-video-creator.techidaily.com/updated-reverse-tiktok-videos-like-a-pro-a-step-by-step-tutorial-for-2024/"><u>Updated Reverse TikTok Videos Like a Pro A Step-by-Step Tutorial for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

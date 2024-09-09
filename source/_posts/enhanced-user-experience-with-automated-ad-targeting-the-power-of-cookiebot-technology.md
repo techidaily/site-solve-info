@@ -1,22 +1,40 @@
 ---
 title: "Enhanced User Experience with Automated Ad Targeting: The Power of Cookiebot Technology"
-date: 2024-09-03T22:46:45.225Z
-updated: 2024-09-04T22:46:45.225Z
+date: 2024-09-08T23:40:20.598Z
+updated: 2024-09-09T23:40:20.598Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7893aa47861abae86c2201349f48204a58f66be5a4db0cfc4bb799b623cb07e4.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Enhanced User Experience with Automated Ad Targeting: The Power of Cookiebot Technology
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Digital Intelligence-Lösungen vereinfachen Korrespondenzmanagement der Ecclesia Gruppe
 
 9\. September 2020
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Mit ABBYY FlexiCapture kann die Ecclesia den Zeitaufwand für die Postzuordnung erheblich reduzieren und sich auf die Optimierung des Kundenservice konzentrieren_
 
 ABBYY, ein globaler Anbieter von Technologien und Unternehmenslösungen für Digital Intelligence, ist von der Ecclesia Gruppe, dem größten deutschen Versicherungsmakler für Unternehmen und Institutionen, ausgewählt worden, um die Bearbeitung des steigenden Postaufkommens zu optimieren. Die Content Intelligence-Lösungen von ABBYY ermöglichen der Ecclesia Gruppe eine maßgebliche Effizienzsteigerung des Workflows: eine höhere Genauigkeit bei der Dokumentenverarbeitung und daraus resultierend eine schnellere Bearbeitungszeit der Vorgänge.
@@ -127,16 +145,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://solve-info.techidaily.com/unleash-the-potential-of-clever-automation-this-september-join-abbyys-enlightening-journey/"><u>Unleash the Potential of Clever Automation This September – Join ABBYY's Enlightening Journey</u></a></li>
 <li><a href="https://solve-info.techidaily.com/unlocking-the-hidden-potential-in-your-supply-chain-dont-miss-out-on-this-key-advantage/"><u>Unlocking the Hidden Potential in Your Supply Chain: Don't Miss Out on This Key Advantage</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="234" height="30" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

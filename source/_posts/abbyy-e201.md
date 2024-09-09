@@ -1,22 +1,40 @@
 ---
 title: "ABBYY自動請求書解析と電子文書対応ソリューションの紹介: Eドキュメントジャパン201"
-date: 2024-09-03T22:46:42.006Z
-updated: 2024-09-04T22:46:42.006Z
+date: 2024-09-08T23:40:17.707Z
+updated: 2024-09-09T23:40:17.707Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/29a05cd0ac7c666a10c5dac5d641535795c3a88c901275fbe3b2dae45dd93fe1.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY自動請求書解析と電子文書対応ソリューションの紹介: Eドキュメントジャパン201
 
 [ニュースルーム](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 自動請求書処理・e文書法対応のABBYYソリューションを「eドキュメントJAPAN2016」に出展
 
 10月14日, 2016
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 _ABBYYジャパン株式会社（代表：小原洋、日本オフィス：横浜市港北区）は、2016年10月19日から21日に、東京ビッグサイトで開催される文書情報マネジメントショウ「eドキュメントJAPAN2016」に出展いたします。_
 
 ABBYYは、情報をより有効に活用するための技術やソリューションで、業務効率化に貢献しております。当ブースでは、請求書や領収書の帳票処理の自動化や、e-文書法にも対応した文書保存ソリューションを紹介します。スマートデバイスを使ったリアルタイムでの文字認識もご覧いただけます。
@@ -136,16 +154,3 @@ Connect with us
 <li><a href="https://extra-tips.techidaily.com/unveiling-sonys-best-full-review-of-fdr-x1000v-camera/"><u>Unveiling Sony's Best - Full Review of FDR-X1000V Camera</u></a></li>
 <li><a href="https://screen-activity-recording.techidaily.com/1715860318682-utilizing-in-device-recording-on-huawei-mate-series-phones-mate-10-mate-20-and-p-series-p20-p10-for-2024/"><u>Utilizing In-Device Recording on Huawei Mate Series Phones (Mate 10, Mate 20) & P Series (P20, P10). For 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="540" height="540" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

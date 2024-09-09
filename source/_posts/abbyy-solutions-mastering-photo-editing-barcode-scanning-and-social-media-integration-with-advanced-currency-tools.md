@@ -1,7 +1,7 @@
 ---
 title: "ABBYY Solutions: Mastering Photo Editing, Barcode Scanning & Social Media Integration with Advanced Currency Tools"
-date: 2024-09-03T22:46:41.117Z
-updated: 2024-09-04T22:46:41.117Z
+date: 2024-09-08T23:40:16.875Z
+updated: 2024-09-09T23:40:16.875Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a516821dc0dcd8fb768903303922c214d1ad710be56ca1c3f04be97b27b5dc47.jpg
@@ -11,14 +11,44 @@ thumbnail: https://thmb.techidaily.com/a516821dc0dcd8fb768903303922c214d1ad710be
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Photos, BCR and Social Networks, Currency Converter
 
 July 16, 2018
 
 ![](https://static4.abbyy.com/abbyycommedia/26344/mobile-monday-41-1.png) 
 
+<!-- affiliate ads begin -->
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Do you want to become a photographer? Go ahead! Innovative devices today surely have what it takes to make you one. In today’s news: discovering hidden functions of smartphone cameras, adding info from social networks to BCR, and converting currencies!
 
+<!-- affiliate ads begin -->
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **iOS Tip: Features of the iPhone Camera**
 
 Apple devices are famous for their brilliant quality of photos. [Camera](https://support.apple.com/en-us/HT207260) app has as many as seven modes for taking photos: photo, portrait, pano, video, slow-mo, and time-lapse. Let’s get into details.
@@ -81,6 +111,12 @@ This mode works the other way around, it records a video over certain periods of
 
 Another feature that was made available in [iOS 11](https://www.apple.com/ios/ios-11/) Camera is QR code recognition. To activate the function, go to **Settings** → **Camera** and turn on **QR code scanning**. Hovering a camera over a QR code will prompt a notification with further suggestions, for example, to open a link from the code in [Safari](https://www.apple.com/safari/).
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Android Tip: Features of Cameras on Android**
 
 Android devices are a bit more complicated then iOS. All major smartphone producers develop their own camera features. New camera phones that hit the market in 2017-2018 are [Google Pixel 2](https://store.google.com/us/product/pixel%5F2?hl=en-US), [Huawei P20 Pro](https://consumer.huawei.com/en/phones/p20-pro/), [Samsung S9](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.samsung.com%2Fus%2Fsmartphones%2Fgalaxy-s9%2F), and [Sony Xperia Z5](https://www.sonymobile.com/global-en/products/phones/#gref). Based on the results of multiple tests, Google Pixel 2 was recognized to be the best among smartphones in 2017\. However, today we decided to address features of the advanced, popular, and innovative camera in [Samsung S8](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.samsung.com%2Fglobal%2Fgalaxy%2Fgalaxy-s8%2F).
@@ -91,12 +127,24 @@ Do you want to take original one-of-a-kind photos with S8? Use built-in filters.
 
 ![Filters Food mode Camera Android](https://static1.abbyy.com/abbyycommedia/26349/food-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115910/19272" target="_top" id="2115910">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115910" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115910/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Pro mode**
 
 The Pro mode allows you to take professional photos with three types of settings: Exposure time, Exposure, and White Balance. To activate the mode, swipe right and click Pro. Here you can configure shutter speed, white balance, and exposure level. This mode allows you to set the focus and configure exposure and sensitivity just like in professional DSLR cameras.
 
 ![exposure Pro mode Camera Android](https://static1.abbyy.com/abbyycommedia/26350/exposure-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Dynamic focus**
 
 Want to add a blurry background on Samsung S8? There is no need to install third-party applications for this purpose. Camera on Samsung features three types of focusing: close, far, and panoramic. Dynamic focusing lets you adjust image sharpness and focus depth. With this mode, you may take portrait images of two types: regular and wide angle.
@@ -104,16 +152,10 @@ Want to add a blurry background on Samsung S8? There is no need to install third
 ![Dynamic focus Camera Android Samsung S8](https://static1.abbyy.com/abbyycommedia/26351/dynamic-focus-1.png)
 
 <!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="120" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 **Dual Pixel technology**
 
@@ -125,12 +167,6 @@ Samsung surely follows modern trends. The frontal camera of Samsung [S8](https:/
 
 ![Samsung S8 Selfie photo Android](https://static1.abbyy.com/abbyycommedia/26352/stickers.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Object recognition**
 
 Samsung camera is trained to recognized objects on photos and search for similar images in the internet with the [Bixby](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.samsung.com%2Fglobal%2Fgalaxy%2Fapps%2Fbixby%2F) assistant. To activate Bixby, click the special button on your phone. Point your camera at an object or a landscape and the assistant will display related images and links that you can follow to buy these objects on the internet.
@@ -139,18 +175,6 @@ Samsung camera is trained to recognized objects on photos and search for similar
 
 Just like iPhone, Samsung lets you record 4K videos. To configure the quality or other settings of photo taking, go to Settings at the top panel of the camera app. You can also record slow-mo videos.
 
-<!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="540" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **ABBYY Tip: How to Add Data From Social Networks to BCR**
 
 With the last update, [iOS](http://qrs.ly/ip56xfe)BCR was enhanced with a feature that lets you search for contacts in Facebook and LinkedIn and transfer information from these social networks to business cards.
@@ -172,10 +196,10 @@ If your [BCR](http://qrs.ly/ip56xfe)contact lacked a photo, it will be added fro
 [BCR](http://qrs.ly/ip56xfe) will save a link to a Facebook or LinkedIn profile in a business card so that you can open a social network page at anytime.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115915/19272" target="_top" id="2115915">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115915" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115915/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **App of the Week: Valuta+ Currency Converter**
 
@@ -187,12 +211,6 @@ This user-friendly app converts over 170 currencies, works offline, and has a fa
 
 Valuta+ can be downloaded from [iOS](https://itunes.apple.com/us/app/valuta-currency-converter/id646925682?mt=8) and [Android](https://play.google.com/store/apps/details?id=com.danielnoehr.valuta&hl=en%5FUS).
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **First-Hand Experience: Advice From a Colleague**
 
 _By Elizaveta Titarenko, Copywriter_
@@ -200,16 +218,10 @@ _By Elizaveta Titarenko, Copywriter_
 ![abbyy advice rock climbing wall](https://static1.abbyy.com/abbyycommedia/26355/elizaveta-1.png)
 
 <!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Why engage in rock climbing?
 

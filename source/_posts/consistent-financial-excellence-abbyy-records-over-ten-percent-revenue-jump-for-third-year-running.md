@@ -1,22 +1,40 @@
 ---
 title: "Consistent Financial Excellence: ABBYY Records Over-Ten Percent Revenue Jump for Third Year Running"
-date: 2024-09-03T22:46:44.962Z
-updated: 2024-09-04T22:46:44.962Z
+date: 2024-09-08T23:40:20.363Z
+updated: 2024-09-09T23:40:20.363Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3f687d67d9383763ba88f12d8075ae8aa6427188f43a6303126317717e7f8427.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Consistent Financial Excellence: ABBYY Records Over-Ten Percent Revenue Jump for Third Year Running
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY achieves double-digit annual revenue growth for 3rd consecutive year
 
 March 24, 2020
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114263/17093" target="_top" id="2114263">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114263" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114263/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### ABBYY’s FY19 revenue growth was driven by RPA partnerships, an expanded product portfolio, and a strengthened global presence
 
   
@@ -122,16 +140,3 @@ Connect with us
 <li><a href="https://hardware-tips.techidaily.com/stay-chilled-under-pressure-cooler-masters-innovative-aio-and-air-cools-tackle-over-300-watt-heat-output/"><u>Stay Chilled Under Pressure: Cooler Master's Innovative AIO & Air Cools Tackle Over 300 Watt Heat Output</u></a></li>
 <li><a href="https://facebook.techidaily.com/the-comeback-kid-an-analysis-of-facebooks-staying-power/"><u>The Comeback Kid - An Analysis of Facebook’s Staying Power</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

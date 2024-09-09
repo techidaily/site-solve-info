@@ -1,7 +1,7 @@
 ---
 title: Distinguishing Between Process Intelligence and Business Intelligence for Strategic Decisions
-date: 2024-09-03T22:46:42.342Z
-updated: 2024-09-04T22:46:42.342Z
+date: 2024-09-08T23:40:18.043Z
+updated: 2024-09-09T23:40:18.043Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/48994c9ff35faf512b4c69833faf0e7ff28b80b0df78e2f2b0d58f413fb2991f.jpg
@@ -19,6 +19,18 @@ September 13, 2023
 
 ![](https://static3.abbyy.com/abbyycommedia/38083/ds-167_process-intelligence-vs-business-intelligence2.jpg) 
 
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 In der heutigen datengesteuerten Welt suchen Unternehmen ständig nach Möglichkeiten, ihre Geschäftsdaten zu nutzen, um bessere Entscheidungen zu treffen, Abläufe zu optimieren und einen Wettbewerbsvorteil zu erzielen. Zwei Schlüsseltechnologien haben sich herausgebildet, um komplizierte Geschäftsprozesse, die oft mit dem zentralen Nervensystem eines Unternehmens verglichen werden, zu quantifizieren und zu verstehen: Business Intelligence (BI) und Process Intelligence (PI).
 
 Während viele Menschen mit BI-Plattformen für die Visualisierung von Datenanalysen vertraut sind, ist PI ein neueres Konzept, das schnell an Zugkraft gewinnt, da es die Ausführung von Prozessen nahezu in Echtzeit aufzeigen und Erkenntnisse liefern kann, die alle Prozesse verbessern, einschließlich Robotic Process Automation (RPA). Entdecken Sie, wie Process Intelligence, beginnend mit Process Mining, zu bemerkenswerten Verbesserungen der betrieblichen Effizienz, Kosteneinsparungen, fundierten strategischen Entscheidungen und Business Excellence führt, die die Erwartungen der Kundinnen und Kunden erfüllen.
@@ -48,10 +60,10 @@ Wenn wir den Order-to-Cash-Prozess aus der Sicht von PI betrachten, verlagert si
 So kann Process Intelligence beispielsweise aufzeigen, dass ein bestimmter Prozessschritt, wie die Auftragsprüfung, zu lange dauert und dadurch Verzögerungen verursacht, die sich auf den gesamten Prozess auswirken. Oder PI deckt Fälle auf, in denen wichtige Schritte wie Kreditprüfungen übersprungen werden, was zu einem erhöhten finanziellen Risiko für das Unternehmen führt. Process Intelligence bietet eine ganzheitliche Perspektive und kann entscheidende Einblicke in die Prozessdynamik sowie Optimierungsmöglichkeiten offenbaren.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Was ist Business Intelligence (BI)?
 
@@ -68,27 +80,27 @@ Was BI Ihnen nicht sagen kann, zumindest nicht ohne einen großen Aufwand an ben
 
 Können Sie beispielsweise feststellen, ob die Fälle, in denen bestimmte Verkäufer die höchste Anzahl von Aufträgen erhielten, mit effizienten Kundeninteraktionen zusammenfielen, bei denen Anfragen umgehend bearbeitet wurden? Und können Sie umgekehrt feststellen, ob niedrige Auftragsraten mit langsamen Reaktionszeiten oder möglicherweise übersehenen Kundenanfragen korrelierten, bei denen der Versuch komplett ignoriert wurde? Hier versagt BI, da sie nicht in der Lage ist, diese Verbindungen herzustellen und aufzudecken.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Hauptunterschiede zwischen Process Intelligence und Business Intelligence
 
 ### Schwerpunkt
 
 **Process Intelligence** konzentriert sich auf die Analyse und Optimierung von Geschäftsprozessen, wobei der gesamte Prozesslebenszyklus betrachtet wird. **Business Intelligence** konzentriert sich auf die eingehende Analyse einzelner Prozessschritte.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Datenquellen
 
 **Process Intelligence** verwendet Ereignisprotokolle, Audit-Tabellen, Benutzerinteraktionen und Desktop-Aktivitäten als primäre Datenquellen. Business Intelligence nutzt Daten aus verschiedenen Quellen, die sich auf einen bestimmten Schritt/Teil eines Geschäftsprozesses beziehen, um Muster, Trends und Anomalien zu analysieren und zu visualisieren.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120862/26400?prodsku=Saturn" target="_top" id="2120862">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120862" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120862/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Ergebnisse
 
@@ -98,12 +110,6 @@ Können Sie beispielsweise feststellen, ob die Fälle, in denen bestimmte Verkä
 
 Zu den Tools von **Process Intelligence** gehören Process Mining, Task Mining, Analytik, Überwachung, Vorhersage und Simulation. Tools für **Business Intelligence** sind in der Regel Dashboards, Berichte, Datenanalysen und andere Visualisierungsfunktionen.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Wesentliche Gemeinsamkeiten zwischen Process Intelligence und Business Intelligence
 
 Process Intelligence und Business Intelligence weisen durchaus Ähnlichkeiten auf: Beide nutzen Unternehmensdaten zur visuellen Darstellung von Erkenntnissen, die das Management, die Analyse und die Entscheidungsprozesse unterstützen. Dieselben Data Warehouses können sowohl in PI- als auch in BI-Tools genutzt werden, die gewonnenen Erkenntnisse variieren jedoch je nach den Fähigkeiten und Einschränkungen der jeweiligen Plattform. Dieses Wissen ist sowohl für Studienanfänger als auch für Fachleute von grundlegender Bedeutung, denn es bildet die Grundlage für[informierte Entscheidungen und die Optimierung von Geschäftsabläufen](https://tools.techidaily.com/abbyy/products/) in einer datengesteuerten Welt.
@@ -111,10 +117,10 @@ Process Intelligence und Business Intelligence weisen durchaus Ähnlichkeiten au
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/process-intelligence-vs-business-intelligence/process-intelligence-and-business-intelligence-differences-and-similarities-de.png)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
-  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Process Intelligence und Business Intelligence: Was ist am besten?
 
@@ -128,6 +134,12 @@ Für diejenigen, die neu im Bereich Process Intelligence und Process Mining sind
 
 ![Scott Opitz ABBYY](https://static1.abbyy.com/abbyycommedia/25562/02a-scottopitz-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Scott Opitz
 
 Chief Technology Officer at ABBYY
@@ -139,10 +151,10 @@ In seiner 30-jährigen Laufbahn in der Computerbranche hat Scott Opitz verschied
 Zuvor fungierte er unter anderem als Senior Vice President, Worldwide Marketing & Business Development für webMethods (heute Software AG), wobei er für Marketing, Geschäftsentwicklung und strategische Produktplanung verantwortlich zeichnete. Zu webMethods war er im Zuge von dessen Übernahme von IntelliFrame Corporation gekommen, einem Unternehmen, das sowohl Produkte zur Datenintegration als auch die integrierte Workflow- und BPM-Plattform InVista bereitstellte, die Opitz mitgegründet hatte. Scott Opitz hat außerdem zahlreiche Führungspositionen in den Bereichen Technologie, Marketing und Geschäftsentwicklung für staatliche und privatwirtschaftliche Unternehmen bekleidet.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115910/19272" target="_top" id="2115910">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115910" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115910/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Gefällt mir, teilen oder neu posten 
 

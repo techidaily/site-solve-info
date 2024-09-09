@@ -1,7 +1,7 @@
 ---
 title: Die Geheimnisse Der ABBYY-Software Aufgedeckt in Rotterdams Modernem Kunstmuseum
-date: 2024-09-03T22:46:43.206Z
-updated: 2024-09-04T22:46:43.206Z
+date: 2024-09-08T23:40:18.841Z
+updated: 2024-09-09T23:40:18.841Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c74a6f4cbc3131991d1108cc0cd3851c9f4624d9f7132bc54e3318b3d6ad9b70.jpg
@@ -13,10 +13,28 @@ thumbnail: https://thmb.techidaily.com/c74a6f4cbc3131991d1108cc0cd3851c9f4624d9f
 
 Social Work
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115930/19272" target="_top" id="2115930">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115930" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115930/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Enthüllt: ABBYY Software im Rotterdam Museum of Modern Art
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/de/21638.png?h=40&iar=0&w=120)
 
+<!-- affiliate ads begin -->
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
 
 ## Enthüllt: ABBYY Software im Rotterdam Museum of Modern Art
@@ -29,18 +47,6 @@ Social Work
 | ------- | ------------------------------------------------------ |
 | Website | [www.simonheijdens.com](http://www.simonheijdens.com/) |
 
-<!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Zum Hintergrund
 
 Simon Heijdens ist ein weltbekannter holländischer Lichtinstallationskünstler. Ausgebildet in Design und experimentellem Film, wird seine Arbeit heute in Galerien rund um den Globus gezeigt und Unternehmen wie Swarovski engagieren ihn wegen seiner Fähigkeit, Natur und Gefühl in einen künstlichen Raum zu bringen. Heijdens benutzt Licht und Projektion, um die Faszination für die Rolle auszudrücken, die Objekte in unserer Gesellschaft spielen und um zu zeigen, wie sich unsere Wahrnehmung dieser Objekte verändern kann. Er kombiniert Technologie mit subtilem Design um künstlichen Objekten einen natürlichen Charakter zu verleihen und um in einem ansonsten statischen Raum wieder Zeit und Wandel einzuführen.
@@ -48,16 +54,16 @@ Simon Heijdens ist ein weltbekannter holländischer Lichtinstallationskünstler.
 Heijdens’ neueste Arbeit mit dem Titel „Wortgeflecht” wird im Espresso Café im Rotterdam Museum of Modern Art gezeigt und war eine technologische Herausforderung. Zusätzlich zum Design von Raum und Einrichtung wollte Heijdens ein Kunstwerk schaffen, das die Besucher des Cafés mit einbezieht. Er stellte sich die Cafétische als Oberfläche für einen Dialog vor, in dem Informationen in Form von Zeitungsschlagzeilen, Prospekten oder sogar Zigarettenschachteln ausgetauscht werden. Heijdens wollte diese Informationen aufzeichnen da er glaubte, dass sie sehr viel über die einzelnen Momente im Zeitverlauf erzählen. Er wollte eine lebendige![„Wortgeflecht” im Espresso Café im Rotterdam Museum of Modern Art](https://static1.abbyy.com/abbyycommedia/6029/museumofmodernart.png "„Wortgeflecht” im Espresso Café im Rotterdam Museum of Modern Art ") Aufzeichnung der Geschichte des Cafés schaffen, in der jeder Tisch seine eigene Geschichte erzählen sollte. „Was wäre, wenn ein Tisch ein Archiv seiner eigenen Nutzung werden könnte?” fragt Heijdens. „In meiner Arbeit geht es um das Aufbrechen der statischen Natur von Architektur. Ich mache Einschnitte in einem Raum um zu zeigen, was er erlebt hat und um zuzuhören, wie er benutzt wurde. Ich wollte nicht, dass die Menschen einfach nur durch das Café gehen und es wieder verlassen, ohne ihre Spuren zu hinterlassen. Ich wollte, dass zurückbleibt was dort passierte” sagt er.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2123480/16836" target="_top" id="2123480">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123480" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123480/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Die Herausforderung
 
@@ -69,6 +75,12 @@ Da das Werk eine dauerhafte Installation im Café sein sollte, musste es in der 
 „Das Werk war eine sehr öffentliche Darstellung von Kunst und Software, daher musste es funktionieren”, sagte Heijdens.  
 „Ich arbeitete auch mit einigen recht unterschiedlichen Elementen, angefangen von Beegungsmeldern über Bilderfassung und Zeichenerkennung bis hin zur tatsächlichen Projektion. Alle diese einzelnen Elemente zusammen zum Funktionieren zu bringen, war eine Herausforderung.”
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Die Lösung
 
 Heijdens sah sich mehrere serverbasierte Lösungen zur optischen Zeichenerkennung (OCR) verschiedener Anbieter an. OCR-Software nimmt Bilder von Texten und wandelt diese Bilder in digitalen Text um, der in einer Vielzahl von Formaten ausgegeben und genutzt werden kann. Heijdens kontaktierte ABBYY im Juli 2008 und testete umgehend ABBYY Recognition Server 2.0 Professional Edition. Einen Monat später hatte er die Software implementiert und an die spezifischen Bedürfnisse seines Werkes angepasst.  
@@ -77,12 +89,6 @@ Die Aufnahmen der Tische wurden direkt an Recognition Server 2.0 geschickt, und 
 „Auch die automatische Fehlertoleranz war Teil der Lösung”, so Jupp Stoepetie weiter.  
 „Das System ist in der Lage, auf intelligente Weise Aufgaben aufzuteilen und zu erkennen, wenn diese nicht ausgeführt werden. Gibt es ein Problem, so werden diese Aufgaben einfach umverteilt, um den Engpass zu umgehen. Die Lösung toleriert Systemfehler der darunter liegenden Computersysteme und kann sich selbst korrigieren, ohne dass menschliches Eingreifen erforderlich ist.”
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Das Ergebnis
 
 „Wortgeflecht“’ wurde der Öffentlichkeit am 27\. September 2008 mit großem Erfolg vorgestellt. Mehr als 3.000 Personen wohnten der Enthüllung bei. Nach wie vor ist es eine sehr beliebte Ausstellung, die seit der Installation große Datenmengen problemlos verarbeitet hat, und das mit einem Minimum an Wartungsaufwand durch Heijdens. „Die Lösung von ABBYY macht ihre Arbeit einfach sehr gut”, sagt Heijdens.  
@@ -94,10 +100,10 @@ Die Aufnahmen der Tische wurden direkt an Recognition Server 2.0 geschickt, und 
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Über ABBYY und Kontaktmöglichkeiten
 
@@ -107,18 +113,6 @@ Die Aufnahmen der Tische wurden direkt an Recognition Server 2.0 geschickt, und 
 
 Teilen 
 
-<!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="150" height="125" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Sind Sie bereit, mit einem Experten zu sprechen?
 
 Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.

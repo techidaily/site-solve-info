@@ -1,24 +1,42 @@
 ---
 title: East Midlands Railway Enhances Daily Email Throughput by More than 5 Hours Using ABBYY & Engeneum
-date: 2024-09-03T22:46:41.428Z
-updated: 2024-09-04T22:46:41.428Z
+date: 2024-09-08T23:40:17.157Z
+updated: 2024-09-09T23:40:17.157Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/df4c1493c2f3e813888bfc3942921b3c21459900f9f223dcb15b2289e52ca077.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## East Midlands Railway Enhances Daily Email Throughput by More than 5 Hours Using ABBYY & Engeneum
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
 Transportation & Logistics | Accounts Payable Automation
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## East Midlands Railway Improves Email Processing Time By Over Five Hours Per Day with ABBYY and Engeneum
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/en/147389.png?h=40&iar=0&w=120)
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## East Midlands Railway Improves Email Processing Time By Over Five Hours Per Day with ABBYY and Engeneum
 
 Transportation & Logistics | Accounts Payable Automation 
@@ -85,26 +103,50 @@ ABBYY’s intelligent automation platform is the only solution that automates th
 
 [![ABBYY FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114264/17093" target="_top" id="2114264">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114264" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114264/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Learn more about ABBYY solutions for accounts payable automation](https://static4.abbyy.com/abbyycommedia/14351/1-accounts-payable.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY Solutions for Accounts Payable Automation](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Download the PDF version](https://static5.abbyy.com/abbyycommedia/37728/east-midlands-railway-case-study-intelligent-automation-en_tn_360x162.jpg)](https://static2.abbyy.com/abbyycommedia/37649/east-midlands-railway-case-study-intelligent-automation-en.pdf "PDF Version") [PDF Version](https://static2.abbyy.com/abbyycommedia/37649/east-midlands-railway-case-study-intelligent-automation-en.pdf "PDF Version") 
 
+<!-- affiliate ads begin -->
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Read the document](https://static2.abbyy.com/abbyycommedia/37649/east-midlands-railway-case-study-intelligent-automation-en.pdf "PDF Version") 
 
 [More about ABBYY](https://tools.techidaily.com/abbyy/products/) 
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.
