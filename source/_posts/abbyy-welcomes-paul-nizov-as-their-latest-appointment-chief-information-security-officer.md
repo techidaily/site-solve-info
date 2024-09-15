@@ -1,18 +1,12 @@
 ---
 title: "ABBYY Welcomes Paul Nizov as Their Latest Appointment: Chief Information Security Officer"
-date: 2024-09-08T23:40:16.891Z
-updated: 2024-09-09T23:40:16.891Z
+date: 2024-09-09T18:12:54.001Z
+updated: 2024-09-14T17:10:13.658Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/66ccde26d86877f06eba74ce71d6ed3e3e1b37f9fff9b02e8a19618a5ac1ec1e.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Welcomes Paul Nizov as Their Latest Appointment: Chief Information Security Officer
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
@@ -23,26 +17,8 @@ April 20, 2021
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![News Noimage](https://static1.abbyy.com/abbyycommedia/33654/news-noimage.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ABBYY, a Digital Intelligence company, today announced Paul Nizov has joined the company’s leadership team as Chief Information Security Officer. In this newly established role, Paul will advocate the importance and impact of security among the company’s leadership team; manage security risk; and oversee the strategic, operational, and budgetary aspects of secure software development, data privacy, and information protection.
 
 The CISO role is of paramount importance for technology organizations, and we’re excited Paul has joined ABBYY to continue to drive the highest standards of security for SaaS and on-premise deployments of our rapidly growing Digital Intelligence solutions. The addition of Paul to our team reflects our commitment to provide customers and partners with products and solutions designed, deployed, and delivered with state-of-the-art security practices in mind. Information security and data privacy are non-negotiables.
@@ -59,34 +35,16 @@ Paul has built and managed information and cyber security programs in sectors su
 
 Paul holds a Juris Doctor from the SMU Dedman School of Law, a Bachelor of Science in Electrical Engineering from the University of Texas at Dallas, and the following information security certifications: CISSP and CISM. Paul is also a U.S. military veteran, having served in the U.S. Navy as a Nuclear Submarine Officer. As part of his military service, Paul graduated from Naval Nuclear Power School in Charleston, South Carolina, and Naval Nuclear Prototype in Ballston Spa, New York.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115935/19272" target="_top" id="2115935">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115935" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115935/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### About ABBYY
 
 ABBYY empowers organizations to gain a complete understanding of their business processes and the content that fuels them with its [Digital Intelligence](https://tools.techidaily.com/abbyy/products/) platform. ABBYY technologies are used by more than 5,000 companies, including many of the Fortune 500, and is recognized for its leadership in [Intelligent Document Processing](https://tools.techidaily.com/abbyy/products/) (IDP) and [Process Discovery & Mining](https://tools.techidaily.com/abbyy/products/) for driving significant impact where it matters most: customer experience, effectiveness, profitability, and competitive advantage. ABBYY is a global company with offices in 14 countries. For more information, visit [www.abbyy.com/company/about-us/](https://tools.techidaily.com/abbyy/products/).[](https://tools.techidaily.com/abbyy/products/)
 
 ABBYY and the ABBYY Logo are either registered trademarks or trademarks of ABBYY Software Ltd. Other product names mentioned herein may be trademarks and/or registered trademarks of their respective owners and are hereby recognized.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### ABBYY Editorial Contact
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Gina Ray, APR
 
 (949) 370-0941
@@ -102,8 +60,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -113,48 +69,25 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-elevate-every-frame-the-best-practices-in-11-video-grading-guides-for-2024/"><u>[New] Elevate Every Frame  The Best Practices in 11 Video Grading Guides for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-immersive-animal-life-on-android-ultimate-list/"><u>[New] Immersive Animal Life on Android  Ultimate List</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-navigating-google-meet-enrollment-for-2024/"><u>[New] Navigating Google Meet Enrollment for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/11-best-free-youtube-name-generators-you-should-know-for-2024/"><u>11 Best Free YouTube Name Generators You Should Know for 2024</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/8-safe-and-effective-methods-to-unlock-your-apple-iphone-15-without-a-passcode-by-drfone-ios/"><u>8 Safe and Effective Methods to Unlock Your Apple iPhone 15 Without a Passcode</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-fur-den-schnellen-und-intelligenten-umgang-mit-belegdokumentation-expertise-in-der-dokumentenverarbeitungstechnologie/"><u>ABBYY Für Den Schnellen Und Intelligenten Umgang Mit Belegdokumentation - Expertise in Der Dokumentenverarbeitungstechnologie</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyys-innovative-approach-to-building-a-secure-future-via-advanced-automated-solutions/"><u>ABBYY's Innovative Approach to Building a Secure Future via Advanced Automated Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/advanced-ocr-and-data-capture-using-abyby-flexicapture-for-laserfiche-powerful-tools-from-abbyy-solutions/"><u>Advanced OCR and Data Capture Using ABYBY FlexiCapture for Laserfiche - Powerful Tools From ABBYY Solutions</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/bards-clash-with-gpt-vs-online-sheep-best-ai-ranked/"><u>Bards Clash with GPT, vs Online Sheep - Best AI Ranked</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-traffic-with-cookiebot-the-ultimate-seo-and-marketing-solution-for-modern-websites/"><u>Boost Traffic With Cookiebot: The Ultimate SEO and Marketing Solution for Modern Websites</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-user-experience-and-data-insights-with-our-cookiebot-integration-technology/"><u>Boost User Experience & Data Insights with Our Cookiebot Integration Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-your-sites-performance-using-the-advanced-features-of-cookiebot/"><u>Boost Your Site's Performance Using the Advanced Features of Cookiebot</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enabled-enhance-your-site-with-smart-data-tracking-solutions/"><u>Cookiebot-Enabled: Enhance Your Site with Smart Data Tracking Solutions</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ing-the-algorithm-behind-youtube-shorts/"><u>Decoding the Algorithm Behind YouTube Shorts</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhance-your-application-with-ai-ocr-tech-join-the-abbyy-expert-talk/"><u>Enhance Your Application with AI OCR Tech: Join the ABBYY Expert Talk</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-traffic-with-customized-cookiebot-technology/"><u>Enhanced Traffic with Customized Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-patient-connections-optimizing-your-referral-to-appointment-process/"><u>Enhancing Patient Connections: Optimizing Your Referral-to-Appointment Process</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-user-experience-through-cookiebot-driven-seo-strategies/"><u>Enhancing User Experience Through Cookiebot-Driven SEO Strategies</u></a></li>
-<li><a href="https://solve-info.techidaily.com/expediting-cross-border-trade-the-impact-of-a-five-minute-clearance-gap-at-the-uk-eu-frontier/"><u>Expediting Cross-Border Trade: The Impact of a Five-Minute Clearance Gap at the UK-EU Frontier</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/expert-tips-for-capturing-and-storing-facebook-messages/"><u>Expert Tips for Capturing and Storing Facebook Messages</u></a></li>
-<li><a href="https://change-location.techidaily.com/guide-how-to-unbrick-a-bricked-samsung-galaxy-s23-phone-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Guide How To Unbrick a Bricked Samsung Galaxy S23 Phone | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/how-abbyys-instantaneous-text-digitization-propels-rapid-advancements-in-the-digital-realm/"><u>How ABBYY’s Instantaneous Text Digitization Propels Rapid Advancements in the Digital Realm</u></a></li>
-<li><a href="https://solve-info.techidaily.com/how-covid-has-changed-employees-perspectives-a-staggering-25-contemplating-job-change-due-to-flawed-business-operations/"><u>How COVID Has Changed Employees' Perspectives: A Staggering 25%% Contemplating Job Change Due to Flawed Business Operations</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-in-ar-games-on-vivo-y100a-drfone-by-drfone-virtual-android/"><u>In 2024, How to Simulate GPS Movement in AR games On Vivo Y100A? | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-leading-digital-adjustments-optimal-photo-framing-software-2023/"><u>In 2024, Leading Digital Adjustments  Optimal Photo Framing Software, 2023</u></a></li>
-<li><a href="https://solve-info.techidaily.com/iphone-app-for-seamless-document-digitalization-advanced-ocr-scan-and-pdfjpg-integration-made-easy/"><u>IPhone App for Seamless Document Digitalization: Advanced OCR Scan and PDF/JPG Integration Made Easy!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/iphone-scanning-app-convert-documents-and-images-into-pdf-using-ocr-technology/"><u>IPhone Scanning App: Convert Documents & Images Into PDF Using OCR Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/meinungsforschungsanalyse-mit-abbyy-wie-connexions-zur-optimierung-seiner-methoden-beitragt/"><u>Meinungsforschungsanalyse Mit ABBYY: Wie Connexions Zur Optimierung Seiner Methoden Beiträgt</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimisation-des-processus-rpa-grace-a-une-analyse-avancee-strategies-defficacite-avec-abbyy/"><u>Optimisation Des Processus RPA Grâce À Une Analyse Avancée : Stratégies D'efficacité Avec ABBYY</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimisez-votre-strategie-logistique-guide-de-la-liste-de-controle-pour-le-transports/"><u>Optimisez Votre Stratégie Logistique: Guide De La Liste De Contrôle Pour Le Transports</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimized-through-next-level-advertising-tools-provided-by-cookiebot/"><u>Optimized Through Next-Level Advertising Tools Provided by Cookiebot</u></a></li>
-<li><a href="https://solve-info.techidaily.com/photography-tips-and-task-management-secrets-revealed-on-abbyy-blog/"><u>Photography Tips & Task Management Secrets Revealed on ABBYY Blog</u></a></li>
-<li><a href="https://solve-info.techidaily.com/pourquoi-utiliser-le-mining-processeux-exploration-des-avantages-et-cas-dusage/"><u>Pourquoi Utiliser Le Mining Processeux? Exploration Des Avantages Et Cas D'Usage</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/quick-intro-to-instagram-video-chat/"><u>Quick Intro to Instagram Video Chat</u></a></li>
-<li><a href="https://solve-info.techidaily.com/revolutionize-quick-cashflow-with-abbyys-mobile-ocr-sdk-for-instantaneous-loan-approvals/"><u>Revolutionize Quick Cashflow with ABBYY's Mobile OCR SDK for Instantaneous Loan Approvals!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/revolutionize-your-operations-the-power-of-digital-replicas-and-simulated-processes-for-business-advancement/"><u>Revolutionize Your Operations: The Power of Digital Replicas and Simulated Processes for Business Advancement</u></a></li>
-<li><a href="https://solve-info.techidaily.com/scott-opitz-transitions-to-key-leadership-roles-as-cto-and-cpo-at-dabbyy/"><u>Scott Opitz Transitions to Key Leadership Roles as CTO and CPO at D'Abbyy</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/stellaris-space-saga-reviewed-mastering-exploration-empire-building-and-warfare/"><u>Stellaris Space Saga Reviewed - Mastering Exploration, Empire Building, and Warfare</u></a></li>
-<li><a href="https://solve-info.techidaily.com/transform-your-iphone-photos-into-searchable-text-files-using-finereaders-powerful-ocr-technology/"><u>Transform Your iPhone Photos Into Searchable Text Files Using FineReader's Powerful OCR Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unleash-potential-with-smart-cookie-technology-discover-your-sites-secret-weapon/"><u>Unleash Potential with Smart Cookie Technology: Discover Your Site's Secret Weapon!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unleash-the-potential-of-clever-automation-this-september-join-abbyys-enlightening-journey/"><u>Unleash the Potential of Clever Automation This September – Join ABBYY's Enlightening Journey</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unlocking-the-hidden-potential-in-your-supply-chain-dont-miss-out-on-this-key-advantage/"><u>Unlocking the Hidden Potential in Your Supply Chain: Don't Miss Out on This Key Advantage</u></a></li>
-<li><a href="https://solve-info.techidaily.com/utilizing-cookiebot-technology-for-effective-user-tracking-and-personalization/"><u>Utilizing Cookiebot Technology for Effective User Tracking and Personalization</u></a></li>
-<li><a href="https://solve-info.techidaily.com/visionary-executive-neil-murphy-guides-global-strategy-as-emea-channel-chief-and-svp-at-top-level-sales-position/"><u>Visionary Executive Neil Murphy Guides Global Strategy as EMEA Channel Chief and SVP at Top-Level Sales Position</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-innovative-designs-unleashed-comprehensive-guide-to-animation-suites/"><u>[Updated] Innovative Designs Unleashed Comprehensive Guide to Animation Suites</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/a-how-to-guide-on-bypassing-apple-iphone-x-icloud-activation-lock-by-drfone-ios/"><u>A How-To Guide on Bypassing Apple iPhone X iCloud Activation Lock</u></a></li>
+<li><a href="https://games-able.techidaily.com/assessing-gpus-graphical-memory-usage/"><u>Assessing GPU's Graphical Memory Usage</u></a></li>
+<li><a href="https://blog-min.techidaily.com/best-top-rated-free-tools-for-reviving-and-enhancing-vintage-photographs/"><u>Best Top-Rated Free Tools for Reviving and Enhancing Vintage Photographs</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-icloud-lock-on-iphone-se-2022-by-drfone-ios/"><u>In 2024, How to Bypass iCloud Lock on iPhone SE (2022)</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-realme-11-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on Realme 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/smart-integration-of-ai-and-robotics-in-modern-medicine-infographic-guide/"><u>Smart Integration of AI and Robotics in Modern Medicine - Infographic Guide</u></a></li>
+<li><a href="https://solve-info.techidaily.com/streamlined-workflow-integration-with-pipefy-and-abbyy-document-automation/"><u>Streamlined Workflow Integration with Pipefy & ABBYY Document Automation</u></a></li>
+<li><a href="https://solve-info.techidaily.com/texthelp-und-abbyy-revolutionarer-support-fur-menschen-mit-leseschwache-oder-dysgraphie/"><u>Texthelp Und ABBYY: Revolutionärer Support Für Menschen Mit Leseschwäche Oder Dysgraphie</u></a></li>
+<li><a href="https://video-capture.techidaily.com/top-ps3-emulators-your-gateway-to-classic-games-for-2024/"><u>Top Ps3 Emulators Your Gateway to Classic Games for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/unleash-potential-with-our-cookiebot-integrated-services/"><u>Unleash Potential with Our Cookiebot Integrated Services</u></a></li>
+<li><a href="https://solve-info.techidaily.com/untapped-opportunities-how-british-enterprises-can-harness-automation-advantages-according-to-abbyy-insights/"><u>Untapped Opportunities: How British Enterprises Can Harness Automation Advantages, According to ABBYY Insights</u></a></li>
+<li><a href="https://solve-info.techidaily.com/verbessern-sie-die-sicherheit-von-dokumenten-bei-der-eingabe-mit-tangro-hochladen-per-process-security/"><u>Verbessern Sie Die Sicherheit Von Dokumenten Bei Der Eingabe Mit Tangro® - Hochladen per Process Security</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115927/19272" target="_top" id="2115927">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115927" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115927/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

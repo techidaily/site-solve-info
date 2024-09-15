@@ -1,46 +1,22 @@
 ---
 title: How ABBYY’s Instantaneous Text Digitization Propels Rapid Advancements in the Digital Realm
-date: 2024-09-08T23:40:17.325Z
-updated: 2024-09-09T23:40:17.325Z
+date: 2024-09-11T20:12:07.456Z
+updated: 2024-09-14T21:14:50.684Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c1db4ec27c5136dcd8d29377fc669f9488ff5fcb91d758bff8fe15d9459484d0.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How ABBYY’s Instantaneous Text Digitization Propels Rapid Advancements in the Digital Realm
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Real-Time Text Recognition promises to accelerate the digital journey
 
 April 11, 2017
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### _New ‘point and capture’ toolkit empowers instant use of text-based information viewed through smartphones and tablets_
 
 ABBYY Europe, a leading provider of technologies and solutions to action information, today introduced its new Real-Time Recognition technology, enabling ‘instant’ text extraction from the preview screen of mobile devices. Real-Time Recognition based on ABBYY technology enables faster, simpler extraction of text from documents and objects placed in the live video stream from smartphone and mobile device’ cameras. Data extracted using Real-Time Recognition can be used in a variety of mobile applications ranging from highly responsive customer services to automated enterprise processes and consumer apps.
@@ -85,8 +61,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -96,53 +70,28 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-unveiling-the-new-era-of-screen-capture-with-apeaksoft/"><u>[New] 2024 Approved  Unveiling the New Era of Screen Capture with Apeaksoft</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-innovative-screencapping-a-practical-sequential-handbook/"><u>[New] In 2024, Innovative Screencapping  A Practical, Sequential Handbook</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-streamline-your-zoom-meetings-screen-sharing-essentials-for-2024/"><u>[New] Streamline Your Zoom Meetings  Screen Sharing Essentials for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-instagram-engage-obs-live-streaming-for-2024/"><u>[Updated] Instagram Engage  OBS Live Streaming for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/iuoajoepvus7oplusiyvplusaykplusmhkeiejeobqplusaxguocgeocieocjoocipluswkiewmljrlibxpgkdnmotjgarllypoyzop6pmsbrjga7miyvms5xjgajjgavvjjgi0i/"><u>「現代貿易金融に求められる変化:創造的な問題解決の手法とは？」</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/2024-approved-from-minutes-to-seconds-mastering-time-lapse-video-production/"><u>2024 Approved From Minutes to Seconds Mastering Time Lapse Video Production</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-sdk-nouveau-kit-dintegration-pour-la-prise-de-commande-rapide-et-reactive-des-donnees/"><u>ABBYY SDK Nouveau Kit D'Intégration Pour La Prise De Commande Rapide Et Réactive Des Données</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyys-intelligent-capture-connector-now-ready-on-uipath-marketplace-enhance-automation-with-advanced-ocr-technology/"><u>ABBYY's Intelligent Capture Connector Now Ready on UiPath Marketplace, Enhance Automation with Advanced OCR Technology!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-e201/"><u>ABBYY自動請求書解析と電子文書対応ソリューションの紹介: Eドキュメントジャパン201</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-abbyy-flexicapture-ai-ocr/"><u>ABBYYブログで解析: 効果的な帳票処理を可能にするABBYY FlexiCapture - AI OCRプラットフォームの革新</u></a></li>
-<li><a href="https://solve-info.techidaily.com/ai-driven-process-improvement-and-efficient-paperwork-management-in-government-sectors/"><u>AI-Driven Process Improvement & Efficient Paperwork Management in Government Sectors</u></a></li>
-<li><a href="https://howto.techidaily.com/app-wont-open-on-your-vivo-s17-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Vivo S17? Here Are All Fixes | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-fueled-automated-marketing-solutions/"><u>Cookiebot-Fueled Automated Marketing Solutions</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/deciphering-youtube-shorts-a-comprehensive-overview/"><u>Deciphering YouTube Shorts  A Comprehensive Overview</u></a></li>
-<li><a href="https://solve-info.techidaily.com/die-geheimnisse-der-abbyy-software-aufgedeckt-in-rotterdams-modernem-kunstmuseum/"><u>Die Geheimnisse Der ABBYY-Software Aufgedeckt in Rotterdams Modernem Kunstmuseum</u></a></li>
-<li><a href="https://solve-info.techidaily.com/drive-more-visitors-using-the-power-of-cookiebot/"><u>Drive More Visitors Using the Power of Cookiebot</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-document-digitization-with-next-level-technology-the-abbyy-flexicapture-cloud-upgrade/"><u>Elevate Document Digitization with Next-Level Technology: The ABBYY FlexiCapture Cloud Upgrade</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-user-experience-using-cookiebot-analytics-technology/"><u>Elevate User Experience Using Cookiebot Analytics Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhance-user-experience-and-analytics-via-the-advanced-cookiebot-integration-features/"><u>Enhance User Experience & Analytics via the Advanced Cookiebot Integration Features</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhance-your-web-analytics-using-the-cookiebot-platform/"><u>Enhance Your Web Analytics Using the Cookiebot Platform</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-conversion-rates-with-cookiebot-technology/"><u>Enhanced Conversion Rates with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-conversion-rates-with-our-cookiebot-driven-technology/"><u>Enhanced Conversion Rates with Our Cookiebot-Driven Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-conversion-rates-optimized-with-cookiebot-technology/"><u>Enhanced Conversion Rates: Optimized with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-marketing-insights-through-cookiebot-technology/"><u>Enhanced Marketing Insights Through Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-marketing-success-with-cookiebot-technology/"><u>Enhanced Marketing Success with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-user-experience-with-cookiebots-smart-data-tracking-solutions/"><u>Enhanced User Experience with Cookiebot's Smart Data Tracking Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-user-tracking-with-cookiebot-technology/"><u>Enhanced User Tracking with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-intelligence-in-the-digital-age-how-abbyy-plus-blue-prism-revolutionize-efficiency/"><u>Enhancing Intelligence in the Digital Age: How ABBYY + Blue Prism Revolutionize Efficiency</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-websites-with-cookiebot-technology-for-better-engagement/"><u>Enhancing Websites with Cookiebot Technology for Better Engagement</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-your-site-with-cookiebot-personalized-analytics-and-retargeting-solutions/"><u>Enhancing Your Site with Cookiebot: Personalized Analytics & Retargeting Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-your-sites-performance-through-advanced-analytics-tools/"><u>Enhancing Your Site's Performance Through Advanced Analytics Tools</u></a></li>
-<li><a href="https://solve-info.techidaily.com/erfolgreiche-digitale-strategien-fur-banken-nach-dem-wandel-implementierung-von-digital-twins-im-bereich-der-kredite/"><u>Erfolgreiche Digitale Strategien Für Banken Nach Dem Wandel – Implementierung Von Digital Twins Im Bereich Der Kredite</u></a></li>
-<li><a href="https://solve-info.techidaily.com/harness-the-power-of-cookiebot-for-enhanced-site-analytics-and-user-engagement/"><u>Harness the Power of Cookiebot for Enhanced Site Analytics & User Engagement</u></a></li>
-<li><a href="https://solve-info.techidaily.com/harnessing-the-power-of-cookiebot-for-advanced-web-tracking-solutions/"><u>Harnessing the Power of Cookiebot for Advanced Web Tracking Solutions</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/improve-your-pc-graphics-nvidia-geforce-rtx-3080-drivers-for-windows-download-today/"><u>Improve Your PC Graphics: NVIDIA GeForce RTX 3080 Drivers for Windows - Download Today</u></a></li>
-<li><a href="https://solve-info.techidaily.com/innovative-strategies-for-boosting-your-websites-page-visibility/"><u>Innovative Strategies for Boosting Your Website's Page Visibility</u></a></li>
-<li><a href="https://solve-info.techidaily.com/leverage-cookiebot-technology-for-improved-website-insights-and-optimization/"><u>Leverage Cookiebot Technology for Improved Website Insights and Optimization</u></a></li>
-<li><a href="https://solve-info.techidaily.com/mastering-the-procurement-and-payments-journey-a-definitive-guide/"><u>Mastering the Procurement and Payments Journey: A Definitive Guide</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimized-with-the-help-of-cookiebot-enhanced-website-analytics/"><u>Optimized with the Help of Cookiebot: Enhanced Website Analytics</u></a></li>
-<li><a href="https://solve-info.techidaily.com/revolutionizing-document-automation-through-abbyy-vance-harnessing-power-of-computer-vision-and-large-language-models/"><u>Revolutionizing Document Automation Through ABBYY Vance - Harnessing Power of Computer Vision and Large Language Models</u></a></li>
-<li><a href="https://solve-info.techidaily.com/revolutionizing-public-sector-the-impact-of-artificer-intelligence-in-citizen-identification/"><u>Revolutionizing Public Sector: The Impact of Artificer Intelligence in Citizen Identification</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/steam-game-startup-problems-resolved-a-comprehensive-guide-for-windows-10-users/"><u>Steam Game Startup Problems Resolved: A Comprehensive Guide for Windows 10 Users</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/strategies-for-procuring-high-quality-clip-art-with-no-cost/"><u>Strategies for Procuring High-Quality Clip Art with No Cost</u></a></li>
-<li><a href="https://solve-info.techidaily.com/top-process-insight-narratives-from-abbyys-annual-digest/"><u>Top Process Insight Narratives From ABBYY's Annual Digest</u></a></li>
-<li><a href="https://solve-info.techidaily.com/top-questions-customers-have-on-ai-insights-and-explanations-for-your-peace-of-mind/"><u>Top Questions Customers Have on AI - Insights & Explanations for Your Peace of Mind</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/toshiba-55lf711u20-the-perfect-fire-tv-edition-television-for-prime-video-lovers/"><u>Toshiba 55LF711U20 - The Perfect Fire TV Edition Television for Prime Video Lovers</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/1722959521992-trouble-with-your-startech-hardware-heres-how-to-update-and-fix-drivers-on-widows-os/"><u>Trouble with Your StarTech Hardware? Here's How to Update & Fix Drivers on Widows OS!</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-music-from-infinix-note-30-5g-by-fonelab-android-recover-music/"><u>Undelete lost music from Infinix Note 30 5G</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unlocking-marketing-potential-with-predictive-analytics-from-cookiebot-technology/"><u>Unlocking Marketing Potential with Predictive Analytics From Cookiebot Technology</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-vimeo-in-a-nutshell-the-video-sharing-experience-for-2024/"><u>[New] Vimeo in a Nutshell The Video Sharing Experience for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-10-youtube-tips-for-teachers/"><u>[Updated] In 2024, 10 YouTube Tips for Teachers</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-mac-users-choice-why-screenflow-dominates-the-market-for-2024/"><u>[Updated] Mac Users' Choice Why ScreenFlow Dominates the Market for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-avoidance-manual-how-to-skip-edgenuity-courses-without-penalty/"><u>2024 Approved Avoidance Manual How to Skip Edgenuity Courses Without Penalty</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/erated-steps-to-rearrange-youtube-music-ordering-for-2024/"><u>Accelerated Steps to Rearrange YouTube Music Ordering for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-fueled-personalization-enhance-user-experience-with-smart-marketing-automation/"><u>Cookiebot-Fueled Personalization: Enhance User Experience with Smart Marketing Automation</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-user-experience-through-smart-analytics/"><u>Cookiebot: Enhanced User Experience Through Smart Analytics</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-enhancing-user-experience-with-personalization-and-data-driven-marketing/"><u>Cookiebot: Enhancing User Experience with Personalization and Data-Driven Marketing</u></a></li>
+<li><a href="https://solve-info.techidaily.com/discover-abbyys-best-digital-intelligence-narratives-from-202-2-top-six-picks-unveiled-in-our-latest-post/"><u>Discover ABBYY's Best Digital Intelligence Narratives From 202 2 - Top Six Picks Unveiled in Our Latest Post!</u></a></li>
+<li><a href="https://solve-info.techidaily.com/discover-culinary-convenience-with-abbyys-recipe-digitization-and-photo-enchantment-featured-on-our-blog/"><u>Discover Culinary Convenience with ABBYY's Recipe Digitization and Photo Enchantment - Featured on Our Blog</u></a></li>
+<li><a href="https://solve-info.techidaily.com/distinguishing-between-process-intelligence-and-business-intelligence-for-strategic-decisions/"><u>Distinguishing Between Process Intelligence and Business Intelligence for Strategic Decisions</u></a></li>
+<li><a href="https://solve-info.techidaily.com/driving-engagement-through-smart-data-insights-enhanced-by-cookiebot-technology/"><u>Driving Engagement Through Smart Data Insights: Enhanced by Cookiebot Technology</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/enjoyable-footage-recorder-test/"><u>Enjoyable Footage Recorder Test</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/excellent-cameras-facing-panel-first-choice-for-2024/"><u>Excellent Cameras Facing Panel First Choice for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-restore-sound-on-your-logitech-g-pro-x-mic-step-by-step-solution/"><u>How To Restore Sound on Your Logitech G Pro X Mic (Step-by-Step Solution)</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-poco-c55-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Poco C55 To iPhone 15/14/13? | Dr.fone</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

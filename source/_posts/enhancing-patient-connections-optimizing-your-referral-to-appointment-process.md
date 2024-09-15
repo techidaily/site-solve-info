@@ -1,18 +1,12 @@
 ---
 title: "Enhancing Patient Connections: Optimizing Your Referral-to-Appointment Process"
-date: 2024-09-08T23:40:17.275Z
-updated: 2024-09-09T23:40:17.275Z
+date: 2024-09-12T22:49:03.519Z
+updated: 2024-09-14T19:10:30.619Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/dd8665fd574b8b8849bc905e8ab75258e662c1b7c7637037d5e86d15b1b9eaa1.png
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114265/17093" target="_top" id="2114265">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114265" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114265/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Enhancing Patient Connections: Optimizing Your Referral-to-Appointment Process
 
 12345678/ 8100%实际尺寸适合宽度适合高度适合页面自动介绍杂志连续的
@@ -32,8 +26,6 @@ Platform Options On-premise Servers SaaS Cloud Picking the perfect platform (for
 From simple documents to valuable intelligence Anyone who has worked with faxed documents in the past can relate to this unfortunate scenario: Staﬀ return to the clinic on Monday morning and ﬁnd documents from the fax machine strewn all over the ﬂoor. Orcutt has witnessed this common occurrence. Electronic transition of referrals can help; however, the electronic documents are still sitting in the queue. “They’re a little neater, but they can still be lost in the digital abyss, and staﬀ members still might transcribe patient and insurance information incorrectly,” he pointed out. Advanced technologies such as IDP and RPA can help healthcare organizations bring referral management to the next level. These technologies can transform data from business and clinical-critical documents into actionable intelligence, driving real-time automation and improved clinical and revenue cycle outcomes. IDP, for example, employs advanced technologies such as optical character recognition, natural language processing and machine learning to automate the extraction, interpretation and processing of data from various documents. By streamlining manual document-related tasks, IDP enhances eﬃciency, accuracy and compliance. The technology also helps add signiﬁcant speed to the referral management process. Consider the following: “If there’s a spreadsheet, the technology could do a thousand checks before our human can do one simple check. There’s logic built into it, so the technology discerns what’s in that spreadsheet and, based on the rules, it knows what to do next,” Rodgers explained. \[With intelligent document processing,\] the technology discerns what’s in that spreadsheet and, based on the rules, it knows what to do next.” ROBERT RODGERS [What is Intelligent Document Processing,](https://tools.techidaily.com/abbyy/products/) [and How Does It Work?](https://tools.techidaily.com/abbyy/products/) Learn what this technology can do for your organization. REFERRAL MANAGEMENT CHALLENGES REMOVING MANUAL PROCESSES USING PROCESS INTELLIGENCE ENSURING COMPLIANCE & SECURITY CHOOSING YOUR PLATFORM STREAMLINING YOUR REFERRALS AUTOMATING YOUR PROCESSES STREAMLINING YOUR REFERRALS 
 
 www.himss.org | ©2024 Produced by About ABBYY ABBYY puts your information to work with purpose-built AI. We combine innovation and experience to transform data from business-critical documents into intelligent actionable outcomes in over 200 languages in real time. We are trusted by more than 10,000 companies globally, including many of the Fortune 500, to drive signiﬁcant impact where it matters most: accelerate the customer experience, operational excellence, and competitive advantage. ABBYY is a global company with headquarters in Milpitas, CA, and oﬃces in 12 countries, and is the [Oﬃcial Intelligent Automation Partner of Arsenal Women Football Club](https://tools.techidaily.com/abbyy/products/). For more information, visit [www.abbyy.com/company/](https://tools.techidaily.com/abbyy/products/) and follow us on LinkedIn, Twitter , Facebook and Instagram. Reaching the holy grail: Straight-through processing for referrals Advanced technologies might be the antidote to long- held referral management challenges and can drive the customer-service mentality many forward-thinking companies have embraced. Indeed, IDP automatically pulls the patient and referral information from the fax or email attachment and populates the electronic health record or appointment system, eliminating the need to manually enter data. Such technology has been shown to save a provider 10 minutes per referral. This technology could potentially result in “straight-through processing,” automating the entire referral process all the way to scheduling an appointment with the specialist. “Sure, some organizations might not use the technology to go all the way to scheduling a patient right away, but they might send the patient an SMS text that links to the specialist’s calendar and enables the patient to set up their appointment,” Rodgers noted. The technology not only results in cost avoidance by eliminating the need to rely on staﬀ to process referrals but can also potentially bring in additional revenue. Consider the following: By leveraging this technology, HCOs could optimize the revenue that they collect from diagnostic services. “If your HCO has an MRI machine, and your equipment is underutilized, the HCO will be missing out on revenue. Being eﬀective at taking in external referrals to ensure you are highly utilizing your MRI machine can result in additional net revenue for many specialists,” he pointed out. The technology also holds signiﬁcant promise for patients like Mary, who could have experienced much less anxiety, not to mention improved clinical results, if she had been able to quickly schedule an appointment with a specialist. These beneﬁts can put HCOs in a position to succeed. “The technology not only closes the gap on the leakage, but it also enables healthcare organizations to get a one-up on competitors. The patient’s only going to wait so long before they’re going to go somewhere else. Organizations risk tarnishing their reputations if they consistently make patients wait,” Rodgers concluded. [Contact us](https://tools.techidaily.com/abbyy/products/) for a demo of referral management. REFERRAL MANAGEMENT CHALLENGES REMOVING MANUAL PROCESSES USING PROCESS INTELLIGENCE ENSURING COMPLIANCE & SECURITY CHOOSING YOUR PLATFORM STREAMLINING YOUR REFERRALS AUTOMATING YOUR PROCESSES AUTOMATING YOUR PROCESSES 
-
-
 
 [abbyy.com](https://tools.techidaily.com/abbyy/products/)
 
@@ -69,19 +61,11 @@ www.himss.org | ©2024 Produced by About ABBYY ABBYY puts your information to wo
 
 [![Created with BuildVu](https://www.abbyy.com/buildvu-logo.png)](https://www.idrsolutions.com/online-pdf-to-html-converter)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -92,55 +76,34 @@ www.himss.org | ©2024 Produced by About ABBYY ABBYY puts your information to wo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-guide-to-top-8-linux-screenshot-solutions-for-2024/"><u>[New] Guide to Top 8 Linux Screenshot Solutions for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-mastering-audio-prime-9-mic-recording-solutions/"><u>[New] In 2024, Mastering Audio  Prime 9 Mic Recording Solutions</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-quick-start-making-your-own-sports-highlight-film/"><u>[New] In 2024, Quick Start  Making Your Own Sports Highlight Film</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-pixelpower-boost-your-phone-pics-for-free-for-2024/"><u>[New] PixelPower  Boost Your Phone Pics for Free for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-amplifying-audio-and-visual-quality-in-your-youtube-videos/"><u>[Updated] 2024 Approved  Amplifying Audio and Visual Quality in Your YouTube Videos</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-flair-up-your-stories-and-feeds-instagrams-simplified-method-of-sharing-gifs/"><u>[Updated] 2024 Approved  Flair Up Your Stories & Feeds  Instagram's Simplified Method of Sharing GIFs</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-a-comprehensive-list-of-8-authentic-propagation-tools-for-2024/"><u>[Updated] A Comprehensive List of 8 Authentic Propagation Tools for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-hastening-social-media-sharing-between-fb-and-tiktok/"><u>[Updated] Hastening Social Media Sharing Between FB and TikTok</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-melody-and-memes-adding-audio-to-instagrams-visual-medley/"><u>[Updated] In 2024, Melody & Memes  Adding Audio to Instagram's Visual Medley</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-unwinding-on-your-device-easy-phone-games/"><u>[Updated] In 2024, Unwinding on Your Device  Easy Phone Games</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-infinite-space-top-10-external-hard-drives-for-ps5/"><u>2024 Approved  Infinite Space  Top 10 External Hard Drives for PS5</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-unlock-visual-brilliance-top-11-videos-on-color-techniques/"><u>2024 Approved  Unlock Visual Brilliance  Top 11 Videos on Color Techniques</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-als-losung-zur-automatisierung-von-rechtspapierverarbeitung-fortschrittliche-rechnungsmanagement-systeme-fur-rechtsanwalte/"><u>ABBYY Als Lösung Zur Automatisierung Von Rechtspapierverarbeitung – Fortschrittliche Rechnungsmanagement-Systeme Für Rechtsanwälte</u></a></li>
-<li><a href="https://solve-info.techidaily.com/achieving-unparalleled-process-improvement-with-process-mining-and-robotic-automation/"><u>Achieving Unparalleled Process Improvement with Process Mining & Robotic Automation</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/audio-elites-apple-airpods-pro-vs-samsung-galaxy-buds-pro-edition/"><u>Audio Elites: Apple AirPods Pro Vs. Samsung Galaxy Buds Pro Edition</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-your-site-with-automated-personalization-the-cookiebot-advantage/"><u>Boost Your Site with Automated Personalization: The Cookiebot Advantage</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-your-site-with-our-efficient-cookiebot-analytics-solution/"><u>Boost Your Site with Our Efficient Cookiebot Analytics Solution</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-your-sites-traffic-with-our-leading-cookiebot-driven-analytics-tools/"><u>Boost Your Site's Traffic with Our Leading Cookiebot-Driven Analytics Tools</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/budget-friendly-backdrops-a-journey-through-tiktoks-visual-wonderland-for-2024/"><u>Budget-Friendly Backdrops  A Journey Through TikTok's Visual Wonderland for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/conquer-the-fallout-76-crashing-glitch-masterful-fixes-for-a-seamless-experience/"><u>Conquer the Fallout 76 Crashing Glitch: Masterful Fixes for a Seamless Experience</u></a></li>
-<li><a href="https://solve-info.techidaily.com/convert-photos-to-editable-pdfsjpeg-files-using-iocr-scanner-streamline-reading-on-ios-devices/"><u>Convert Photos to Editable PDFs/JPEG Files Using iOCR Scanner | Streamline Reading on iOS Devices</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-digital-solutions-elevate-your-seo-strategy/"><u>Cookiebot-Driven Digital Solutions: Elevate Your SEO Strategy</u></a></li>
-<li><a href="https://solve-info.techidaily.com/experience-tailored-browsing-with-cookiebot-technology-driven-content/"><u>Experience Tailored Browsing with Cookiebot Technology Driven Content</u></a></li>
-<li><a href="https://solve-info.techidaily.com/expert-processing-partners-boosting-abbyy-advanced-functionality/"><u>Expert Processing Partners Boosting ABBYY Advanced Functionality</u></a></li>
-<li><a href="https://solve-info.techidaily.com/how-artificial-intelligence-boosts-roi-through-advanced-image-recognition-expert-advice-on-intelligent-capture-blog-by-abbyy/"><u>How Artificial Intelligence Boosts ROI Through Advanced Image Recognition - Expert Advice on Intelligent Capture | Blog by ABBYY</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-detect-and-remove-spyware-on-vivo-v29e-drfone-by-drfone-virtual-android/"><u>How to Detect and Remove Spyware on Vivo V29e? | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-bringing-lectures-to-life-effective-editing-techniques/"><u>In 2024, Bringing Lectures to Life  Effective Editing Techniques</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/in-2024-no-money-down-best-web-converters-from-tiktok-to-mp3-ranked/"><u>In 2024, No Money Down  Best Web Converters From TikTok To MP3 Ranked</u></a></li>
-<li><a href="https://solve-info.techidaily.com/introducing-neoml-abbyys-new-open-source-library-speeding-up-artifice-intelligence-innovation/"><u>Introducing NeoML: ABBYY's New Open Source Library Speeding Up Artifice Intelligence Innovation</u></a></li>
-<li><a href="https://solve-info.techidaily.com/junges-management-gefahrdet-durch-ineffiziente-geschaftspraktiken-und-veraltete-technologie-abbyy-umfrage-zeigt-schnelle-demotivierung-gegenuber-alteren-kol9/"><u>Junges Management Gefährdet Durch Ineffiziente Geschäftspraktiken Und Veraltete Technologie: ABBYY Umfrage Zeigt Schnelle Demotivierung Gegenüber Älteren Kollegen</u></a></li>
-<li><a href="https://solve-info.techidaily.com/launching-intelligent-transit-solutions-insights-from-the-abbyy-blog/"><u>Launching Intelligent Transit Solutions: Insights From the ABBYY Blog</u></a></li>
-<li><a href="https://solve-info.techidaily.com/les-avantages-dutiliser-locr-dabbevillier-pour-les-amateurs-de-vin-la-solution-la-plus-appreciee-par-vivino/"><u>Les Avantages D'utiliser L'OCR D'Abbevillier Pour Les Amateurs De Vin: La Solution La Plus Appréciée Par Vivino</u></a></li>
-<li><a href="https://solve-info.techidaily.com/leveraging-cookiebot-technology-for-superior-visitor-insights-and-site-optimization/"><u>Leveraging Cookiebot Technology for Superior Visitor Insights and Site Optimization</u></a></li>
-<li><a href="https://solve-info.techidaily.com/mastering-modern-banking-challenges-proven-abbyy-strategies-for-thriving-through-crisis-and-beyond/"><u>Mastering Modern Banking Challenges: Proven ABBYY Strategies for Thriving Through Crisis and Beyond</u></a></li>
-<li><a href="https://solve-info.techidaily.com/norton-rose-llp-utilise-le-serveur-de-reconnaissance-dabbyy-pour-la-digitalisation-centrale-des-documents/"><u>Norton Rose LLP Utilise Le Serveur De Reconnaissance D'ABBYY Pour La Digitalisation Centrale Des Documents</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimizing-business-processes-how-abbyy-complements-automation-anywhere-solutions/"><u>Optimizing Business Processes: How ABBYY Complements Automation Anywhere Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/participate-in-the-exclusive-abbyy-smart-automation-event-of-may-2024/"><u>Participate in the Exclusive ABBYY Smart Automation Event of May 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/personalized-marketing-with-cookiebot-technology-integration/"><u>Personalized Marketing with Cookiebot Technology Integration</u></a></li>
-<li><a href="https://solve-info.techidaily.com/revolutionize-your-it-infrastructure-using-ai-essential-strategies-by-abbyy-experts/"><u>Revolutionize Your IT Infrastructure Using AI: Essential Strategies by ABBYY Experts</u></a></li>
-<li><a href="https://solve-info.techidaily.com/smart-integration-of-ai-and-robotics-in-modern-medicine-infographic-guide/"><u>Smart Integration of AI and Robotics in Modern Medicine - Infographic Guide</u></a></li>
-<li><a href="https://solve-info.techidaily.com/streamlined-workflow-integration-with-pipefy-and-abbyy-document-automation/"><u>Streamlined Workflow Integration with Pipefy & ABBYY Document Automation</u></a></li>
-<li><a href="https://solve-info.techidaily.com/texthelp-und-abbyy-revolutionarer-support-fur-menschen-mit-leseschwache-oder-dysgraphie/"><u>Texthelp Und ABBYY: Revolutionärer Support Für Menschen Mit Leseschwäche Oder Dysgraphie</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/the-essential-filmmakers-toolkit-a-guide-to-audio-recording/"><u>The Essential Filmmaker's Toolkit  A Guide to Audio Recording</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/trendy-themes-cool-wallpapers-for-your-desktop/"><u>Trendy Themes  Cool Wallpapers for Your Desktop</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unleash-potential-with-our-cookiebot-integrated-services/"><u>Unleash Potential with Our Cookiebot Integrated Services</u></a></li>
-<li><a href="https://solve-info.techidaily.com/untapped-opportunities-how-british-enterprises-can-harness-automation-advantages-according-to-abbyy-insights/"><u>Untapped Opportunities: How British Enterprises Can Harness Automation Advantages, According to ABBYY Insights</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/unveiling-4-compelling-reasons-to-embrace-claude-3-over-chatgpt-for-enhanced-interaction/"><u>Unveiling 4 Compelling Reasons to Embrace Claude 3 Over ChatGPT for Enhanced Interaction</u></a></li>
-<li><a href="https://solve-info.techidaily.com/verbessern-sie-die-sicherheit-von-dokumenten-bei-der-eingabe-mit-tangro-hochladen-per-process-security/"><u>Verbessern Sie Die Sicherheit Von Dokumenten Bei Der Eingabe Mit Tangro® - Hochladen per Process Security</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/virtual-conversations-unleashed-with-pc-based-whatsapp-web-chat-for-2024/"><u>Virtual Conversations Unleashed with PC-Based WhatsApp Web Chat for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/warum-fehlt-es-bei-deutschen-firmen-oftmals-an-einem-verstandnis-fur-rpa-was-zu-misserfolgen-fuhrt-insights-von-abbyy/"><u>Warum Fehlt Es Bei Deutschen Firmen Oftmals an Einem Verständnis Für RPA, Was Zu Misserfolgen Führt – Insights Von ABBYY</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyycfo/"><u>ジェームズ・ライター氏がABBYYの新しいCFOとして昇格</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-extract-and-save-fb-videos-on-pcmac-anywhere/"><u>[New] In 2024, Extract & Save FB Videos on PC/Mac, Anywhere</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-pixelperfect-image-transformations/"><u>[New] PixelPerfect Image Transformations</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-cutting-down-curated-content-how-to-delete-fb-story-pc-and-phone/"><u>[Updated] In 2024, Cutting Down Curated Content How to Delete FB Story (PC & Phone)</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-the-roadmap-to-an-influential-instagram-profile-six-simple-steps-for-following-and-verified-recognition/"><u>[Updated] In 2024, The Roadmap to an Influential Instagram Profile Six Simple Steps for Following and Verified Recognition</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-no1-video-recorders-with-personalized-view-for-2024/"><u>[Updated] No.1 Video Recorders with Personalized View for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-bebops-feathered-wings-unleashed-in-the-parrot-review/"><u>2024 Approved Bebop's Feathered Wings Unleashed in the Parrot Review</u></a></li>
+<li><a href="https://solve-info.techidaily.com/abbyy-sdk-nouveau-kit-dintegration-pour-la-prise-de-commande-rapide-et-reactive-des-donnees/"><u>ABBYY SDK Nouveau Kit D'Intégration Pour La Prise De Commande Rapide Et Réactive Des Données</u></a></li>
+<li><a href="https://solve-info.techidaily.com/abbyys-intelligent-capture-connector-now-ready-on-uipath-marketplace-enhance-automation-with-advanced-ocr-technology/"><u>ABBYY's Intelligent Capture Connector Now Ready on UiPath Marketplace, Enhance Automation with Advanced OCR Technology!</u></a></li>
+<li><a href="https://solve-info.techidaily.com/abbyy-e201/"><u>ABBYY自動請求書解析と電子文書対応ソリューションの紹介: Eドキュメントジャパン201</u></a></li>
+<li><a href="https://solve-info.techidaily.com/abbyy-abbyy-flexicapture-ai-ocr/"><u>ABBYYブログで解析: 効果的な帳票処理を可能にするABBYY FlexiCapture - AI OCRプラットフォームの革新</u></a></li>
+<li><a href="https://solve-info.techidaily.com/ai-driven-process-improvement-and-efficient-paperwork-management-in-government-sectors/"><u>AI-Driven Process Improvement & Efficient Paperwork Management in Government Sectors</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/express-screen-snag-aural-elements-for-2024/"><u>Express Screen Snag Aural Elements for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-remove-and-reset-face-id-on-apple-iphone-12-mini-drfone-by-drfone-ios/"><u>How to Remove and Reset Face ID on Apple iPhone 12 mini | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/master-the-art-of-canvas-with-these-top-10-secrets/"><u>Master the Art of Canvas with These Top 10 Secrets</u></a></li>
+<li><a href="https://solve-info.techidaily.com/top-questions-customers-have-on-ai-insights-and-explanations-for-your-peace-of-mind/"><u>Top Questions Customers Have on AI - Insights & Explanations for Your Peace of Mind</u></a></li>
+<li><a href="https://solve-info.techidaily.com/unlocking-marketing-potential-with-predictive-analytics-from-cookiebot-technology/"><u>Unlocking Marketing Potential with Predictive Analytics From Cookiebot Technology</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

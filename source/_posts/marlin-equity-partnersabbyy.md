@@ -1,40 +1,22 @@
 ---
 title: Marlin Equity PartnersがABBYYに対する投資を開始 - 最新ニュース解析
-date: 2024-09-08T23:40:19.939Z
-updated: 2024-09-09T23:40:19.939Z
+date: 2024-09-13T20:15:34.171Z
+updated: 2024-09-14T22:24:48.372Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4c147f639cee2585f7f88020d64ed44f6ab3d2fb87afeca6ceadabb8d346628a.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Marlin Equity PartnersがABBYYに対する投資を開始 - 最新ニュース解析
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115941/19272" target="_top" id="2115941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115941" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115941/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Marlin Equity Partnersからの新たな投資がABBYYに意味すること
 
 6月30日, 2021
 
 ![](https://static2.abbyy.com/abbyycommedia/33048/marlin-blog-cover-1.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 5月11日に、ABBYYはテクノロジー分野にフォーカスしたグローバル投資企業である[Marlin Equity Partners](https://www.marlinequity.com/)による巨額の投資を公表。この投資により、同社はABBYYの筆頭株主となりました。この投資について、当社は次の理由から今後の活動に大きな期待を寄せています。まず、この投資は会社の成長の促進につながります。そしてABBYYが誇る高評価の世界的な革新技術であるDigital Intelligenceのプロダクトポートフォリオの歩みをさらに進めるために、必要となる資本が提供されます。
 
 5,000を超える顧客が、金融や医療、サプライチェーン、保険といったさまざまな業界で当社のソリューションを活用しています。PwC、FDA、Siemens、Deutsche Post DHL、PepsiCo、Volkswagenといった名だたるグローバル企業にABBYYソリューションをすでに利用していただいていることを光栄に思います。
@@ -45,12 +27,6 @@ thumbnail: https://thmb.techidaily.com/4c147f639cee2585f7f88020d64ed44f6ab3d2fb8
 
 ![two people wearing glasses smiling](https://static1.abbyy.com/abbyycommedia/32435/b-13.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 従業員あってこそのABBYYです。当社は、従業員の成長に必要なツールやスキルを投じ、引き続き投資していくことを計画しています。開発者から財務・営業・マーケティング担当まで、世界を舞台に[優れた人材を採用すること](https://tools.techidaily.com/abbyy/products/)もその計画の対象です。従業員が、家庭と社会のニーズでバランスを取りながらも、仕事で力を発揮できると感じられる、心をつかむ多様性に満ちた文化を醸成します。
 
 この投資にABBYYが期待を寄せる理由を、当社のパートナーや顧客に実際に確かめていただけることを願います。MarlinはこれまでABBYYが収めてきた業績に多大な価値を見いだし、頼れる成長志向のパートナーとして当社の新たな成長を導いてくれる存在です。
@@ -65,12 +41,6 @@ thumbnail: https://thmb.techidaily.com/4c147f639cee2585f7f88020d64ed44f6ab3d2fb8
 
 [エンタープライズ](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120866/26400?prodsku=mars" target="_top" id="2120866">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120866/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 
 シェア 
@@ -125,8 +95,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -136,57 +104,26 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-prime-5-web-based-screening-sessions/"><u>[New] 2024 Approved  Prime 5 Web-Based Screening Sessions</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-grading-inshot-does-it-reign-supreme-in-2024/"><u>[New] Grading InShot  Does It Reign Supreme, In 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-management-strategies-for-fetal-alcohol-syndrome-for-2024/"><u>[New] Management Strategies for Fetal Alcohol Syndrome for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-mastering-mmos-in-vr-oculus-vs-htc-vive-vs-ps-vr/"><u>[New] Mastering MMOs in VR  Oculus vs HTC Vive vs PS VR</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-enhance-your-instagram-presence-with-obs-based-streaming-for-2024/"><u>[Updated] Enhance Your Instagram Presence with OBS-Based Streaming for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-full-course-on-morphvox-converting-your-voice-professionally/"><u>[Updated] Full Course on MorphVOX  Converting Your Voice Professionally</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-facebooks-flash-video-frenzy/"><u>[Updated] In 2024, Facebook's Flash Video Frenzy</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-laughing-made-easy-the-zero-cost-meme-kit/"><u>[Updated] In 2024, Laughing Made Easy – The Zero-Cost Meme Kit</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-multimedia-mac-recording-software-with-sound/"><u>[Updated] Multimedia Mac Recording Software with Sound</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-screen-grab-mastery-for-windows-users-3-techniques/"><u>2024 Approved  Screen Grab Mastery for Windows Users (3 Techniques)</u></a></li>
-<li><a href="https://solve-info.techidaily.com/ebook-by-abby/"><u>保険金要求手続き管理: 最適な効果的手法はどこで学べますか？ | eBook by ABBY</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/capturing-and-sharing-your-nintendo-switch-gameplay-a-complete-guide/"><u>Capturing & Sharing Your Nintendo Switch Gameplay: A Complete Guide</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-personalization-enhancing-your-websites-user-experience/"><u>Cookiebot-Driven Personalization: Enhancing Your Website's User Experience</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-solutions-for-enhanced-user-engagement/"><u>Cookiebot-Driven Solutions for Enhanced User Engagement</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-success-optimizing-your-website-with-advanced-analytics/"><u>Cookiebot-Driven Success: Optimizing Your Website with Advanced Analytics</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enabled-enhancing-your-websites-engagement-and-conversion-rates/"><u>Cookiebot-Enabled: Enhancing Your Website's Engagement & Conversion Rates</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-user-experience-tailored-content-and-targeting/"><u>Cookiebot-Enhanced User Experience: Tailored Content & Targeting</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-fueled-personalization-enhance-user-experience-with-smart-marketing-automation/"><u>Cookiebot-Fueled Personalization: Enhance User Experience with Smart Marketing Automation</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-user-experience-through-smart-analytics/"><u>Cookiebot: Enhanced User Experience Through Smart Analytics</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhancing-user-experience-with-personalization-and-data-driven-marketing/"><u>Cookiebot: Enhancing User Experience with Personalization and Data-Driven Marketing</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/deep-dive-into-performance-and-price-the-patriot-viper-vp43nlite-ssd-with-massive-4tb-storage/"><u>Deep Dive Into Performance & Price - The Patriot Viper VP43nLite SSD with Massive 4TB Storage</u></a></li>
-<li><a href="https://solve-info.techidaily.com/discover-abbyys-best-digital-intelligence-narratives-from-202-2-top-six-picks-unveiled-in-our-latest-post/"><u>Discover ABBYY's Best Digital Intelligence Narratives From 202 2 - Top Six Picks Unveiled in Our Latest Post!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/discover-culinary-convenience-with-abbyys-recipe-digitization-and-photo-enchantment-featured-on-our-blog/"><u>Discover Culinary Convenience with ABBYY's Recipe Digitization and Photo Enchantment - Featured on Our Blog</u></a></li>
-<li><a href="https://solve-info.techidaily.com/distinguishing-between-process-intelligence-and-business-intelligence-for-strategic-decisions/"><u>Distinguishing Between Process Intelligence and Business Intelligence for Strategic Decisions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/driving-engagement-through-smart-data-insights-enhanced-by-cookiebot-technology/"><u>Driving Engagement Through Smart Data Insights: Enhanced by Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-user-experience-with-the-precision-of-cookiebot-technology-integration/"><u>Elevate User Experience with the Precision of Cookiebot Technology Integration</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/elevate-your-content-how-to-edit-instagrams-preferred-format-in-fcpx/"><u>Elevate Your Content  How to Edit Instagram's Preferred Format in FCPX</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-your-web-tracking-optimize-seo-using-the-power-of-cookiebot-technology/"><u>Elevate Your Web Tracking: Optimize SEO Using the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/empower-your-site-with-cookiebot-technology-advanced-analytics-and-targeting-made-simple/"><u>Empower Your Site with Cookiebot Technology: Advanced Analytics and Targeting Made Simple</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhance-online-engagement-with-cookiebot-technology/"><u>Enhance Online Engagement with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhance-your-website-visibility-the-power-of-cookiebot-integration/"><u>Enhance Your Website Visibility: The Power of Cookiebot Integration</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-user-tracking-with-the-power-of-cookiebot-technology/"><u>Enhanced User Tracking with the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-web-traffic-with-cookiebot-technology/"><u>Enhanced Web Traffic with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-efficiency-in-finance-the-power-of-hyperautomation-on-sap-cloud-platforms-by-abbyy/"><u>Enhancing Efficiency in Finance: The Power of Hyperautomation on SAP Cloud Platforms by ABBYY</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-employee-skills-with-sap-and-abbyy-insights-from-an-industry-pro/"><u>Enhancing Employee Skills with SAP & ABBYY: Insights From an Industry Pro</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-smartphone-cleanliness-leveraging-abbyys-bcr-tech-and-digital-notetaking-tools/"><u>Enhancing Smartphone Cleanliness: Leveraging ABBYY's BCR Tech & Digital Notetaking Tools</u></a></li>
-<li><a href="https://solve-info.techidaily.com/experienced-dev-leader-mihajlo-mulic-takes-the-helm-as-senior-software-pro-at-abbyy/"><u>Experienced Dev Leader: Mihajlo Mulic Takes the Helm as Senior Software Pro at ABBYY</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/getting-the-latest-atheros-driver-software-installed-in-windows-os/"><u>Getting the Latest Atheros Driver Software Installed in Windows OS</u></a></li>
-<li><a href="https://solve-info.techidaily.com/harnessing-the-power-of-cookiebot-for-superior-site-personalization-and-growth/"><u>Harnessing the Power of Cookiebot for Superior Site Personalization and Growth</u></a></li>
-<li><a href="https://solve-info.techidaily.com/how-process-intelligence-leads-to-success-understanding-the-top-five-advantages/"><u>How Process Intelligence Leads to Success: Understanding the Top Five Advantages</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-best-apple-iphone-12-and-ipad-screen-mirroring-app-drfone-by-drfone-ios/"><u>In 2024, Best Apple iPhone 12 & iPad Screen Mirroring App | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-the-ultimate-guide-to-tecno-spark-go-2023-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Ultimate Guide to Tecno Spark Go (2023) Pattern Lock Screen Everything You Need to Know</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/incredible-method-unlock-mac-using-apple-watch/"><u>Incredible Method  Unlock Mac Using Apple Watch</u></a></li>
-<li><a href="https://solve-info.techidaily.com/integrating-compliance-protocols-with-exceptional-cx-strategies-in-banking-and-finance/"><u>Integrating Compliance Protocols with Exceptional CX Strategies in Banking & Finance</u></a></li>
-<li><a href="https://solve-info.techidaily.com/intelligent-docx-and-pdf-automation-with-quadrants-spark-2022-matrix-solution/"><u>Intelligent DOCX & PDF Automation with Quadrant's SPARK 2022 Matrix Solution</u></a></li>
-<li><a href="https://solve-info.techidaily.com/leveraging-ai-and-analytics-for-boosting-staff-participation-and-commitment/"><u>Leveraging AI and Analytics for Boosting Staff Participation and Commitment</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/leveraging-vector-database-technology-to-supercharge-artificial-intelligence/"><u>Leveraging Vector Database Technology to Supercharge Artificial Intelligence</u></a></li>
-<li><a href="https://solve-info.techidaily.com/navigating-financial-turbulence-essential-digital-tactics-for-banking-success-with-insights-from-abbyy-leaders/"><u>Navigating Financial Turbulence: Essential Digital Tactics for Banking Success with Insights From ABBYY Leaders</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimized-with-the-cutting-edge-of-traffic-management-the-cookiebot-solution/"><u>Optimized with the Cutting-Edge of Traffic Management: The Cookiebot Solution</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/reviewing-the-capable-and-sturdy-radpower-radcity-5-plus-an-seo-guide-for-cyclists/"><u>Reviewing the Capable & Sturdy RadPower RadCity 5 Plus – An SEO Guide for Cyclists</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/sync-soundtracks-smoothly-into-inshots-ecosystem/"><u>Sync Soundtracks Smoothly Into InShot's Ecosystem</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/unveiling-top-secrets-in-data-reconstruction-via-vishakha/"><u>Unveiling Top Secrets in Data Reconstruction via Vishakha</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-itel-s23-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Itel S23 | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-dive-into-digital-green-magic-top-4-youtube-sources-for-no-cost-background-workshops/"><u>[New] In 2024, Dive Into Digital Green Magic Top 4 YouTube Sources for No-Cost Background Workshops</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-dynamic-focus-enhanced-handheld-shot-quality/"><u>[New] In 2024, Dynamic Focus Enhanced Handheld Shot Quality</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-transform-tiktok-videos-innovative-background-updates/"><u>[New] Transform TikTok Videos Innovative Background Updates</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-premium-tvs-for-ps5-and-xbox-series-x-gamers-dreams/"><u>[Updated] Premium TVs for PS5 & Xbox Series X Gamers' Dreams</u></a></li>
+<li><a href="https://win11.techidaily.com/9-ways-to-fix-microsoft-powerpoint-not-printing-correctly-on-windows/"><u>9 Ways to Fix Microsoft PowerPoint Not Printing Correctly on Windows</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhanced-marketing-insights-and-control-with-the-innovative-cookiebot-system/"><u>Enhanced Marketing Insights and Control with the Innovative Cookiebot System</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhanced-site-personalization-with-the-power-of-cookiebot-technology/"><u>Enhanced Site Personalization with the Power of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhancing-accessibility-with-special-mobility-how-to-protect-your-data-from-textgrabber-on-abbyy/"><u>Enhancing Accessibility with Special Mobility - How to Protect Your Data From TextGrabber on ABBYY</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhancing-emergency-department-efficiency-with-process-mining-insights-from-widener-universitys-study-using-abbyy-timeline/"><u>Enhancing Emergency Department Efficiency with Process Mining: Insights From Widener University's Study Using ABBYY Timeline</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhancing-rpa-success-through-next-gen-process-analytics-techniques-by-abbyy/"><u>Enhancing RPA Success Through Next-Gen Process Analytics Techniques by ABBYY</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-meizu-21-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Meizu 21</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-create-shareable-memes-with-adobe-photoshop/"><u>In 2024, Create Shareable Memes with Adobe Photoshop</u></a></li>
+<li><a href="https://common-error.techidaily.com/the-laptop-headset-harmony-breakthrough-solution/"><u>The Laptop-Headset Harmony Breakthrough Solution</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-unlocking-os-x-mavericks-video-editing-potential/"><u>Updated Unlocking OS X Mavericks Video Editing Potential</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

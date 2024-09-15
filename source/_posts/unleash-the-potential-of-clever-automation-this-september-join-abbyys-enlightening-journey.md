@@ -1,28 +1,16 @@
 ---
 title: Unleash the Potential of Clever Automation This September – Join ABBYY's Enlightening Journey
-date: 2024-09-08T23:40:17.618Z
-updated: 2024-09-09T23:40:17.618Z
+date: 2024-09-11T23:54:46.898Z
+updated: 2024-09-14T16:19:16.258Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/300ab8d5976ccf31b0d2970939ae583f50bd954e838c66ca43450f63be8d3d0c.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Unleash the Potential of Clever Automation This September – Join ABBYY's Enlightening Journey
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## September is Intelligent Automation Month
 
 ###### Bruce Orcutt
@@ -31,18 +19,6 @@ August 29, 2023
 
 ![](https://static3.abbyy.com/abbyycommedia/37624/ds-63-intelligent-automation-month-1200x628.png) 
 
-<!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 There’s no denying that artificial intelligence (AI) is talked about everywhere. From the launch of ChatGPT to software robots replacing jobs, the high volume of recent media attention has been creating both excitement and confusion among business leaders.
 
 There’s fear of being left behind, worries about jumping in too quickly, and concerns about investing in the wrong technologies. Which path should you be taking?
@@ -55,12 +31,6 @@ We’ve joined forces with other industry influencers and advocates to highlight
 
 You’ll gain market insights that will help you focus your digital transformation initiatives, learn how to make a business case for C-suite buy-in, and get tips for championing workforce adoption. Additionally, innovation leaders who are currently spearheading transformation within their companies will candidly share their best practices and lessons learned. These are online sessions that you won’t want to miss.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### September is Intelligent Automation Month
 
 Watch a series of expert-led webinars to learn how the latest AI advancements are powering intelligent automation and changing the future of work globally.
@@ -79,18 +49,6 @@ We hope you’ll join us at these upcoming industry-wide online events. Register
 
 ![Bruce Orcutt ABBYY](https://static5.abbyy.com/abbyycommedia/25719/bruceorcutt-99x99.png)
 
-<!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Bruce Orcutt
 
 Senior Vice President of Product Marketing at ABBYY
@@ -100,11 +58,12 @@ Bruce Orcutt is a veteran Product Marketing and Product Management professional 
 Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118318/7443" target="_top" id="2118318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118318" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Like, share or repost
 
 Share 
@@ -159,8 +118,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -170,38 +127,17 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/new-schematic-gamers-graphs/"><u>[New] SCHEMATIC GAMER'S GRAPHS</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-elevating-user-experience-with-personalized-youtube-card-implementation/"><u>[Updated] In 2024, Elevating User Experience with Personalized YouTube Card Implementation</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-non-retweeted-video-tweet-guide-for-iphone-and-android-users-for-2024/"><u>[Updated] Non-Retweeted Video Tweet Guide for iPhone & Android Users for 2024</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-social-media-mastery-expanding-business-through-tiktok-techniques-for-2024/"><u>[Updated] Social Media Mastery  Expanding Business Through TikTok Techniques for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/elevate-your-auditory-experience-iphone-and-the-world-of-podcasting/"><u>Elevate Your Auditory Experience - iPhone and the World of Podcasting</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-client-interaction-through-ai-transforming-the-customer-journey-with-automation/"><u>Enhancing Client Interaction Through AI: Transforming the Customer Journey with Automation</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-site-performance-through-advanced-cookiebot-features/"><u>Enhancing Site Performance Through Advanced Cookiebot Features</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/experience-next-gen-notetaking-with-mematic-for-2024/"><u>Experience Next-Gen Notetaking with Mematic for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/experience-tailored-browsing-with-cookiebot-technology-driven-content/"><u>Experience Tailored Browsing with Cookiebot Technology Driven Content</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-analysis-on-the-huion-inspiroy-g10t-graphic-tablet-unrivaled-quality-and-functionality-for-artists/"><u>Expert Analysis on the Huion Inspiroy G10T Graphic Tablet: Unrivaled Quality and Functionality for Artists</u></a></li>
-<li><a href="https://solve-info.techidaily.com/expert-processing-partners-boosting-abbyy-advanced-functionality/"><u>Expert Processing Partners Boosting ABBYY Advanced Functionality</u></a></li>
-<li><a href="https://solve-info.techidaily.com/how-artificial-intelligence-boosts-roi-through-advanced-image-recognition-expert-advice-on-intelligent-capture-blog-by-abbyy/"><u>How Artificial Intelligence Boosts ROI Through Advanced Image Recognition - Expert Advice on Intelligent Capture | Blog by ABBYY</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-unresponsive-touch-screen-on-samsung-galaxy-s24-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Touch Screen on Samsung Galaxy S24 | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-android-to-apple-how-to-transfer-photos-from-vivo-y02t-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Android to Apple How To Transfer Photos From Vivo Y02T to iPad Easily | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-nokia-g310-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Nokia G310? | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/initiating-seamless-zoom-gatherings/"><u>Initiating Seamless Zoom Gatherings</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/insights-into-the-world-of-touch-and-movement-detection-for-2024/"><u>Insights Into the World of Touch and Movement Detection for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/introducing-neoml-abbyys-new-open-source-library-speeding-up-artifice-intelligence-innovation/"><u>Introducing NeoML: ABBYY's New Open Source Library Speeding Up Artifice Intelligence Innovation</u></a></li>
-<li><a href="https://fox-that.techidaily.com/1721476555563-iphone-charged-paused-learn-how-to-overcome-this-problem-in-8-ways/"><u>IPhone Charged Paused? Learn How to Overcome This Problem in 8 Ways!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/junges-management-gefahrdet-durch-ineffiziente-geschaftspraktiken-und-veraltete-technologie-abbyy-umfrage-zeigt-schnelle-demotivierung-gegenuber-alteren-kol9/"><u>Junges Management Gefährdet Durch Ineffiziente Geschäftspraktiken Und Veraltete Technologie: ABBYY Umfrage Zeigt Schnelle Demotivierung Gegenüber Älteren Kollegen</u></a></li>
-<li><a href="https://solve-info.techidaily.com/launching-intelligent-transit-solutions-insights-from-the-abbyy-blog/"><u>Launching Intelligent Transit Solutions: Insights From the ABBYY Blog</u></a></li>
-<li><a href="https://solve-info.techidaily.com/les-avantages-dutiliser-locr-dabbevillier-pour-les-amateurs-de-vin-la-solution-la-plus-appreciee-par-vivino/"><u>Les Avantages D'utiliser L'OCR D'Abbevillier Pour Les Amateurs De Vin: La Solution La Plus Appréciée Par Vivino</u></a></li>
-<li><a href="https://solve-info.techidaily.com/leveraging-cookiebot-technology-for-superior-visitor-insights-and-site-optimization/"><u>Leveraging Cookiebot Technology for Superior Visitor Insights and Site Optimization</u></a></li>
-<li><a href="https://solve-info.techidaily.com/mastering-modern-banking-challenges-proven-abbyy-strategies-for-thriving-through-crisis-and-beyond/"><u>Mastering Modern Banking Challenges: Proven ABBYY Strategies for Thriving Through Crisis and Beyond</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/navigating-technology-through-toms-lens/"><u>Navigating Technology Through Tom's Lens</u></a></li>
-<li><a href="https://solve-info.techidaily.com/norton-rose-llp-utilise-le-serveur-de-reconnaissance-dabbyy-pour-la-digitalisation-centrale-des-documents/"><u>Norton Rose LLP Utilise Le Serveur De Reconnaissance D'ABBYY Pour La Digitalisation Centrale Des Documents</u></a></li>
-<li><a href="https://win-answers.techidaily.com/nvidia-geforce-gtx-1nvidias-gtx-1080-ti-unmatched-graphics-card-for-elite-gamers-and-streamers-alike/"><u>NVIDIA GeForce GTX 1nVidia's GTX 1080 Ti: Unmatched Graphics Card for Elite Gamers and Streamers Alike</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimizing-business-processes-how-abbyy-complements-automation-anywhere-solutions/"><u>Optimizing Business Processes: How ABBYY Complements Automation Anywhere Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/participate-in-the-exclusive-abbyy-smart-automation-event-of-may-2024/"><u>Participate in the Exclusive ABBYY Smart Automation Event of May 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/personalized-marketing-with-cookiebot-technology-integration/"><u>Personalized Marketing with Cookiebot Technology Integration</u></a></li>
-<li><a href="https://solve-info.techidaily.com/revolutionize-your-it-infrastructure-using-ai-essential-strategies-by-abbyy-experts/"><u>Revolutionize Your IT Infrastructure Using AI: Essential Strategies by ABBYY Experts</u></a></li>
-<li><a href="https://solve-info.techidaily.com/smart-integration-of-ai-and-robotics-in-modern-medicine-infographic-guide/"><u>Smart Integration of AI and Robotics in Modern Medicine - Infographic Guide</u></a></li>
-<li><a href="https://solve-info.techidaily.com/streamlined-workflow-integration-with-pipefy-and-abbyy-document-automation/"><u>Streamlined Workflow Integration with Pipefy & ABBYY Document Automation</u></a></li>
-<li><a href="https://solve-info.techidaily.com/texthelp-und-abbyy-revolutionarer-support-fur-menschen-mit-leseschwache-oder-dysgraphie/"><u>Texthelp Und ABBYY: Revolutionärer Support Für Menschen Mit Leseschwäche Oder Dysgraphie</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-prime-tools-for-creative-tiktok-videos/"><u>[New] 2024 Approved Prime Tools for Creative TikTok Videos</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-increase-attendance-and-engagement-with-strategic-zoom-recordings/"><u>[Updated] Increase Attendance and Engagement with Strategic Zoom Recordings</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/evaluating-the-2020-samsung-galaxy-tab-a-critical-feature-omitted-discussion/"><u>Evaluating the 2020 Samsung Galaxy Tab A: Critical Feature Omitted Discussion</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-oneplus-nord-n10-5g-an-unmissable-player-in-the-market/"><u>Exploring the OnePlus Nord N10 5G - An Unmissable Player in the Market</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-can-we-bypass-xiaomi-13-ultra-frp-by-drfone-android/"><u>How Can We Bypass Xiaomi 13 Ultra FRP?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-can-life360-track-you-when-your-vivo-s18-is-off-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track You When Your Vivo S18 is off? | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/methods-to-resolve-non-installed-windows-store-apps/"><u>Methods to Resolve Non-Installed Windows Store Apps</u></a></li>
+<li><a href="https://solve-info.techidaily.com/photography-tips-and-task-management-secrets-revealed-on-abbyy-blog/"><u>Photography Tips & Task Management Secrets Revealed on ABBYY Blog</u></a></li>
+<li><a href="https://solve-info.techidaily.com/pourquoi-utiliser-le-mining-processeux-exploration-des-avantages-et-cas-dusage/"><u>Pourquoi Utiliser Le Mining Processeux? Exploration Des Avantages Et Cas D'Usage</u></a></li>
+<li><a href="https://solve-info.techidaily.com/revolutionize-quick-cashflow-with-abbyys-mobile-ocr-sdk-for-instantaneous-loan-approvals/"><u>Revolutionize Quick Cashflow with ABBYY's Mobile OCR SDK for Instantaneous Loan Approvals!</u></a></li>
+<li><a href="https://solve-info.techidaily.com/revolutionize-your-operations-the-power-of-digital-replicas-and-simulated-processes-for-business-advancement/"><u>Revolutionize Your Operations: The Power of Digital Replicas and Simulated Processes for Business Advancement</u></a></li>
+<li><a href="https://solve-info.techidaily.com/scott-opitz-transitions-to-key-leadership-roles-as-cto-and-cpo-at-dabbyy/"><u>Scott Opitz Transitions to Key Leadership Roles as CTO and CPO at D'Abbyy</u></a></li>
 </ul></div>
+

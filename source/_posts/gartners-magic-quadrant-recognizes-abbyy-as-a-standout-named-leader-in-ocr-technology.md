@@ -1,34 +1,16 @@
 ---
 title: Gartner's Magic Quadrant Recognizes ABBYY as a Standout Named Leader in OCR Technology
-date: 2024-09-08T23:40:16.636Z
-updated: 2024-09-09T23:40:16.636Z
+date: 2024-09-07T19:23:21.753Z
+updated: 2024-09-14T18:07:33.581Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6f8c62fe2349a0f207bb9e67da92ccbc024b72458dedec8efed25d3d7ef6c0d1.png
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Gartner's Magic Quadrant Recognizes ABBYY as a Standout Named Leader in OCR Technology
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Recognized as a Leader by Gartner in Process Mining Platforms
 
 ###### Catherine Johnson
@@ -39,12 +21,6 @@ ABBYY has been named [a Leader in the 2024 Gartner® Magic Quadrant™ for Proce
 
 ![abbyy-recognized-as-leader-by-gartner-in-process-mining-platforms](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/abbyy-recognized-as-a-leader-by-gartner-in-process-mining-platforms/abbyy-recognized-as-leader-by-gartner-in-process-mining-platforms.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115935/19272" target="_top" id="2115935">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115935" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115935/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 A Gartner Magic Quadrant is a culmination of research in a specific market, giving you a wide-angle view of the relative positions of the market’s competitors. To us, being positioned in the Leaders Quadrant not only means ABBYY has a track record of success in the market, but it also indicates ABBYY’s ability to facilitate and [support operational excellence](https://tools.techidaily.com/abbyy/products/), audit and compliance, automation, digital transformation, strategy to execution, and customer excellence.
 
 We think ABBYY’s placement in the Leaders quadrant is a testament to our strategic direction, comprehensive product portfolio, and robust performance. It is not just a reflection of our current capabilities but also an indicator of future potential—it demonstrates ABBYY’s continued efforts to address the growing demand for [advanced process mining solutions](https://tools.techidaily.com/abbyy/products/).
@@ -57,18 +33,6 @@ The 2024 Gartner report names ABBYY as a Leader in the Process Mining Platforms 
 
 ![Catherine JohnsonABBYY](https://www.abbyy.com/-/jssmedia/project/abbyy/abbyy/insights/blog/autors-Headshots/catherinejohnson-99x99.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Catherine Johnson
 
 Senior Director of Brand and Industry Relations at ABBYY
@@ -137,8 +101,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -148,66 +110,33 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-crafting-the-ideal-set-of-keywords-for-your-youtube-videos/"><u>[New] 2024 Approved  Crafting the Ideal Set of Keywords for Your Youtube Videos</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-elevating-content-strategy-through-youtube-metrics/"><u>[Updated] 2024 Approved  Elevating Content Strategy Through YouTube Metrics</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-free-meme-makers-the-ultimate-resource-guide/"><u>[Updated] 2024 Approved  Free Meme Makers – The Ultimate Resource Guide</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-concealed-countenance-guide-fast-and-effective-methods/"><u>[Updated] Concealed Countenance Guide  Fast and Effective Methods</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-crafting-a-viral-path-best-hashtags-for-youtube-riches-for-2024/"><u>[Updated] Crafting a Viral Path  Best Hashtags for YouTube Riches for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-elevating-your-youtube-presence-with-longer-video-formats/"><u>[Updated] In 2024, Elevating Your YouTube Presence with Longer Video Formats</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-expert-insights-on-forging-youtube-sponsorship-bonds-using-famebit/"><u>[Updated] In 2024, Expert Insights on Forging YouTube Sponsorship Bonds Using FameBit</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-mastering-obs-studio-key-editing-tactics-unveiled/"><u>[Updated] Mastering OBS Studio  Key Editing Tactics Unveiled</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-rhythm-and-reel-the-imovie-music-guidebook/"><u>[Updated] Rhythm and Reel  The iMovie Music Guidebook</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-99plus-million-view-snapshot-amusing-emoji-lore/"><u>2024 Approved  99+ Million View Snapshot  Amusing Emoji Lore</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-capture-and-share-best-social-media-tools-of-the-year/"><u>2024 Approved  Capture and Share  Best Social Media Tools of the Year</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-superior-tracking-mounts-for-cameras-phone-sensitive/"><u>2024 Approved  Superior Tracking Mounts for Cameras, Phone-Sensitive</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/2024-approved-the-comprehensive-guide-to-crafting-an-authentic-online-persona-on-facebook/"><u>2024 Approved  The Comprehensive Guide to Crafting an Authentic Online Persona on Facebook</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-announces-appointment-of-weronika-niemczyk-as-senior-hr-director-and-people-strategy-head/"><u>ABBYY Announces Appointment of Weronika Niemczyk as Senior HR Director and People Strategy Head</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-launches-innovative-intelligent-automation-engineering-hub-in-lithuania/"><u>ABBYY Launches Innovative Intelligent Automation Engineering Hub in Lithuania</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-welcomes-ulf-persson-as-their-latest-chief-executive-officer/"><u>ABBYY Welcomes Ulf Persson as Their Latest Chief Executive Officer</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-chosen-as-the-premier-partner-of-everest-groups-idp-with-peak-matrix/"><u>ABBYY: Chosen as the Premier Partner of Everest Group's IDP with Peak Matrix</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/ais-surge-the-quintessential-five-in-cybercrime-empowerment/"><u>AI's Surge: The Quintessential Five in Cybercrime Empowerment</u></a></li>
-<li><a href="https://solve-info.techidaily.com/analysez-lefficacite-de-votre-processus-dadjudication-livre-electronique-abbyy-guide-complet/"><u>Analysez L'Efficacité De Votre Processus D'Adjudication : Livre Électronique ABBYY - Guide Complet</u></a></li>
-<li><a href="https://solve-info.techidaily.com/auf-dem-weg-zur-konsolidierung-von-buchhaltungsprozessen-wie-abbyy-und-sap-rochlings-rechnungswesen-vereinen/"><u>Auf Dem Weg Zur Konsolidierung Von Buchhaltungsprozessen – Wie ABBYY Und SAP Röchlings Rechnungswesen Vereinen</u></a></li>
-<li><a href="https://solve-info.techidaily.com/automated-ad-targeting-powered-with-cutting-edge-cookiebot-technology/"><u>Automated Ad Targeting: Powered with Cutting-Edge Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/automated-with-cookiebot-streamlined-data-collection-and-analytics/"><u>Automated with Cookiebot: Streamlined Data Collection and Analytics</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-your-traffic-with-advanced-cookiebot-technology/"><u>Boost Your Traffic with Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/como-navegar-por-la-directriz-de-privacidad-y-uso-de-cookies-de-abbyy-tips-e-instrucciones-detalladas/"><u>Cómo Navegar Por La Directriz De Privacidad Y Uso De Cookies De Abbyy: Tips E Instrucciones Detalladas</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-campaigns-elevating-digital-engagement-and-analytics/"><u>Cookiebot-Driven Campaigns: Elevating Digital Engagement and Analytics</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-conversion-boost-your-site-with-smart-analytics/"><u>Cookiebot-Driven Conversion: Boost Your Site with Smart Analytics</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-solutions-enhance-your-sites-seo-and-user-experience/"><u>Cookiebot-Driven Solutions: Enhance Your Site's SEO and User Experience</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-solutions-enhancing-your-online-presence/"><u>Cookiebot-Driven Solutions: Enhancing Your Online Presence</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-success-enhancing-your-sites-visibility-and-conversions/"><u>Cookiebot-Driven Success: Enhancing Your Site's Visibility and Conversions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-enhanced-personalization-and-user-experience/"><u>Cookiebot-Driven: Enhanced Personalization and User Experience</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enabled-analytics-solutions-for-streamlined-user-experience-tracking/"><u>Cookiebot-Enabled Analytics Solutions for Streamlined User Experience Tracking</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enabled-personalization-enhancing-user-experience/"><u>Cookiebot-Enabled Personalization: Enhancing User Experience</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-fueled-automated-marketing-solutions/"><u>Cookiebot-Fueled Automated Marketing Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhancing-user-experience-and-tracking-success-on-your-website/"><u>Cookiebot: Enhancing User Experience & Tracking Success on Your Website</u></a></li>
-<li><a href="https://solve-info.techidaily.com/die-geheimnisse-der-abbyy-software-aufgedeckt-in-rotterdams-modernem-kunstmuseum/"><u>Die Geheimnisse Der ABBYY-Software Aufgedeckt in Rotterdams Modernem Kunstmuseum</u></a></li>
-<li><a href="https://solve-info.techidaily.com/drive-more-visitors-using-the-power-of-cookiebot/"><u>Drive More Visitors Using the Power of Cookiebot</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/effortless-synaptic-touchpad-software-upgrade-and-installation-guide/"><u>Effortless Synaptic Touchpad Software Upgrade and Installation Guide</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-document-digitization-with-next-level-technology-the-abbyy-flexicapture-cloud-upgrade/"><u>Elevate Document Digitization with Next-Level Technology: The ABBYY FlexiCapture Cloud Upgrade</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-user-experience-using-cookiebot-analytics-technology/"><u>Elevate User Experience Using Cookiebot Analytics Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhance-user-experience-and-analytics-via-the-advanced-cookiebot-integration-features/"><u>Enhance User Experience & Analytics via the Advanced Cookiebot Integration Features</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhance-your-web-analytics-using-the-cookiebot-platform/"><u>Enhance Your Web Analytics Using the Cookiebot Platform</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-conversion-rates-with-cookiebot-technology/"><u>Enhanced Conversion Rates with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-conversion-rates-optimized-with-cookiebot-technology/"><u>Enhanced Conversion Rates: Optimized with Cookiebot Technology</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/experience-the-future-of-writing-4-exceptional-ai-narrative-generators-to-test-now/"><u>Experience the Future of Writing: 4 Exceptional AI Narrative Generators to Test Now</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-craft-cinematic-edits-with-ease-and-precision-in-camtasia-9/"><u>In 2024, Craft Cinematic Edits with Ease and Precision in Camtasia 9</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/in-2024-embrace-these-hits-top-10-viral-tiktok-challenges/"><u>In 2024, Embrace These Hits  Top 10 Viral TikTok Challenges</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-fake-gps-location-pro-and-is-it-good-on-samsung-galaxy-a34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What is Fake GPS Location Pro and Is It Good On Samsung Galaxy A34 5G? | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/introducing-apples-newest-macbook-a-look-at-the-latest-upgrade/"><u>Introducing Apple's Newest MacBook: A Look at the Latest Upgrade</u></a></li>
-<li><a href="https://howto.techidaily.com/quick-fixes-for-why-is-my-xiaomi-redmi-note-12-pro-4g-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Xiaomi Redmi Note 12 Pro 4G Black and White | Dr.fone</u></a></li>
-<li><a href="https://win-dash.techidaily.com/secure-guide-how-to-effortlessly-update-your-amd-ryzen-graphics-software/"><u>Secure Guide: How to Effortlessly Update Your AMD Ryzen Graphics Software</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/smart-home-essentials-in-depth-look-at-iseebells-entry-level-video-doorbell/"><u>Smart Home Essentials: In-Depth Look at ISeeBell's Entry-Level Video Doorbell</u></a></li>
-<li><a href="https://solve-info.techidaily.com/sofia-tarasova-expert-collaborator-in-randd-and-product-innovation/"><u>Sofia Tarasova - Expert Collaborator in R&D & Product Innovation</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/1723212111404-solve-overwatch-voice-chat-not-working-issues-easily/"><u>Solve Overwatch Voice Chat Not Working Issues. Easily!</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-art-of-hdr-enhancement-your-lightroom-journey-for-2024/"><u>The Art of HDR Enhancement  Your Lightroom Journey for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ltimate-buyers-blueprint-for-youtubers-for-2024/"><u>The Ultimate Buyer's Blueprint for Youtubers for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-6-appsservices-to-trace-any-realme-c55-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>Top 6 Apps/Services to Trace Any Realme C55 Location By Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/transformez-votre-interface-avec-le-nouveau-sdk-dabbyy-lance-un-outil-mobile-baptise-capture-pour-une-meilleure-ux/"><u>Transformez Votre Interface Avec Le Nouveau SDK D'ABBYY Lance : Un Outil Mobile Baptisé Capture Pour Une Meilleure UX</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/1722892824202-troubleshooting-airpods-charge-issues-try-these-9-fixes/"><u>Troubleshooting AirPods Charge Issues? Try These 9 Fixes!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/understanding-web-pages-optimizing-your-sites-content-and-structure/"><u>Understanding Web Pages: Optimizing Your Site's Content and Structure</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unleashing-potent-digital-advertising-solutions-with-cutting-edge-cookiebot-platforms/"><u>Unleashing Potent Digital Advertising Solutions with Cutting-Edge Cookiebot Platforms</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unraveling-the-mystery-how-map-books-connect-to-boosting-process-intelligence-insights-from-abbyy/"><u>Unraveling the Mystery: How Map Books Connect to Boosting Process Intelligence - Insights From ABBYY</u></a></li>
-<li><a href="https://solve-info.techidaily.com/utilizing-cookiebot-technology-for-enhanced-user-personalization-and-seo-success/"><u>Utilizing Cookiebot Technology for Enhanced User Personalization & SEO Success</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-where-are-my-youtube-comments-desktopiosandroid-strategies/"><u>[New] In 2024, Where Are My YouTube Comments? Desktop/iOS/Android Strategies</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-best-camera-apps-to-shoot-and-record-videos-on-iphone-and-andriod-phones/"><u>[Updated] Best Camera Apps to Shoot and Record Videos on iPhone and Andriod Phones</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-best-of-the-best-10-recorders-for-your-device/"><u>2024 Approved Best of the Best #10 Recorders for Your Device</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-the-peak-of-primes-amazons-hot-tweets-and-shows-23/"><u>2024 Approved The Peak of Primes Amazon’s Hot Tweets & Shows, '23</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-fake-gps-without-root-on-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>3 Ways to Fake GPS Without Root On Honor Magic 6 Lite | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/9-solutions-to-fix-vivo-y27-4g-system-crash-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Vivo Y27 4G System Crash Issue | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/g-youtube-captionssubtitles-made-simple-and-fast-for-2024/"><u>Adding YouTube Captions/Subtitles Made Simple and Fast for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/exploring-the-real-effects-of-covid-on-workers-one-in-four-considering-resignation-due-to-inefficient-corporate-procedures/"><u>Exploring the Real Effects of Covid on Workers: One in Four Considering Resignation Due to Inefficient Corporate Procedures</u></a></li>
+<li><a href="https://solve-info.techidaily.com/harnessing-idp-solutions-a-game-changer-in-modern-insurance-management/"><u>Harnessing IDP Solutions: A Game Changer in Modern Insurance Management</u></a></li>
+<li><a href="https://solve-info.techidaily.com/multilingual-archive-protection-by-abbyy-finereader-securing-4000000plus-historical-documents-for-future-generations-at-the-national-library-of-latvia/"><u>Multilingual Archive Protection by ABBYY FineReader: Securing 4,000,000+ Historical Documents for Future Generations at the National Library of Latvia</u></a></li>
+<li><a href="https://solve-info.techidaily.com/optimized-with-automated-tracker-discover-the-power-of-cookiebot/"><u>Optimized with Automated Tracker: Discover the Power of Cookiebot</u></a></li>
+<li><a href="https://solve-info.techidaily.com/optimizing-real-time-data-on-top-platforms-watchos-vs-wear-os-and-achieving-a-seamless-60-fps-experience-expert-analysis-by-abbyy-gurus/"><u>Optimizing Real-Time Data on TOP Platforms: WatchOS Vs. Wear OS and Achieving a Seamless 60 FPS Experience - Expert Analysis by ABBYY Gurus</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/overcoming-blurry-output-in-the-post-upgrade-window/"><u>Overcoming Blurry Output in the Post-Upgrade Window</u></a></li>
+<li><a href="https://solve-info.techidaily.com/top-5-essentials-for-effective-business-process-analytics-now/"><u>Top 5 Essentials for Effective Business Process Analytics Now</u></a></li>
+<li><a href="https://solve-info.techidaily.com/peak-matrix2024-idp/"><u>アバビイ調査で優勝者を決める：エベレスト・コンソーシアムのPEAK Matrixリーダー指数2024 - IDP</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

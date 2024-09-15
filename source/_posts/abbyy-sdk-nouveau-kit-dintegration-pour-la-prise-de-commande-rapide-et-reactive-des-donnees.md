@@ -1,46 +1,22 @@
 ---
 title: ABBYY SDK Nouveau Kit D'Intégration Pour La Prise De Commande Rapide Et Réactive Des Données
-date: 2024-09-08T23:40:17.722Z
-updated: 2024-09-09T23:40:17.722Z
+date: 2024-09-13T21:11:54.305Z
+updated: 2024-09-14T23:48:35.403Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9cc152d1aca0892df1ca5596ac3ad03cce388893be920721cefd3090f694d72e.png
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY SDK Nouveau Kit D'Intégration Pour La Prise De Commande Rapide Et Réactive Des Données
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Real-Time Recognition SDK intègre une nouvelle fonctionnalité de capture instantanée de données
 
 06 décembre 2017
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### _Cette fonctionnalité « pointer et capturer » permet d'automatiser la saisie de données sur des terminaux mobiles pour des transactions rapides et aisées_.
 
   
@@ -110,8 +86,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -121,54 +95,25 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-the-creative-summit-top-talent-junction/"><u>[New] 2024 Approved  The Creative Summit  Top Talent Junction</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-build-your-brands-success-on-top-business-youtube-channels/"><u>[New] Build Your Brand's Success on Top Business YouTube Channels</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-influencers-utopia-summit/"><u>[Updated] 2024 Approved  Influencers' Utopia Summit</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-best-cloud-apps-android-list-seamless-backup-and-sync-edition/"><u>[Updated] Best-Cloud-Apps-Android-List  Seamless Backup and Sync Edition</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-how-to-record-overwatch/"><u>[Updated] How to Record Overwatch</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-mastering-the-art-of-saving-twitter-jokes-gifs-for-2024/"><u>[Updated] Mastering the Art of Saving Twitter Jokes (GIFs) for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-outro-aesthetics-selecting-templates-any-budget/"><u>[Updated] Outro Aesthetics  Selecting Templates, Any Budget</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1-name-unveiling-the-secrets-of-top-ranking-seo-strategies/"><u>1. $Name: Unveiling the Secrets of Top-Ranking SEO Strategies</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1-abbyy-expedites-border-processing-with-90-speed-enhancement/"><u>1. ABBYY Expedites Border Processing with 90%% Speed Enhancement</u></a></li>
-<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-honor-play-7t-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your Honor Play 7T | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-essential-steps-for-resizing-videos-in-igtv/"><u>2024 Approved  Essential Steps for Resizing Videos in IGTV</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-announces-adrian-jones-as-new-chief-of-revenue-operations-driving-financial-growth/"><u>ABBYY Announces Adrian Jones as New Chief of Revenue Operations, Driving Financial Growth</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-at-handelsblatts-annual-conference-focus-on-banking-technology/"><u>ABBYY at Handelsblatt's Annual Conference - Focus on Banking Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-finereader-engine-12-ideal-ocr-sdk-for-virtual-and-cloud-environments-revealed/"><u>ABBYY FineReader Engine 12: Ideal OCR SDK for Virtual & Cloud Environments Revealed</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-solutions-mastering-photo-editing-barcode-scanning-and-social-media-integration-with-advanced-currency-tools/"><u>ABBYY Solutions: Mastering Photo Editing, Barcode Scanning & Social Media Integration with Advanced Currency Tools</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-welcomes-paul-nizov-as-their-latest-appointment-chief-information-security-officer/"><u>ABBYY Welcomes Paul Nizov as Their Latest Appointment: Chief Information Security Officer</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyys-revolutionary-approach-zur-dokumentenverarbeitung-und-kategorisierung/"><u>ABBYY's Revolutionary Approach Zur Dokumentenverarbeitung Und Kategorisierung</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-efficiency-through-customized-artificial-intelligence-frameworks/"><u>Boost Efficiency Through Customized Artificial Intelligence Frameworks</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-your-site-with-cookiebot-technology-tailored-visitor-insights-and-personalization/"><u>Boost Your Site with Cookiebot Technology: Tailored Visitor Insights and Personalization</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-your-sites-traffic-with-advanced-cookiebot-technology/"><u>Boost Your Site's Traffic with Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-data-collection-and-user-tracking-solutions/"><u>Cookiebot-Driven Data Collection and User Tracking Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-data-collection-optimizing-user-experience/"><u>Cookiebot-Driven Data Collection: Optimizing User Experience</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-insights-advanced-analytics-powering-your-business-intelligence/"><u>Cookiebot-Driven Insights: Advanced Analytics Powering Your Business Intelligence</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enabled-enhancing-your-websites-visitor-tracking-and-engagement/"><u>Cookiebot-Enabled: Enhancing Your Website's Visitor Tracking and Engagement</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-user-experience-mastering-site-analytics-and-personalization/"><u>Cookiebot-Enhanced User Experience: Mastering Site Analytics & Personalization</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-user-experience-optimize-your-sites-performance/"><u>Cookiebot-Enhanced User Experience: Optimize Your Site's Performance</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-the-key-to-unlocking-next-level-site-personalization-and-insights/"><u>Cookiebot: The Key to Unlocking Next-Level Site Personalization and Insights</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cultivating-sharp-skills-insights-into-intellectual-development-from-the-abbyy-blog/"><u>Cultivating Sharp Skills: Insights Into Intellectual Development From the ABBYY Blog</u></a></li>
-<li><a href="https://solve-info.techidaily.com/deciphering-hidden-truths-how-process-mining-reveals-significant-patterns/"><u>Deciphering Hidden Truths: How Process Mining Reveals Significant Patterns</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/discovering-new-gadgets-a-look-into-toms-hardware-selections/"><u>Discovering New Gadgets - A Look Into Tom's Hardware Selections</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-the-requirements-paving-your-path-to-a-new-iphone/"><u>Exploring the Requirements: Paving Your Path to a New iPhone</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/fixing-a-dead-microphone-problem-in-skype-a-step-by-step-guide-for-windows-10-users/"><u>Fixing a Dead Microphone Problem in Skype: A Step-by-Step Guide for Windows 10 Users</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/free-techniques-to-change-your-characters-voice-and-sound-identity-in-free-fire-gaming-for-2024/"><u>Free Techniques to Change Your Character's Voice and Sound Identity in Free Fire Gaming for 2024</u></a></li>
-<li><a href="https://fox-that.techidaily.com/guide-to-preventing-ipad-sounds-during-iphone-calls-a-step-by-step-process/"><u>Guide to Preventing iPad Sounds During iPhone Calls: A Step-by-Step Process</u></a></li>
-<li><a href="https://common-error.techidaily.com/how-to-correct-faulty-game-modules-errors-and-stop-sudden-game-shutdowns/"><u>How to Correct 'Faulty Game Modules' Errors and Stop Sudden Game Shutdowns</u></a></li>
-<li><a href="https://win11.techidaily.com/ideal-replacements-for-windows-snipping-functionality-in-other-oses/"><u>Ideal Replacements for Windows' Snipping Functionality in Other OSes</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-realme-11-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Realme 11 Pro? | Dr.fone</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/in-2024-hands-free-strategies-for-logging-online-meetings/"><u>In 2024, Hands-Free Strategies for Logging Online Meetings</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-xiaomi-redmi-note-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Xiaomi Redmi Note 12 5G? | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-can-samsung-galaxy-a05mirror-share-to-pc-drfone-by-drfone-android/"><u>In 2024, How Can Samsung Galaxy A05Mirror Share to PC? | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-oppo-find-x7-ultra-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Oppo Find X7 Ultra to Apple TV | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimized-with-the-cutting-edge-of-traffic-management-the-cookiebot-solution/"><u>Optimized with the Cutting-Edge of Traffic Management: The Cookiebot Solution</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/safeguarding-your-interactive-dialogues-with-openais-tools/"><u>Safeguarding Your Interactive Dialogues with OpenAI's Tools</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/snicker-spinner-picture-editor/"><u>Snicker Spinner  Picture Editor</u></a></li>
-<li><a href="https://techidaily.com/solutions-to-restore-deleted-files-from-oppo-a2-by-fonelab-android-recover-data/"><u>Solutions to restore deleted files from Oppo A2</u></a></li>
-<li><a href="https://solve-info.techidaily.com/the-smart-enterprise-chronicles-with-maxime-vermeir-delving-into-artificial-intelligence/"><u>The Smart Enterprise Chronicles with Maxime Vermeir – Delving Into Artificial Intelligence</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-resource-for-profiting-from-your-youtube-content-for-2024/"><u>The Ultimate Resource for Profiting From Your YouTube Content for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unlocking-productivity-discover-how-abbyy-intelligent-automation-boosted-efficiency-by-35-insights-from-a-comprehensive-case-study/"><u>Unlocking Productivity: Discover How ABBYY Intelligent Automation Boosted Efficiency by 35%% - Insights From a Comprehensive Case Study</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unveiling-the-future-critical-findings-from-abbyys-report-on-smart-automation-progress/"><u>Unveiling the Future: Critical Findings From ABBYY's Report on Smart Automation Progress</u></a></li>
-<li><a href="https://solve-info.techidaily.com/utilizing-cookiebot-technology-for-improved-data-collection-and-analysis/"><u>Utilizing Cookiebot Technology for Improved Data Collection and Analysis</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-mac-techniques-to-shorten-instagram-vids-for-2024/"><u>[Updated] Mac Techniques to Shorten Instagram Vids for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-virtual-diary-dos-and-donts-for-consistent-content/"><u>[Updated] Virtual Diary Dos & Don'ts for Consistent Content</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unrivaled-video-tech-for-apple-phones/"><u>2024 Approved Unrivaled Video Tech for Apple Phones</u></a></li>
+<li><a href="https://games-able.techidaily.com/claiming-your-money-back-from-xbox-game-bets/"><u>Claiming Your Money Back From Xbox Game Bets</u></a></li>
+<li><a href="https://common-error.techidaily.com/immediate-fix-how-to-resolve-no-battery-detected-issues-swiftly/"><u>Immediate Fix: How to Resolve 'No Battery Detected' Issues Swiftly</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-conquering-the-crash-solutions-for-windows-10-photos-issues/"><u>In 2024, Conquering the Crash Solutions for Windows 10 Photos Issues</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/linguagem-verde-saudacoes-a-toda-hora-no-brasil/"><u>Linguagem Verde - Saudações a Toda Hora No Brasil</u></a></li>
+<li><a href="https://solve-info.techidaily.com/optimized-with-automated-tracker-discover-the-power-of-cookiebot/"><u>Optimized with Automated Tracker: Discover the Power of Cookiebot</u></a></li>
+<li><a href="https://solve-info.techidaily.com/optimizing-real-time-data-on-top-platforms-watchos-vs-wear-os-and-achieving-a-seamless-60-fps-experience-expert-analysis-by-abbyy-gurus/"><u>Optimizing Real-Time Data on TOP Platforms: WatchOS Vs. Wear OS and Achieving a Seamless 60 FPS Experience - Expert Analysis by ABBYY Gurus</u></a></li>
+<li><a href="https://solve-info.techidaily.com/top-5-essentials-for-effective-business-process-analytics-now/"><u>Top 5 Essentials for Effective Business Process Analytics Now</u></a></li>
+<li><a href="https://solve-info.techidaily.com/understanding-data-shifts-transforming-from-etl-to-elt-techniques-insights-and-importance-with-abbyy/"><u>Understanding Data Shifts: Transforming From ETL to ELT Techniques - Insights and Importance with ABBYY</u></a></li>
+<li><a href="https://solve-info.techidaily.com/unlocking-new-ocr-features-with-abbyy-finereader-engine-update-to-version-12/"><u>Unlocking New OCR Features with ABBYY FineReader Engine Update to Version 12</u></a></li>
+<li><a href="https://solve-info.techidaily.com/peak-matrix2024-idp/"><u>アバビイ調査で優勝者を決める：エベレスト・コンソーシアムのPEAK Matrixリーダー指数2024 - IDP</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

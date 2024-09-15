@@ -1,40 +1,22 @@
 ---
 title: ABBYY Announces Appointment of Weronika Niemczyk as Senior HR Director and People Strategy Head
-date: 2024-09-08T23:40:18.495Z
-updated: 2024-09-09T23:40:18.495Z
+date: 2024-09-10T19:16:01.446Z
+updated: 2024-09-14T16:35:52.404Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a446c77eb3a38ef1182231809e6f1b7dff4f649191871eaf498a91e3c9faa20f.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Announces Appointment of Weronika Niemczyk as Senior HR Director and People Strategy Head
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115950/19272" target="_top" id="2115950">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115950" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115950/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Recruits Weronika Niemczyk as Chief People Officer
 
 November 24, 2020
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### _Niemczyk joins as the importance of uniting a globally and virtually distributed workforce becomes critical to ABBYY’s long-term success_
 
 ABBYY, a Digital Intelligence company, announced today the appointment of Weronika Niemczyk as the company’s first Chief People Officer (CPO). Niemczyk will lead all aspects of improving the employee experience for ABBYY’s more than 1,200 global team members distributed across 14 countries and five continents. She previously led human resources (HR) at global companies Expedia, Google, and Ascential and has a passion for talent development, culture, diversity, and inclusion.
@@ -68,8 +50,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -79,44 +59,25 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-how-can-i-post-a-video-between-twitter-and-tumblr-in-2024/"><u>[New] How Can I Post a Video Between Twitter and Tumblr, In 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-learn-to-produce-must-see-fb-music-videos-today/"><u>[Updated] Learn to Produce Must-See FB Music Videos Today</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-quip-collection-event-specific-jest-compilation/"><u>2024 Approved  Quip Collection  Event-Specific Jest Compilation</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-teacher-friendly-video-capture-options-reviewed/"><u>2024 Approved  Teacher-Friendly Video Capture Options Reviewed</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-unveiling-the-apple-podcast-submission-process/"><u>2024 Approved  Unveiling the Apple Podcast Submission Process</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/analyzing-the-impact-of-audio-device-isolation/"><u>Analyzing the Impact of Audio Device Isolation</u></a></li>
-<li><a href="https://change-location.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-samsung-galaxy-a25-5g-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Samsung Galaxy A25 5G | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/easy-fixes-how-to-recover-forgotten-icloud-password-on-your-apple-iphone-13-pro-max-by-drfone-ios/"><u>Easy Fixes How To Recover Forgotten iCloud Password On your Apple iPhone 13 Pro Max</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-your-digital-presence-with-cutting-edge-cookiebot-technology-solutions/"><u>Elevate Your Digital Presence with Cutting-Edge Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-your-online-marketing-experience-the-magic-of-cookiebot-automation/"><u>Elevate Your Online Marketing: Experience the Magic of Cookiebot Automation</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-your-website-with-advanced-cookiebot-technology-solutions/"><u>Elevate Your Website with Advanced Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-your-website-with-cookiebot-technology-solutions/"><u>Elevate Your Website with Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevating-your-sites-potential-through-advanced-cookiebot-integration/"><u>Elevating Your Site's Potential Through Advanced Cookiebot Integration</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhance-your-analytics-and-personalization-with-our-cookiebot-solution/"><u>Enhance Your Analytics and Personalization with Our Cookiebot Solution!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhance-your-digital-marketing-strategy-using-smart-tracking-technology-empowered-by-cookiebot-solutions/"><u>Enhance Your Digital Marketing Strategy Using Smart Tracking Technology – Empowered by Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-marketing-insights-and-control-with-the-innovative-cookiebot-system/"><u>Enhanced Marketing Insights and Control with the Innovative Cookiebot System</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-site-personalization-with-the-power-of-cookiebot-technology/"><u>Enhanced Site Personalization with the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-accessibility-with-special-mobility-how-to-protect-your-data-from-textgrabber-on-abbyy/"><u>Enhancing Accessibility with Special Mobility - How to Protect Your Data From TextGrabber on ABBYY</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-emergency-department-efficiency-with-process-mining-insights-from-widener-universitys-study-using-abbyy-timeline/"><u>Enhancing Emergency Department Efficiency with Process Mining: Insights From Widener University's Study Using ABBYY Timeline</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-rpa-success-through-next-gen-process-analytics-techniques-by-abbyy/"><u>Enhancing RPA Success Through Next-Gen Process Analytics Techniques by ABBYY</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-user-experience-with-cookiebot-technology-integration/"><u>Enhancing User Experience with Cookiebot Technology Integration</u></a></li>
-<li><a href="https://solve-info.techidaily.com/experience-enhanced-marketing-success-using-the-advanced-capabilities-of-cookiebot-solutions/"><u>Experience Enhanced Marketing Success Using the Advanced Capabilities of Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/finereader-14-von-abbyy-neue-funktionen-fur-zusatzliche-pdf-dateitypen-unterstutzen/"><u>FineReader 14 Von ABBYY: Neue Funktionen Für Zusätzliche PDF-Dateitypen Unterstützen</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-show-wi-fi-password-on-lava-yuva-2-pro-by-drfone-android/"><u>How to Show Wi-Fi Password on Lava Yuva 2 Pro</u></a></li>
-<li><a href="https://media-tips.techidaily.com/how-to-successfully-eliminate-watermarks-from-your-gif-images/"><u>How to Successfully Eliminate Watermarks From Your GIF Images</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-10-fake-gps-location-apps-on-android-of-your-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual/"><u>In 2024, 10 Fake GPS Location Apps on Android Of your Asus ROG Phone 7 Ultimate | Dr.fone</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-unveiling-androids-screen-recording-capabilities/"><u>In 2024, Unveiling Android's Screen Recording Capabilities</u></a></li>
-<li><a href="https://solve-info.techidaily.com/insights-on-future-ai-trends-with-abbyy-executive-moving-beyond-generative-hype/"><u>Insights on Future AI Trends with ABBYY Executive - Moving Beyond Generative Hype</u></a></li>
-<li><a href="https://solve-info.techidaily.com/iphone-document-scanning-and-ocr-convert-pdfsjpgs-with-finereader-app/"><u>IPhone Document Scanning & OCR: Convert PDFs/JPGs with FineReader App</u></a></li>
-<li><a href="https://solve-info.techidaily.com/marlin-equity-partnersabbyy/"><u>Marlin Equity PartnersがABBYYに対する投資を開始 - 最新ニュース解析</u></a></li>
-<li><a href="https://solve-info.techidaily.com/nagarro-achieves-a-60-cut-in-bill-payment-cycle-with-abbyy-for-enhanced-customer-accessibility/"><u>Nagarro Achieves a 60%% Cut in Bill Payment Cycle with ABBYY for Enhanced Customer Accessibility</u></a></li>
-<li><a href="https://solve-info.techidaily.com/no-coding-experience-required-build-your-own-apps-in-minutes-not-months/"><u>No Coding Experience Required? Build Your Own Apps in Minutes, Not Months!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimize-your-site-with-cookiebot-technology-for-tailored-user-experiences/"><u>Optimize Your Site with Cookiebot Technology for Tailored User Experiences</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimized-with-cookiebot-technology-for-smarter-online-engagement-tracking/"><u>Optimized with Cookiebot Technology for Smarter Online Engagement Tracking</u></a></li>
-<li><a href="https://solve-info.techidaily.com/proprietary-website-personalization-using-cookiebot-technology/"><u>Proprietary Website Personalization Using Cookiebot Technology</u></a></li>
-<li><a href="https://techidaily.com/remove-google-frp-lock-on-zte-by-drfone-android-unlock-remove-google-frp/"><u>Remove Google FRP Lock on ZTE</u></a></li>
-<li><a href="https://solve-info.techidaily.com/reshaping-fiscal-processes-in-response-to-the-modern-eras-challenges-effective-techniques-for-thriving/"><u>Reshaping Fiscal Processes in Response to the Modern Era's Challenges: Effective Techniques for Thriving</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/resolve-display-synchronization-problems-pc/"><u>Resolve Display Synchronization Problems (PC)</u></a></li>
-<li><a href="https://windows11.techidaily.com/secretive-startup-strategies-conceal-the-shutdown-command/"><u>Secretive Startup Strategies: Conceal the Shutdown Command</u></a></li>
-<li><a href="https://article-helps.techidaily.com/unveiling-windows-10s-full-potential-with-zoom-services-for-2024/"><u>Unveiling Windows 10'S Full Potential with Zoom Services for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-breathing-life-into-images-mastering-face-motion-blur-in-picsart/"><u>[New] Breathing Life Into Images Mastering Face Motion Blur in Picsart</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-shield-your-snapshots-from-times-tide-explore-cost-effective-solutions/"><u>[New] Shield Your Snapshots From Time's Tide - Explore Cost-Effective Solutions</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-avoid-youtube-previews-on-all-platforms-and-devices/"><u>[Updated] Avoid YouTube Previews on All Platforms & Devices</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-how-to-capture-your-gaming-success-on-win10-for-2024/"><u>[Updated] How to Capture Your Gaming Success on Win10 for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/abbyy-solutions-mastering-photo-editing-barcode-scanning-and-social-media-integration-with-advanced-currency-tools/"><u>ABBYY Solutions: Mastering Photo Editing, Barcode Scanning & Social Media Integration with Advanced Currency Tools</u></a></li>
+<li><a href="https://solve-info.techidaily.com/abbyy-welcomes-paul-nizov-as-their-latest-appointment-chief-information-security-officer/"><u>ABBYY Welcomes Paul Nizov as Their Latest Appointment: Chief Information Security Officer</u></a></li>
+<li><a href="https://solve-info.techidaily.com/abbyys-revolutionary-approach-zur-dokumentenverarbeitung-und-kategorisierung/"><u>ABBYY's Revolutionary Approach Zur Dokumentenverarbeitung Und Kategorisierung</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ausreden-vermeiden-deutsche-art-zu-bedauern-sagen/"><u>Ausreden Vermeiden – Deutsche Art Zu Bedauern Sagen</u></a></li>
+<li><a href="https://solve-info.techidaily.com/boost-efficiency-through-customized-artificial-intelligence-frameworks/"><u>Boost Efficiency Through Customized Artificial Intelligence Frameworks</u></a></li>
+<li><a href="https://solve-info.techidaily.com/boost-your-site-with-cookiebot-technology-tailored-visitor-insights-and-personalization/"><u>Boost Your Site with Cookiebot Technology: Tailored Visitor Insights and Personalization</u></a></li>
+<li><a href="https://solve-info.techidaily.com/boost-your-sites-traffic-with-advanced-cookiebot-technology/"><u>Boost Your Site's Traffic with Advanced Cookiebot Technology</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-play-mp4-files-on-edge-40-neo-by-aiseesoft-video-converter-play-mp4-on-android/"><u>How to play MP4 files on Edge 40 Neo?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/navigating-the-digital-realm-uploading-with-premiere-and-youtube/"><u>Navigating the Digital Realm Uploading with Premiere & YouTube</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

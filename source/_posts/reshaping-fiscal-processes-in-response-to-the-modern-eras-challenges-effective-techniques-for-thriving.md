@@ -1,7 +1,7 @@
 ---
 title: "Reshaping Fiscal Processes in Response to the Modern Era's Challenges: Effective Techniques for Thriving"
-date: 2024-09-08T23:40:20.037Z
-updated: 2024-09-09T23:40:20.037Z
+date: 2024-09-12T20:07:53.170Z
+updated: 2024-09-14T17:30:27.143Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/053654aac9195ea45d1f77852c408a3b2770cc6c802ff6728e9e3d8c452deddb.jpg
@@ -11,34 +11,16 @@ thumbnail: https://thmb.techidaily.com/053654aac9195ea45d1f77852c408a3b2770cc6c8
 
 [Back to Webinars](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Shifting Your Finance Operations for the ‘New Normal’: Strategies for Success
 
 English
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Featuring
 
 ![32 Stevenstills 198X198](https://static3.abbyy.com/abbyycommedia/25772/costain-logo-forspeakers.jpg) 
 
 ![32 Stevenstills 198X198](https://static4.abbyy.com/abbyycommedia/25768/32-stevenstills-198x198.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Steven Still
 
 Head of Automation, **Costain**
@@ -47,42 +29,25 @@ Head of Automation, **Costain**
 
 ![30 Jessscheer 198X198](https://static4.abbyy.com/abbyycommedia/25764/30-jessscheer-198x198.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Jess Scheer
 
 Executive Editor, **Institute of Finance and Management**
 
 ![20 Andrewpery 198X198](https://static4.abbyy.com/abbyycommedia/25121/logo-2021-90x27.svg) 
 
-<!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![20 Andrewpery 198X198](https://static4.abbyy.com/abbyycommedia/25498/20-andrewpery-198x198.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Andrew Pery
 
 Digital Intelligence Consultant, **ABBYY**
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Overview
 
 Shifting to the next phase of a COVID-19 world, finance leaders globally are facing ongoing challenges: ranging from general maintenance of operations, including technology infrastructure limitations and cash management - to adjusting to new realities and addressing fraud risks due to changes of internal control - and more - accelerating needs to quickly rearchitect supply chains.
@@ -91,12 +56,6 @@ At the same time; urgency exists to uncover and remediate gaps in existing finan
 
 And, CFOs are evolving as orchestrators of varied business functions, assuming a role of what PwC defines as 'Chief Performance Officer'; excelling a heightened level of participation across strategic decision making.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Learn from our experts for practices to accelerate success and future-proof your organization; including how you can:
 
 * Reduce manual intervention, errors, loss of time, and increase efficient ways of working
@@ -108,34 +67,37 @@ And, CFOs are evolving as orchestrators of varied business functions, assuming a
 
 This discussion and demonstration highlights real-life examples and approaches from Analyst, Jess Scheer, and Costain's Head of Automation, Steven Still; that can evolve your organization’s digital transformation efforts, to design a sustainable future.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Watch now
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
-<!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Thank you, enjoy your webinar!
 
 [![09 Shifting Your Finance Operations](https://static5.abbyy.com/abbyycommedia/29001/09-shifting-your-finance-operations.jpg)](https://www.youtube.com/watch?v=x%5F9NXipDxU4) 
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
@@ -195,8 +157,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -206,36 +166,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-digital-scribes-leading-screen-recorder-software-for-2024/"><u>[New] Digital Scribes  Leading Screen Recorder Software for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-prime-selection-of-simple-effective-gamers-edit-tools/"><u>[New] In 2024, Prime Selection of Simple, Effective Gamers' Edit Tools</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-thriving-in-the-facebook-ecosystem-money-making-strategies-for-2024/"><u>[New] Thriving in the Facebook Ecosystem  Money-Making Strategies for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-narrative-nooks-the-leading-10-rogues/"><u>[Updated] 2024 Approved  Narrative Nooks  The Leading 10 Rogues</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-expert-advice-top-ranked-call-alert-creators/"><u>[Updated] Expert Advice  Top-Ranked Call Alert Creators</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-best-in-class-chromebook-recording-app/"><u>2024 Approved  Best in Class  Chromebook Recording App</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-als-losung-zur-automatisierung-von-rechtspapierverarbeitung-fortschrittliche-rechnungsmanagement-systeme-fur-rechtsanwalte/"><u>ABBYY Als Lösung Zur Automatisierung Von Rechtspapierverarbeitung – Fortschrittliche Rechnungsmanagement-Systeme Für Rechtsanwälte</u></a></li>
-<li><a href="https://solve-info.techidaily.com/achieving-unparalleled-process-improvement-with-process-mining-and-robotic-automation/"><u>Achieving Unparalleled Process Improvement with Process Mining & Robotic Automation</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-your-site-with-automated-personalization-the-cookiebot-advantage/"><u>Boost Your Site with Automated Personalization: The Cookiebot Advantage</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-your-site-with-our-efficient-cookiebot-analytics-solution/"><u>Boost Your Site with Our Efficient Cookiebot Analytics Solution</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-your-sites-traffic-with-our-leading-cookiebot-driven-analytics-tools/"><u>Boost Your Site's Traffic with Our Leading Cookiebot-Driven Analytics Tools</u></a></li>
-<li><a href="https://solve-info.techidaily.com/convert-photos-to-editable-pdfsjpeg-files-using-iocr-scanner-streamline-reading-on-ios-devices/"><u>Convert Photos to Editable PDFs/JPEG Files Using iOCR Scanner | Streamline Reading on iOS Devices</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-digital-solutions-elevate-your-seo-strategy/"><u>Cookiebot-Driven Digital Solutions: Elevate Your SEO Strategy</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enabled-customized-user-experience-boosts-engagement-and-sales/"><u>Cookiebot-Enabled Customized User Experience Boosts Engagement and Sales</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-site-performance-and-personalization/"><u>Cookiebot-Enhanced Site Performance and Personalization</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-boost-your-websites-conversion-with-advanced-tracking/"><u>Cookiebot-Enhanced: Boost Your Website's Conversion with Advanced Tracking</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-smart-personalization-for-your-site/"><u>Cookiebot-Enhanced: Smart Personalization for Your Site</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-unleashing-the-potential-of-smart-marketing-technology/"><u>Cookiebot-Enhanced: Unleashing the Potential of Smart Marketing Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-the-key-to-cutting-edge-data-tracking-and-personalization/"><u>Cookiebot: The Key to Cutting-Edge Data Tracking and Personalization</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/editing-directory-names-for-users-in-windows-11-edition/"><u>Editing Directory Names for Users in Windows 11 Edition</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-maximizing-the-impact-the-art-of-using-whiteboards-on-zoom/"><u>In 2024, Maximizing the Impact  The Art of Using Whiteboards on Zoom</u></a></li>
-<li><a href="https://solve-info.techidaily.com/revolutionize-your-it-infrastructure-using-ai-essential-strategies-by-abbyy-experts/"><u>Revolutionize Your IT Infrastructure Using AI: Essential Strategies by ABBYY Experts</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/sim-unlock-nokia-g42-5g-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Nokia G42 5G Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
-<li><a href="https://solve-info.techidaily.com/smart-integration-of-ai-and-robotics-in-modern-medicine-infographic-guide/"><u>Smart Integration of AI and Robotics in Modern Medicine - Infographic Guide</u></a></li>
-<li><a href="https://solve-info.techidaily.com/streamlined-workflow-integration-with-pipefy-and-abbyy-document-automation/"><u>Streamlined Workflow Integration with Pipefy & ABBYY Document Automation</u></a></li>
-<li><a href="https://solve-info.techidaily.com/texthelp-und-abbyy-revolutionarer-support-fur-menschen-mit-leseschwache-oder-dysgraphie/"><u>Texthelp Und ABBYY: Revolutionärer Support Für Menschen Mit Leseschwäche Oder Dysgraphie</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/troubleshoot-blurry-laptop-horizontal-bars/"><u>Troubleshoot Blurry Laptop Horizontal Bars</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unleash-potential-with-our-cookiebot-integrated-services/"><u>Unleash Potential with Our Cookiebot Integrated Services</u></a></li>
-<li><a href="https://solve-info.techidaily.com/untapped-opportunities-how-british-enterprises-can-harness-automation-advantages-according-to-abbyy-insights/"><u>Untapped Opportunities: How British Enterprises Can Harness Automation Advantages, According to ABBYY Insights</u></a></li>
-<li><a href="https://solve-info.techidaily.com/verbessern-sie-die-sicherheit-von-dokumenten-bei-der-eingabe-mit-tangro-hochladen-per-process-security/"><u>Verbessern Sie Die Sicherheit Von Dokumenten Bei Der Eingabe Mit Tangro® - Hochladen per Process Security</u></a></li>
-<li><a href="https://solve-info.techidaily.com/warum-fehlt-es-bei-deutschen-firmen-oftmals-an-einem-verstandnis-fur-rpa-was-zu-misserfolgen-fuhrt-insights-von-abbyy/"><u>Warum Fehlt Es Bei Deutschen Firmen Oftmals an Einem Verständnis Für RPA, Was Zu Misserfolgen Führt – Insights Von ABBYY</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyycfo/"><u>ジェームズ・ライター氏がABBYYの新しいCFOとして昇格</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unlocking-creative-potential-with-pexels-visuals/"><u>[Updated] Unlocking Creative Potential with Pexels Visuals</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-honor-magic-vs-2-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset Honor Magic Vs 2 | Dr.fone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/automated-with-cookiebot-streamlined-data-collection-and-analytics/"><u>Automated with Cookiebot: Streamlined Data Collection and Analytics</u></a></li>
+<li><a href="https://solve-info.techidaily.com/boost-your-traffic-with-advanced-cookiebot-technology/"><u>Boost Your Traffic with Advanced Cookiebot Technology</u></a></li>
+<li><a href="https://solve-info.techidaily.com/como-navegar-por-la-directriz-de-privacidad-y-uso-de-cookies-de-abbyy-tips-e-instrucciones-detalladas/"><u>Cómo Navegar Por La Directriz De Privacidad Y Uso De Cookies De Abbyy: Tips E Instrucciones Detalladas</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-driven-campaigns-elevating-digital-engagement-and-analytics/"><u>Cookiebot-Driven Campaigns: Elevating Digital Engagement and Analytics</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-driven-conversion-boost-your-site-with-smart-analytics/"><u>Cookiebot-Driven Conversion: Boost Your Site with Smart Analytics</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-error-495-while-downloadupdating-android-apps-on-oneplus-ace-2v-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Error 495 While Download/Updating Android Apps On OnePlus Ace 2V | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-2-ways-to-monitor-tecno-spark-20-pro-activity-drfone-by-drfone-virtual-android/"><u>In 2024, 2 Ways to Monitor Tecno Spark 20 Pro Activity | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-most-known-ways-to-find-someone-on-tinder-for-honor-magic-6-by-name-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Most-Known Ways to Find Someone on Tinder For Honor Magic 6 by Name | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/is-your-oppo-reno-11-5g-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your Oppo Reno 11 5G working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/mastering-interactive-storytelling-a-comprehensive-guide-to-creating-an-engaging-txt-rpg-with-chatgpt/"><u>Mastering Interactive Storytelling: A Comprehensive Guide to Creating an Engaging TXT RPG with ChatGPT</u></a></li>
+<li><a href="https://change-location.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Samsung Galaxy S23 Ultra | Dr.fone</u></a></li>
 </ul></div>
+

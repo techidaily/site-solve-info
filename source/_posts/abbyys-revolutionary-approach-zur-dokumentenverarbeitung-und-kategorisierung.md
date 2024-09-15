@@ -1,46 +1,22 @@
 ---
 title: ABBYY's Revolutionary Approach Zur Dokumentenverarbeitung Und Kategorisierung
-date: 2024-09-08T23:40:16.909Z
-updated: 2024-09-09T23:40:16.909Z
+date: 2024-09-13T22:50:28.085Z
+updated: 2024-09-14T17:03:02.675Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7104eb033fbf632865800cb348d315fa27012665cace64350a90155028571e6d.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY's Revolutionary Approach Zur Dokumentenverarbeitung Und Kategorisierung
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY mit neuem Ansatz zur Dokumentenklassifizierung
 
 12\. Januar 2017
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### _ABBYY Smart Classifier in Westeuropa verfügbar: Neue sprachbasierte Software unterstützt Unternehmen im Content Management, sortiert unstrukturierte Informationen und macht sie nutzbar_
 
 ABBYY Europe, ein führender Anbieter von Technologien und Lösungen für Dokumentenerkennung, Data Capture und Linguistik gibt heute die Verfügbarkeit von >ABBYY Smart Classifier auf dem europäischen Markt bekannt. Das neue Produkt bietet präzise Dokumentenklassifizierung und unterstützt Unternehmen dabei, unstrukturierte Informationen zu katalogisieren und sie so besser nutzbar zu machen. Basierend auf [Compreno®](https://tools.techidaily.com/abbyy/products/), ABBYYs innovativer Natural Language Processing (NLP) Technologie, kategorisiert Smart Classifier große Dokumentenbestände schnell und zuverlässig basierend auf statistischer und semantischer Inhaltsanalyse. So klassifiziert sind Informationen dann bereit für Suche und Zugriff, automatisches Routing innerhalb der Organisation, intelligente Datenextraktion oder eine fundierte Entscheidungsfindung.  
@@ -108,8 +84,6 @@ Vernetzen Sie sich mit uns
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -119,56 +93,25 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-avoid-a-snapbreak-ways-to-maintain-your-snapstreaks/"><u>[New] Avoid a Snapbreak  Ways to Maintain Your Snapstreaks</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-the-art-and-science-of-striking-youtube-live-images/"><u>[New] In 2024, The Art and Science of Striking YouTube Live Images</u></a></li>
-<li><a href="https://win-blog.techidaily.com/solved-nba-2k23-crashing-on-pc-7-proven-fixes/"><u>[SOLVED] NBA 2K23 Crashing on PC | 7 Proven Fixes</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-elevating-your-content-becoming-a-staff-pick-favorite-on-vimeo/"><u>[Updated] In 2024, Elevating Your Content  Becoming a Staff Pick Favorite on Vimeo</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-smoothly-alter-color-grades-with-luts-abroad/"><u>2024 Approved  Smoothly Alter Color Grades with LUTs, Abroad</u></a></li>
-<li><a href="https://solve-info.techidaily.com/5-schritte-fur-die-erfolgreiche-implementierung-von-rpa-mit-abbyy-prozessintelligenz-pdf/"><u>5-Schritte Für Die Erfolgreiche Implementierung Von RPA Mit ABBYY Prozessintelligenz - PDF</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-dominates-the-everest-groups-idp-peak-matrix-ranking/"><u>ABBYY Dominates the Everest Group's IDP PEAK Matrix Ranking</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-erweitert-internationaler-eintritt-zu-kunstlicher-intelligenz-tools-in-den-letzten-quartalen-von-2018/"><u>ABBYY Erweitert Internationaler Eintritt Zu Künstlicher Intelligenz Tools in Den Letzten Quartalen Von 2018</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-flexicapture-innovatives-losungsangebot-fur-die-prufungsabwicklung-der-uzh/"><u>ABBYY FlexiCapture: Innovatives Lösungsangebot Für Die Prüfungsabwicklung Der UZH</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-news-and-updates-with-timelinepi/"><u>ABBYY News and Updates with TimelinePI</u></a></li>
-<li><a href="https://solve-info.techidaily.com/beyond-horizons-in-document-processing-discover-how-abvs-innovation-sets-new-standards/"><u>Beyond Horizons in Document Processing: Discover How ABV's Innovation Sets New Standards</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-user-engagement-with-our-advanced-cookiebot-integration-solutions/"><u>Boost User Engagement with Our Advanced Cookiebot Integration Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-your-sites-ranking-with-advanced-cookiebot-seo-technology/"><u>Boost Your Site's Ranking with Advanced Cookiebot SEO Technology</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/complete-solution-resolving-the-persistent-windows-update-error-0x80240017/"><u>Complete Solution: Resolving the Persistent Windows Update Error 0X80240017</u></a></li>
-<li><a href="https://windows11.techidaily.com/concealing-the-taskbar-written-words-in-windows-11-ui/"><u>Concealing the Taskbar’ Written Words in Windows 11 UI</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-your-gateway-to-enhanced-web-analytics-and-personalized-marketing/"><u>Cookiebot: Your Gateway to Enhanced Web Analytics and Personalized Marketing</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/create-professional-minecraft-graphics/"><u>Create Professional Minecraft Graphics</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cutting-delivery-times-for-global-top-tier-brewery-karlstejn-group-with-advanced-abbyy-systems/"><u>Cutting Delivery Times for Global Top-Tier Brewery Karlstejn Group with Advanced ABBYY Systems</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/easy-tutorial-for-activating-icloud-from-apple-iphone-15-safe-and-legal-by-drfone-ios/"><u>Easy Tutorial for Activating iCloud from Apple iPhone 15 Safe and Legal</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-your-business-with-abbyy-flexicapture-for-a-digitally-advanced-future/"><u>Elevate Your Business with ABBYY FlexiCapture for a Digitally Advanced Future</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-marketing-with-the-power-of-cookiebot-technology/"><u>Enhanced Marketing with the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-site-engagement-through-cookiebots-smart-visitor-tracking-solutions/"><u>Enhanced Site Engagement Through Cookiebot's Smart Visitor Tracking Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-user-experience-with-advanced-traffic-analysis-technology/"><u>Enhanced User Experience with Advanced Traffic Analysis Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/experience-seamless-conversion-with-our-cookiebot-technology-integration/"><u>Experience Seamless Conversion with Our Cookiebot Technology Integration</u></a></li>
-<li><a href="https://solve-info.techidaily.com/experience-tailored-navigation-with-cookiebot-technology/"><u>Experience Tailored Navigation with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/exploring-the-real-effects-of-covid-on-workers-one-in-four-considering-resignation-due-to-inefficient-corporate-procedures/"><u>Exploring the Real Effects of Covid on Workers: One in Four Considering Resignation Due to Inefficient Corporate Procedures</u></a></li>
-<li><a href="https://solve-info.techidaily.com/gartners-magic-quadrant-recognizes-abbyy-as-a-standout-named-leader-in-ocr-technology/"><u>Gartner's Magic Quadrant Recognizes ABBYY as a Standout Named Leader in OCR Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/harnessing-idp-solutions-a-game-changer-in-modern-insurance-management/"><u>Harnessing IDP Solutions: A Game Changer in Modern Insurance Management</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/hot-tiktok-topics-and-tags-for-enhanced-interaction-for-2024/"><u>Hot TikTok Topics & Tags for Enhanced Interaction for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-samsung-galaxy-s23-ultra-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Samsung Galaxy S23 Ultra PIN Code/Pattern Lock/Password</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-how-to-record-facebook-messenger-calls/"><u>In 2024, How to Record Facebook Messenger Calls</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-unlock-apple-id-on-your-apple-iphone-7-without-security-questions-by-drfone-ios/"><u>In 2024, How to Unlock Apple ID On your Apple iPhone 7 without Security Questions?</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-riding-the-wave-of-solitary-podcast-popularity/"><u>In 2024, Riding the Wave of Solitary Podcast Popularity</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/leading-photo-repair-programs-for-salvaging-your-precious-memories-from-data-loss/"><u>Leading Photo Repair Programs for Salvaging Your Precious Memories From Data Loss</u></a></li>
-<li><a href="https://solve-info.techidaily.com/leveraging-cookiebot-solutions-boosting-online-traffic-and-conversion-rates/"><u>Leveraging Cookiebot Solutions: Boosting Online Traffic & Conversion Rates</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/mastering-academic-writing-a-guide-to-utilizing-chatgpt-for-your-research-papers/"><u>Mastering Academic Writing: A Guide to Utilizing ChatGPT for Your Research Papers</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/mastering-process-insight-with-abbyys-advanced-neat-analysis-solutions-by-nelsonhallcom/"><u>Mastering Process Insight with ABBYY's Advanced Neat Analysis Solutions by Nelsonhall.com</u></a></li>
-<li><a href="https://review-topics.techidaily.com/mov-files-are-unwatchable-on-nova-y71-by-aiseesoft-video-converter-play-mov-on-android/"><u>MOV files are unwatchable on Nova Y71</u></a></li>
-<li><a href="https://solve-info.techidaily.com/multilingual-archive-protection-by-abbyy-finereader-securing-4000000plus-historical-documents-for-future-generations-at-the-national-library-of-latvia/"><u>Multilingual Archive Protection by ABBYY FineReader: Securing 4,000,000+ Historical Documents for Future Generations at the National Library of Latvia</u></a></li>
-<li><a href="https://solve-info.techidaily.com/natasha-mann-leading-visionary-on-the-abbyy-board/"><u>Natasha Mann - Leading Visionary on the ABBYY Board</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimized-with-automated-tracker-discover-the-power-of-cookiebot/"><u>Optimized with Automated Tracker: Discover the Power of Cookiebot</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimized-with-the-help-of-cookiebot-technology/"><u>Optimized with the Help of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimizing-real-time-data-on-top-platforms-watchos-vs-wear-os-and-achieving-a-seamless-60-fps-experience-expert-analysis-by-abbyy-gurus/"><u>Optimizing Real-Time Data on TOP Platforms: WatchOS Vs. Wear OS and Achieving a Seamless 60 FPS Experience - Expert Analysis by ABBYY Gurus</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/refining-your-digital-footprint-editing-the-look-back-feature-for-2024/"><u>Refining Your Digital Footprint  Editing the Look Back Feature for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solving-microphone-not-detected-errors-in-windows-eby11-a-complete-tutorial/"><u>Solving 'Microphone Not Detected' Errors in Windows Eby11: A Complete Tutorial</u></a></li>
-<li><a href="https://win11.techidaily.com/speed-up-workflow-windows-custom-key-combinations/"><u>Speed Up Workflow: Windows Custom Key Combinations</u></a></li>
-<li><a href="https://solve-info.techidaily.com/top-5-essentials-for-effective-business-process-analytics-now/"><u>Top 5 Essentials for Effective Business Process Analytics Now</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/turbocharge-video-on-snapchat-new-users-edition-for-2024/"><u>Turbocharge Video on Snapchat  New Users Edition for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/understanding-data-shifts-transforming-from-etl-to-elt-techniques-insights-and-importance-with-abbyy/"><u>Understanding Data Shifts: Transforming From ETL to ELT Techniques - Insights and Importance with ABBYY</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unlocking-new-ocr-features-with-abbyy-finereader-engine-update-to-version-12/"><u>Unlocking New OCR Features with ABBYY FineReader Engine Update to Version 12</u></a></li>
-<li><a href="https://solve-info.techidaily.com/peak-matrix2024-idp/"><u>アバビイ調査で優勝者を決める：エベレスト・コンソーシアムのPEAK Matrixリーダー指数2024 - IDP</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-timeline-5er/"><u>タスクマイニング機能付きのABBYY Timeline 5でネットワーク分析:人間関�er、プロセス、コンテンツ</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-5-best-gba-emulators-you-can-find-on-pc/"><u>[New] 5 Best GBA Emulators You Can Find on PC</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-quick-quality-grabs-for-your-vids/"><u>[New] In 2024, Quick, Quality Grabs for Your Vids</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-closing-powerhouses-free-top-6-video-closers/"><u>[Updated] 2024 Approved Closing Powerhouses Free Top 6 Video Closers</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-prime-methods-transforming-pin-videos-to-mp3-format/"><u>[Updated] Prime Methods Transforming Pin Videos To MP3 Format</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-streamlining-visual-storytelling-with-youtube-videos/"><u>[Updated] Streamlining Visual Storytelling with YouTube Videos</u></a></li>
+<li><a href="https://solve-info.techidaily.com/abbyy-als-losung-zur-automatisierung-von-rechtspapierverarbeitung-fortschrittliche-rechnungsmanagement-systeme-fur-rechtsanwalte/"><u>ABBYY Als Lösung Zur Automatisierung Von Rechtspapierverarbeitung – Fortschrittliche Rechnungsmanagement-Systeme Für Rechtsanwälte</u></a></li>
+<li><a href="https://solve-info.techidaily.com/achieving-unparalleled-process-improvement-with-process-mining-and-robotic-automation/"><u>Achieving Unparalleled Process Improvement with Process Mining & Robotic Automation</u></a></li>
+<li><a href="https://solve-info.techidaily.com/boost-your-site-with-automated-personalization-the-cookiebot-advantage/"><u>Boost Your Site with Automated Personalization: The Cookiebot Advantage</u></a></li>
+<li><a href="https://solve-info.techidaily.com/boost-your-site-with-our-efficient-cookiebot-analytics-solution/"><u>Boost Your Site with Our Efficient Cookiebot Analytics Solution</u></a></li>
+<li><a href="https://fox-links.techidaily.com/discover-the-7-premier-tools-to-convert-digital-work-as-nfts-for-2024/"><u>Discover the 7 Premier Tools to Convert Digital Work as NFTs for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722971308771-hassle-free-scansnap-driver-installation-on-windows-systems/"><u>Hassle-Free ScanSnap Driver Installation on Windows Systems</u></a></li>
+<li><a href="https://solve-info.techidaily.com/warum-fehlt-es-bei-deutschen-firmen-oftmals-an-einem-verstandnis-fur-rpa-was-zu-misserfolgen-fuhrt-insights-von-abbyy/"><u>Warum Fehlt Es Bei Deutschen Firmen Oftmals an Einem Verständnis Für RPA, Was Zu Misserfolgen Führt – Insights Von ABBYY</u></a></li>
+<li><a href="https://solve-info.techidaily.com/abbyycfo/"><u>ジェームズ・ライター氏がABBYYの新しいCFOとして昇格</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

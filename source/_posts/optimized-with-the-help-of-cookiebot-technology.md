@@ -1,52 +1,22 @@
 ---
 title: Optimized with the Help of Cookiebot Technology
-date: 2024-09-08T23:40:21.137Z
-updated: 2024-09-09T23:40:21.137Z
+date: 2024-09-08T17:03:42.421Z
+updated: 2024-09-14T18:13:10.026Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8a7e84630d3aca1d8a2601af719bff431bf93c02b2b4875663befca17245e9f8.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Optimized with the Help of Cookiebot Technology
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Blue Prism Automates SBA PPP Loan Processing at Banks Saving More Than 85,000 Jobs and Helping Small Businesses Stay Afloat
 
 June 10, 2020
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### _Proven Solution Supports Rounds of Federal Funding, Enabling Same-Day Processing of Thousands of Applications from Submissions, Bank Review, Underwriting, SBA Reporting, Approvals and Payment_
 
 [Blue Prism](http://www.blueprism.com/) has teamed-up with [Lateetud](https://www.lateetud.com/) and [ABBYY](https://tools.techidaily.com/abbyy/products/) to support the US government’s latest COVID-19 relief efforts for small businesses, by helping to automate loan applications during the two rounds of funding, $349 billion and $310 billion respectively, allocated by Congress as part of its [SBA Paycheck Protection Program (PPP)](https://www.sba.gov/). The solution, currently being used by several U.S. banks, uses Digital Workers to automate process loan applications in a matter of seconds, for same-day approvals.
@@ -103,8 +73,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -114,44 +82,25 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-crafting-content-that-wins-on-ig-unboxing-edition/"><u>[New] Crafting Content That Wins on IG  Unboxing Edition</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-frame-your-shot-ultimate-software-guide-image-editors/"><u>[New] Frame Your Shot  Ultimate Software Guide Image Editors</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-screen-sync-free-cross-platform-high-quality-recording-tools/"><u>[New] In 2024, Screen Sync  Free Cross-Platform, High-Quality Recording Tools</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-google-ar-stickers-unveiled-overview-and-options/"><u>[Updated] Google AR Stickers Unveiled  Overview & Options</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-virtual-vanguards-identifying-the-top-7-fps-powerhouses/"><u>[Updated] In 2024, Virtual Vanguards  Identifying the Top 7 FPS Powerhouses</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/annual-energy-usage-one-advanced-ai-driven-gpu-devours-up-to-37m-wh-surpassing-the-electricity-needs-of-over-13-million-households/"><u>Annual Energy Usage: One Advanced AI-Driven GPU Devours Up To 3.7M Wh – Surpassing the Electricity Needs of Over 1.3 Million Households</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/best-ways-on-how-to-unlockbypassswiperemove-tecno-camon-30-pro-5g-fingerprint-lock-by-drfone-android/"><u>Best Ways on How to Unlock/Bypass/Swipe/Remove Tecno Camon 30 Pro 5G Fingerprint Lock</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/confronting-ai-titans-advanced-gemini-vs-plush-gpt/"><u>Confronting AI Titans: Advanced Gemini Vs. Plush GPT</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/dissecting-the-technology-behind-frapss-screenshot-pro-for-2024/"><u>Dissecting the Technology Behind Fraps's Screenshot Pro for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-emergency-department-efficiency-with-process-mining-insights-from-widener-universitys-study-using-abbyy-timeline/"><u>Enhancing Emergency Department Efficiency with Process Mining: Insights From Widener University's Study Using ABBYY Timeline</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-rpa-success-through-next-gen-process-analytics-techniques-by-abbyy/"><u>Enhancing RPA Success Through Next-Gen Process Analytics Techniques by ABBYY</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-user-experience-with-cookiebot-technology-integration/"><u>Enhancing User Experience with Cookiebot Technology Integration</u></a></li>
-<li><a href="https://solve-info.techidaily.com/experience-enhanced-marketing-success-using-the-advanced-capabilities-of-cookiebot-solutions/"><u>Experience Enhanced Marketing Success Using the Advanced Capabilities of Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/finereader-14-von-abbyy-neue-funktionen-fur-zusatzliche-pdf-dateitypen-unterstutzen/"><u>FineReader 14 Von ABBYY: Neue Funktionen Für Zusätzliche PDF-Dateitypen Unterstützen</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-get-back-lost-photos-from-samsung-galaxy-a15-4g-by-fonelab-android-recover-photos/"><u>How to get back lost photos from Samsung Galaxy A15 4G.</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-i-transferred-messages-from-vivo-y17s-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How I Transferred Messages from Vivo Y17s to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/insights-on-future-ai-trends-with-abbyy-executive-moving-beyond-generative-hype/"><u>Insights on Future AI Trends with ABBYY Executive - Moving Beyond Generative Hype</u></a></li>
-<li><a href="https://solve-info.techidaily.com/iphone-document-scanning-and-ocr-convert-pdfsjpgs-with-finereader-app/"><u>IPhone Document Scanning & OCR: Convert PDFs/JPGs with FineReader App</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/lift-run-and-dance-to-the-beat-of-these-top-20-songs-for-2024/"><u>Lift, Run, and Dance to the Beat of These Top 20 Songs for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/marlin-equity-partnersabbyy/"><u>Marlin Equity PartnersがABBYYに対する投資を開始 - 最新ニュース解析</u></a></li>
-<li><a href="https://solve-info.techidaily.com/nagarro-achieves-a-60-cut-in-bill-payment-cycle-with-abbyy-for-enhanced-customer-accessibility/"><u>Nagarro Achieves a 60%% Cut in Bill Payment Cycle with ABBYY for Enhanced Customer Accessibility</u></a></li>
-<li><a href="https://solve-info.techidaily.com/no-coding-experience-required-build-your-own-apps-in-minutes-not-months/"><u>No Coding Experience Required? Build Your Own Apps in Minutes, Not Months!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimize-your-site-with-cookiebot-technology-for-tailored-user-experiences/"><u>Optimize Your Site with Cookiebot Technology for Tailored User Experiences</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimized-with-cookiebot-technology-for-smarter-online-engagement-tracking/"><u>Optimized with Cookiebot Technology for Smarter Online Engagement Tracking</u></a></li>
-<li><a href="https://extra-information.techidaily.com/optimizing-visuals-aspect-ratio-alteration/"><u>Optimizing Visuals  Aspect Ratio Alteration</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/premier-updates-facebooks-latest-gems-unearthed-for-2024/"><u>Premier Updates  Facebook's Latest Gems Unearthed for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/proprietary-website-personalization-using-cookiebot-technology/"><u>Proprietary Website Personalization Using Cookiebot Technology</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/recommended-best-applications-for-mirroring-your-vivo-s17-pro-screen-drfone-by-drfone-android/"><u>Recommended Best Applications for Mirroring Your Vivo S17 Pro Screen | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/reshaping-fiscal-processes-in-response-to-the-modern-eras-challenges-effective-techniques-for-thriving/"><u>Reshaping Fiscal Processes in Response to the Modern Era's Challenges: Effective Techniques for Thriving</u></a></li>
-<li><a href="https://solve-info.techidaily.com/revolutionize-your-analytics-capabilities-innovative-solutions-by-cookiebot/"><u>Revolutionize Your Analytics Capabilities – Innovative Solutions by Cookiebot</u></a></li>
-<li><a href="https://win-dash.techidaily.com/1722972676532-samsung-blu-ray-troubleshooting-solve-the-not-working-issue-once-and-for-all/"><u>Samsung Blu-Ray Troubleshooting: Solve the 'Not Working' Issue Once & For All!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/sofia-tarasova-expert-collaborator-in-randd-and-product-innovation/"><u>Sofia Tarasova - Expert Collaborator in R&D & Product Innovation</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/tailoring-viewing-experience-with-custom-speeds-in-netflix/"><u>Tailoring Viewing Experience with Custom Speeds in Netflix</u></a></li>
-<li><a href="https://article-files.techidaily.com/the-ultimate-resource-powerdirector-users/"><u>The Ultimate Resource PowerDirector Users</u></a></li>
-<li><a href="https://solve-info.techidaily.com/transformez-votre-interface-avec-le-nouveau-sdk-dabbyy-lance-un-outil-mobile-baptise-capture-pour-une-meilleure-ux/"><u>Transformez Votre Interface Avec Le Nouveau SDK D'ABBYY Lance : Un Outil Mobile Baptisé Capture Pour Une Meilleure UX</u></a></li>
-<li><a href="https://solve-info.techidaily.com/understanding-web-pages-optimizing-your-sites-content-and-structure/"><u>Understanding Web Pages: Optimizing Your Site's Content and Structure</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unleashing-potent-digital-advertising-solutions-with-cutting-edge-cookiebot-platforms/"><u>Unleashing Potent Digital Advertising Solutions with Cutting-Edge Cookiebot Platforms</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unraveling-the-mystery-how-map-books-connect-to-boosting-process-intelligence-insights-from-abbyy/"><u>Unraveling the Mystery: How Map Books Connect to Boosting Process Intelligence - Insights From ABBYY</u></a></li>
-<li><a href="https://solve-info.techidaily.com/utilizing-cookiebot-technology-for-enhanced-user-personalization-and-seo-success/"><u>Utilizing Cookiebot Technology for Enhanced User Personalization & SEO Success</u></a></li>
-<li><a href="https://ai-voice-clone.techidaily.com/what-is-talking-avatar-wondershare-virbo-glossary-for-2024/"><u>What Is Talking Avatar? | Wondershare Virbo Glossary for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-guide-to-effective-video-capturing-via-screencastify/"><u>[New] 2024 Approved Guide to Effective Video Capturing via Screencastify</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-expert-techniques-for-uploading-youtubes-on-dailymotion-for-2024/"><u>[Updated] Expert Techniques for Uploading YouTubes on Dailymotion for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-unveiling-innovative-cloud-storage-options-in-2s024/"><u>2024 Approved Unveiling Innovative Cloud Storage Options in 2S024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/abbyy-sdk-nouveau-kit-dintegration-pour-la-prise-de-commande-rapide-et-reactive-des-donnees/"><u>ABBYY SDK Nouveau Kit D'Intégration Pour La Prise De Commande Rapide Et Réactive Des Données</u></a></li>
+<li><a href="https://solve-info.techidaily.com/abbyys-intelligent-capture-connector-now-ready-on-uipath-marketplace-enhance-automation-with-advanced-ocr-technology/"><u>ABBYY's Intelligent Capture Connector Now Ready on UiPath Marketplace, Enhance Automation with Advanced OCR Technology!</u></a></li>
+<li><a href="https://solve-info.techidaily.com/ai-driven-process-improvement-and-efficient-paperwork-management-in-government-sectors/"><u>AI-Driven Process Improvement & Efficient Paperwork Management in Government Sectors</u></a></li>
+<li><a href="https://solve-info.techidaily.com/automated-insurance-underwriting-with-data-driven-techniques/"><u>Automated Insurance Underwriting with Data-Driven Techniques</u></a></li>
+<li><a href="https://win-answers.techidaily.com/complete-tutorial-retrieving-sound-tracks-from-mp4-videos-across-computers-and-web-services/"><u>Complete Tutorial: Retrieving Sound Tracks From MP4 Videos Across Computers and Web Services</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-create-an-apple-developer-account-from-apple-iphone-14-pro-by-drfone-ios/"><u>How To Create an Apple Developer Account From Apple iPhone 14 Pro</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/nine-critical-alerts-when-to-reset-windows/"><u>Nine Critical Alerts: When to Reset Windows</u></a></li>
+<li><a href="https://program-issues.techidaily.com/resolving-youtube-video-stuttering-audio-lingers-on-solutions-for-chrome-and-firefox-users/"><u>Resolving YouTube Video Stuttering: Audio Lingers On - Solutions for Chrome and Firefox Users</u></a></li>
+<li><a href="https://games-able.techidaily.com/return-requests-simplified-digital-games-on-xs-console/"><u>Return Requests Simplified: Digital Games on XS Console</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-to-do-if-your-apple-iphone-14-pro-max-has-bad-esn-or-blacklisted-imei-by-drfone-ios/"><u>What to do if your Apple iPhone 14 Pro Max has bad ESN or blacklisted IMEI?</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

@@ -1,40 +1,22 @@
 ---
 title: "Multilingual Archive Protection by ABBYY FineReader: Securing 4,000,000+ Historical Documents for Future Generations at the National Library of Latvia"
-date: 2024-09-08T23:40:16.669Z
-updated: 2024-09-09T23:40:16.669Z
+date: 2024-09-12T23:17:01.928Z
+updated: 2024-09-14T23:32:23.084Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0eb94f402f1ee7bc7c28262c8a96cc0803ff0569b6db1d88604f12db459af942.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Multilingual Archive Protection by ABBYY FineReader: Securing 4,000,000+ Historical Documents for Future Generations at the National Library of Latvia
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
 Other | Digital Archiving
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 4 000 000 Pages in 20 Languages – ABBYY FineReader Engine Preserves the National Library of Latvia
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/abbyy.png?h=40&iar=0&w=120)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
 ## 4 000 000 pages in 20 languages – ABBYY FineReader Engine Preserves the National Library of Latvia
@@ -58,12 +40,6 @@ Other | Digital Archiving
 
 ![Content Conversion Specialists (CCS)](https://static1.abbyy.com/abbyycommedia/15456/ccs-logo-119.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 | Name     | Content Conversion Specialists (CCS)                            |
 | -------- | --------------------------------------------------------------- |
 | Industry | Document conversion solutions and services                      |
@@ -93,27 +69,16 @@ The National Library of Latvia (NLL) has amassed 4.5 million paper units, includ
 ##### pages of ancient and modern books and periodicals
 
 <!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 20
 
 ##### different languages
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1 year
 
 ##### to digitize the library
@@ -154,6 +119,13 @@ After the processing, the documents were exported into various formats (PDF, JPE
 
 [![Education](https://static1.abbyy.com/abbyycommedia/14365/15-education.jpg)](https://tools.techidaily.com/abbyy/products/) [Education](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120866/26400?prodsku=mars" target="_top" id="2120866">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120866/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![PDF Version](https://static4.abbyy.com/abbyycommedia/15840/library-of-latvia-pic2.jpg)](https://static3.abbyy.com/abbyycommedia/21239/case-study-latvia-national-library-education-en.pdf "PDF version") [PDF version](https://static3.abbyy.com/abbyycommedia/21239/case-study-latvia-national-library-education-en.pdf "PDF version") 
@@ -168,12 +140,6 @@ Share  True ?  : ""
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.
@@ -186,8 +152,6 @@ We'd love to help you along your automation journey.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -197,46 +161,19 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-to-execute-flawless-wirecast-broadcasts-on-youtube/"><u>[New] 2024 Approved  How to Execute Flawless WireCast Broadcasts on YouTube</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-copyright-guide-for-instagram-music/"><u>[New] Copyright Guide for Instagram Music</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-unveiling-fake-followers-on-instagram-effortlessly/"><u>[New] In 2024, Unveiling Fake Followers on Instagram, Effortlessly</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-premium-mp4-uploader-for-fb-networks/"><u>[New] Premium MP4 Uploader for FB Networks</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-dive-into-the-future-of-branding-with-these-10-igtv-ideas/"><u>2024 Approved  Dive Into the Future of Branding with These 10 IGTV Ideas</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-approved-top-5-ultra-hd-screens-mastering-hue-and-shade/"><u>2024 Approved  Top 5 Ultra-HD Screens  Mastering Hue and Shade</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-top-ios-slideshow-programming-for-the-newest-models/"><u>2024 Approved  Top iOS Slideshow Programming for the Newest Models</u></a></li>
-<li><a href="https://solve-info.techidaily.com/ebook-by-abby/"><u>保険金要求手続き管理: 最適な効果的手法はどこで学べますか？ | eBook by ABBY</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/a-beginners-path-to-reddit-stardom-6-essential-strategies-for-2024/"><u>A Beginner’s Path to Reddit Stardom  6 Essential Strategies for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-site-engagement-with-cookiebot-technology-integration/"><u>Boost Site Engagement with Cookiebot Technology Integration</u></a></li>
-<li><a href="https://solve-info.techidaily.com/celebrating-international-womens-day-2024-honoring-abbyys-leading-female-contributors/"><u>Celebrating International Women's Day 2024: Honoring ABBYY's Leading Female Contributors</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-performance-unlocking-website-personalization/"><u>Cookiebot-Driven Performance: Unlocking Website Personalization</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-personalization-enhancing-your-websites-user-experience/"><u>Cookiebot-Driven Personalization: Enhancing Your Website's User Experience</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-solutions-for-enhanced-user-engagement/"><u>Cookiebot-Driven Solutions for Enhanced User Engagement</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-success-optimizing-your-website-with-advanced-analytics/"><u>Cookiebot-Driven Success: Optimizing Your Website with Advanced Analytics</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enabled-enhancing-your-websites-engagement-and-conversion-rates/"><u>Cookiebot-Enabled: Enhancing Your Website's Engagement & Conversion Rates</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-user-experience-tailored-content-and-targeting/"><u>Cookiebot-Enhanced User Experience: Tailored Content & Targeting</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-fueled-personalization-enhance-user-experience-with-smart-marketing-automation/"><u>Cookiebot-Fueled Personalization: Enhance User Experience with Smart Marketing Automation</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-user-experience-through-smart-analytics/"><u>Cookiebot: Enhanced User Experience Through Smart Analytics</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhancing-user-experience-with-personalization-and-data-driven-marketing/"><u>Cookiebot: Enhancing User Experience with Personalization and Data-Driven Marketing</u></a></li>
-<li><a href="https://win-dash.techidaily.com/dell-monitor-driver-download-and-update-easily/"><u>Dell Monitor Driver Download & Update Easily</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-existence-post-fb-era/"><u>Digital Existence Post-FB Era</u></a></li>
-<li><a href="https://solve-info.techidaily.com/discover-abbyys-best-digital-intelligence-narratives-from-202-2-top-six-picks-unveiled-in-our-latest-post/"><u>Discover ABBYY's Best Digital Intelligence Narratives From 202 2 - Top Six Picks Unveiled in Our Latest Post!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/discover-culinary-convenience-with-abbyys-recipe-digitization-and-photo-enchantment-featured-on-our-blog/"><u>Discover Culinary Convenience with ABBYY's Recipe Digitization and Photo Enchantment - Featured on Our Blog</u></a></li>
-<li><a href="https://solve-info.techidaily.com/distinguishing-between-process-intelligence-and-business-intelligence-for-strategic-decisions/"><u>Distinguishing Between Process Intelligence and Business Intelligence for Strategic Decisions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/driving-engagement-through-smart-data-insights-enhanced-by-cookiebot-technology/"><u>Driving Engagement Through Smart Data Insights: Enhanced by Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-user-experience-with-the-precision-of-cookiebot-technology-integration/"><u>Elevate User Experience with the Precision of Cookiebot Technology Integration</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-your-web-tracking-optimize-seo-using-the-power-of-cookiebot-technology/"><u>Elevate Your Web Tracking: Optimize SEO Using the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/empower-your-site-with-cookiebot-technology-advanced-analytics-and-targeting-made-simple/"><u>Empower Your Site with Cookiebot Technology: Advanced Analytics and Targeting Made Simple</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhance-online-engagement-with-cookiebot-technology/"><u>Enhance Online Engagement with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhance-your-website-visibility-the-power-of-cookiebot-integration/"><u>Enhance Your Website Visibility: The Power of Cookiebot Integration</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/forgot-apple-iphone-11-backup-password-heres-what-to-do-by-drfone-ios/"><u>Forgot Apple iPhone 11 Backup Password? Heres What to Do</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-tecno-camon-20-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Tecno Camon 20 | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-3-ways-to-unlock-apple-iphone-12-without-passcode-or-face-id-by-drfone-ios/"><u>In 2024, 3 Ways to Unlock Apple iPhone 12 without Passcode or Face ID</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-jailbreak-icloud-locked-apple-iphone-8-plus-by-drfone-ios/"><u>In 2024, How to jailbreak iCloud locked Apple iPhone 8 Plus</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-snippet-spectacle-top-hashes-to-trigger-the-viral-spree-on-youtube/"><u>In 2024, Snippet Spectacle  Top Hashes to Trigger the Viral Spree on YouTube</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/live-broadcast-converter-decoder-for-2024/"><u>Live Broadcast Converter Decoder for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/optimized-with-cutting-edge-automated-advertising-solutions-from-cookiebot/"><u>Optimized with Cutting-Edge Automated Advertising Solutions From Cookiebot</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/1722884418429-the-ultimate-pre-buy-guide-for-smart-televisions-discover-these-absolutely-critical-elements-first/"><u>The Ultimate Pre-Buy Guide for Smart Televisions: Discover These Absolutely Critical Elements First!</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-unlock-fcpx-potential-troubleshooting-essentials-for-editors/"><u>Updated In 2024, Unlock FCPX Potential Troubleshooting Essentials for Editors</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-master-mobile-video-editing-the-top-5-iphone-apps-for-2024/"><u>Updated Master Mobile Video Editing The Top 5 iPhone Apps for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/windows-audio-test-failure-immediate-action-plan/"><u>Windows Audio Test Failure: Immediate Action Plan</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-efficient-screen-recording-on-mac-utilizing-key-combos/"><u>[New] In 2024, Efficient Screen Recording on Mac Utilizing Key Combos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-unlock-new-dimensions-of-your-missing-iphone-x-for-2024/"><u>[Updated] Unlock New Dimensions of Your Missing iPhone X for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/5-schritte-fur-die-erfolgreiche-implementierung-von-rpa-mit-abbyy-prozessintelligenz-pdf/"><u>5-Schritte Für Die Erfolgreiche Implementierung Von RPA Mit ABBYY Prozessintelligenz - PDF</u></a></li>
+<li><a href="https://solve-info.techidaily.com/boost-your-sites-ranking-with-advanced-cookiebot-seo-technology/"><u>Boost Your Site's Ranking with Advanced Cookiebot SEO Technology</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-your-gateway-to-enhanced-web-analytics-and-personalized-marketing/"><u>Cookiebot: Your Gateway to Enhanced Web Analytics and Personalized Marketing</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cutting-delivery-times-for-global-top-tier-brewery-karlstejn-group-with-advanced-abbyy-systems/"><u>Cutting Delivery Times for Global Top-Tier Brewery Karlstejn Group with Advanced ABBYY Systems</u></a></li>
+<li><a href="https://solve-info.techidaily.com/elevate-your-business-with-abbyy-flexicapture-for-a-digitally-advanced-future/"><u>Elevate Your Business with ABBYY FlexiCapture for a Digitally Advanced Future</u></a></li>
+<li><a href="https://solve-info.techidaily.com/experience-tailored-navigation-with-cookiebot-technology/"><u>Experience Tailored Navigation with Cookiebot Technology</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-honor-v-purse-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Honor V Purse? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/in-2024-how-to-use-life360-on-windows-pc-for-oppo-reno-10-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Life360 on Windows PC For Oppo Reno 10 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-vivo-y27-4g-look-no-further-drfone-by-drfone-virtual-android/"><u>Looking For A Location Changer On Vivo Y27 4G? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/mastering-lock-screen-settings-how-to-enable-and-disable-on-oppo-a78-by-drfone-android/"><u>Mastering Lock Screen Settings How to Enable and Disable on Oppo A78</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/streamlining-your-workflow-solving-20-common-videography-errors/"><u>Streamlining Your Workflow: Solving 20 Common Videography Errors</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-buzz-surrounding-apples-newest-timepiece-predicted-pricing-for-apple-watch-x-release-calendar-and-speculated-specs/"><u>The Buzz Surrounding Apple's Newest Timepiece - Predicted Pricing for Apple Watch X, Release Calendar & Speculated Specs</u></a></li>
 </ul></div>
+

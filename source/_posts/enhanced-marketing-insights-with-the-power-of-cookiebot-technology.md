@@ -1,46 +1,22 @@
 ---
 title: Enhanced Marketing Insights with the Power of Cookiebot Technology
-date: 2024-09-08T23:40:20.582Z
-updated: 2024-09-09T23:40:20.582Z
+date: 2024-09-10T23:16:04.272Z
+updated: 2024-09-14T16:44:37.925Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6391f80929a44e71d1cec19d1806bcb918554d022df1dd84ca222ff30839f7f0.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Enhanced Marketing Insights with the Power of Cookiebot Technology
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 東芝テック、複合機の新シリーズにABBYY の組み込みOCR を採用
 
 6月22日, 2016
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118310/7443" target="_top" id="2118310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118310" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118310/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _東芝テックの複合機に初めてABBYY FineReader Engine for Embedded OS が採用され、PDF 変 換、言語翻訳、検索を容易にするための情報のデジタル化などの、高度な機能が追加搭載_
 
 情報をより有効に活用するための技術 やソリューションを提供するリーダー企業である ABBYY®は本日、東芝テック株式会社（ 東証: 6588)の複合機(MFP)の新シリーズに [FineReader Engine](https://tools.techidaily.com/abbyy/products/) が採用されることを発表 しました。本シリーズは2016 年初夏に発売される予定です。
@@ -67,8 +43,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -78,37 +52,33 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-5-easy-free-methods-to-master-youtube-video-frames/"><u>[New] 2024 Approved  5 Easy, Free Methods to Master YouTube Video Frames</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-dominating-instagrams-social-scene-5-proven-tips-and-success-stories-for-2024/"><u>[New] Dominating Instagram's Social Scene  5 Proven Tips & Success Stories for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-perfectly-prepared-videos-a-guide-to-instagram-fitness-for-2024/"><u>[New] Perfectly Prepared Videos  A Guide to Instagram Fitness for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-bridging-scripts-with-voices-turning-xmlttml-into-srt/"><u>[Updated] Bridging Scripts with Voices  Turning XML/TTML Into SRT</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-play-nba-anytime-anywhere-with-these-15-livestream-tips/"><u>[Updated] Play NBA Anytime, Anywhere with These 15 Livestream Tips</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1-name-unveiling-the-secrets-of-top-ranking-seo-strategies/"><u>1. $Name: Unveiling the Secrets of Top-Ranking SEO Strategies</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1-abbyy-expedites-border-processing-with-90-speed-enhancement/"><u>1. ABBYY Expedites Border Processing with 90%% Speed Enhancement</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-announces-adrian-jones-as-new-chief-of-revenue-operations-driving-financial-growth/"><u>ABBYY Announces Adrian Jones as New Chief of Revenue Operations, Driving Financial Growth</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-at-handelsblatts-annual-conference-focus-on-banking-technology/"><u>ABBYY at Handelsblatt's Annual Conference - Focus on Banking Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-finereader-engine-12-ideal-ocr-sdk-for-virtual-and-cloud-environments-revealed/"><u>ABBYY FineReader Engine 12: Ideal OCR SDK for Virtual & Cloud Environments Revealed</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-solutions-mastering-photo-editing-barcode-scanning-and-social-media-integration-with-advanced-currency-tools/"><u>ABBYY Solutions: Mastering Photo Editing, Barcode Scanning & Social Media Integration with Advanced Currency Tools</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-welcomes-paul-nizov-as-their-latest-appointment-chief-information-security-officer/"><u>ABBYY Welcomes Paul Nizov as Their Latest Appointment: Chief Information Security Officer</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyys-revolutionary-approach-zur-dokumentenverarbeitung-und-kategorisierung/"><u>ABBYY's Revolutionary Approach Zur Dokumentenverarbeitung Und Kategorisierung</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-efficiency-through-customized-artificial-intelligence-frameworks/"><u>Boost Efficiency Through Customized Artificial Intelligence Frameworks</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-your-site-with-cookiebot-technology-tailored-visitor-insights-and-personalization/"><u>Boost Your Site with Cookiebot Technology: Tailored Visitor Insights and Personalization</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-your-sites-traffic-with-advanced-cookiebot-technology/"><u>Boost Your Site's Traffic with Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-data-collection-and-user-tracking-solutions/"><u>Cookiebot-Driven Data Collection and User Tracking Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-data-collection-optimizing-user-experience/"><u>Cookiebot-Driven Data Collection: Optimizing User Experience</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-insights-advanced-analytics-powering-your-business-intelligence/"><u>Cookiebot-Driven Insights: Advanced Analytics Powering Your Business Intelligence</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enabled-enhancing-your-websites-visitor-tracking-and-engagement/"><u>Cookiebot-Enabled: Enhancing Your Website's Visitor Tracking and Engagement</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-user-experience-mastering-site-analytics-and-personalization/"><u>Cookiebot-Enhanced User Experience: Mastering Site Analytics & Personalization</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-user-experience-optimize-your-sites-performance/"><u>Cookiebot-Enhanced User Experience: Optimize Your Site's Performance</u></a></li>
-<li><a href="https://win-dash.techidaily.com/download-logitech-brio-usb-30-webcam-driver-and-software-compatible-with-windows-11-8-and-7/"><u>Download Logitech Brio USB 3.0 Webcam Driver & Software Compatible with Windows 11, 8 & 7</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-infinix-hot-40-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Infinix Hot 40 | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-it-realme-11-proplus-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Realme 11 Pro+ Wont Turn On | Dr.fone</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/how-to-obtain-stellar-image-reconstructor-photo-recovery-windows-version/"><u>How To Obtain Stellar Image Reconstructor (Photo Recovery) - Windows Version</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-a-comprehensive-guide-to-apple-iphone-15-plus-blacklist-removal-tips-and-tools-drfone-by-drfone-ios/"><u>In 2024, A Comprehensive Guide to Apple iPhone 15 Plus Blacklist Removal Tips and Tools | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-tips-and-tricks-for-apple-id-locked-issue-from-iphone-6s-plus-by-drfone-ios/"><u>In 2024, Tips and Tricks for Apple ID Locked Issue From iPhone 6s Plus</u></a></li>
-<li><a href="https://ai-voice-clone.techidaily.com/new-in-2024-comprehensive-guide-for-free-video-translator-downloading/"><u>New In 2024, Comprehensive Guide for Free Video Translator Downloading</u></a></li>
-<li><a href="https://solve-info.techidaily.com/the-smart-enterprise-chronicles-with-maxime-vermeir-delving-into-artificial-intelligence/"><u>The Smart Enterprise Chronicles with Maxime Vermeir – Delving Into Artificial Intelligence</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unlocking-productivity-discover-how-abbyy-intelligent-automation-boosted-efficiency-by-35-insights-from-a-comprehensive-case-study/"><u>Unlocking Productivity: Discover How ABBYY Intelligent Automation Boosted Efficiency by 35%% - Insights From a Comprehensive Case Study</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unveiling-the-future-critical-findings-from-abbyys-report-on-smart-automation-progress/"><u>Unveiling the Future: Critical Findings From ABBYY's Report on Smart Automation Progress</u></a></li>
-<li><a href="https://solve-info.techidaily.com/utilizing-cookiebot-technology-for-improved-data-collection-and-analysis/"><u>Utilizing Cookiebot Technology for Improved Data Collection and Analysis</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-maximizing-earnings-in-beauty-vlogs/"><u>[New] Maximizing Earnings in Beauty Vlogs</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-zooms-best-alternatives-on-laptops-and-tablets/"><u>[New] Zoom's Best Alternatives on Laptops & Tablets</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-link-films-for-organized-youtube-display/"><u>2024 Approved Link Films for Organized YouTube Display</u></a></li>
+<li><a href="https://solve-info.techidaily.com/5-schritte-fur-die-erfolgreiche-implementierung-von-rpa-mit-abbyy-prozessintelligenz-pdf/"><u>5-Schritte Für Die Erfolgreiche Implementierung Von RPA Mit ABBYY Prozessintelligenz - PDF</u></a></li>
+<li><a href="https://howto.techidaily.com/app-wont-open-on-your-xiaomi-13-ultra-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Xiaomi 13 Ultra? Here Are All Fixes | Dr.fone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/boost-your-sites-ranking-with-advanced-cookiebot-seo-technology/"><u>Boost Your Site's Ranking with Advanced Cookiebot SEO Technology</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/captivating-content-at-your-fingertips-download-youtube-for-ios-for-2024/"><u>Captivating Content at Your Fingertips Download YouTube for iOS for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/clearer-photos-with-blur-effects-apps-for-2024/"><u>Clearer Photos with Blur Effects Apps for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-reset-your-poco-m6-pro-4g-lock-screen-password-by-drfone-android/"><u>How to Reset your Poco M6 Pro 4G Lock Screen Password</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-honor-magic5-ultimate-drfone-by-drfone-virtual/"><u>In 2024, 9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-samsung-galaxy-a05-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Samsung Galaxy A05 | Dr.fone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/top-5-essentials-for-effective-business-process-analytics-now/"><u>Top 5 Essentials for Effective Business Process Analytics Now</u></a></li>
+<li><a href="https://solve-info.techidaily.com/understanding-data-shifts-transforming-from-etl-to-elt-techniques-insights-and-importance-with-abbyy/"><u>Understanding Data Shifts: Transforming From ETL to ELT Techniques - Insights and Importance with ABBYY</u></a></li>
+<li><a href="https://solve-info.techidaily.com/unlocking-new-ocr-features-with-abbyy-finereader-engine-update-to-version-12/"><u>Unlocking New OCR Features with ABBYY FineReader Engine Update to Version 12</u></a></li>
+<li><a href="https://solve-info.techidaily.com/peak-matrix2024-idp/"><u>アバビイ調査で優勝者を決める：エベレスト・コンソーシアムのPEAK Matrixリーダー指数2024 - IDP</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

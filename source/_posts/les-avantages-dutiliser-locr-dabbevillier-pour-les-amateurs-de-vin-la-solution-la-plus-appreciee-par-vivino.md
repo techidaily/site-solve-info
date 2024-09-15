@@ -1,46 +1,22 @@
 ---
 title: "Les Avantages D'utiliser L'OCR D'Abbevillier Pour Les Amateurs De Vin: La Solution La Plus Appréciée Par Vivino"
-date: 2024-09-08T23:40:20.758Z
-updated: 2024-09-09T23:40:20.758Z
+date: 2024-09-11T19:39:59.798Z
+updated: 2024-09-14T22:36:21.832Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f0f1add4f06bedd9b4441c0d9e38e221d87204ef26ea2cde0e10ae3ca9b9c9f6.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Les Avantages D'utiliser L'OCR D'Abbevillier Pour Les Amateurs De Vin: La Solution La Plus Appréciée Par Vivino
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## L’OCR d’ABBYY au service de Vivino, l’appli la plus prisée des amateurs de vin dans le monde
 
 28 janvier 2016
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115918/19272" target="_top" id="2115918">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115918" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115918/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Évaluations collaboratives et liste des détaillants sont désormais directement à la portée des consommateurs**  
   
 ABBYY, acteur majeur de la reconnaissance de documents, de la capture de données et des technologies linguistiques, annonce aujourd’hui que [Vivino](http://www.vivino.com), l’application mobile des amateurs de vin la plus téléchargée dans le monde\*, a intégré avec succès la technologie de reconnaissance optique de caractères (OCR) d’ABBYY, et afin de permettre l’extraction d’informations à partir de la carte des vins des restaurants. Avant de commander du vin, le client peut utiliser l’appli Vivino pour prendre une photo de l’offre des vins et accéder ainsi instantanément à de précieuses informations qui l’aideront à choisir la bonne bouteille. La technologie OCR d’ABBY intégrée permet d’extraire le texte de la photo, pour avoir accès à la base de données des évaluations et notations de dégustation Vivino, base alimentée par 12 millions d’utilisateurs, ce qui en fait la plus grande source de données œnologiques au monde.\*
@@ -87,8 +63,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -98,51 +72,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-elevate-mobile-streaming-with-obs-studio-android-edition/"><u>[New] In 2024, Elevate Mobile Streaming with OBS Studio Android Edition</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-mastering-valheim-agriculture-seed-selection-insights-for-2024/"><u>[New] Mastering Valheim Agriculture  Seed Selection Insights for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-huawei-mate-and-p-series-phones-activating-built-in-recorders-for-screen-capture-for-2024/"><u>[Updated] Huawei Mate and P Series Phones  Activating Built-In Recorders for Screen Capture for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-seamless-integration-of-skype-and-zoom-for-businesses-for-2024/"><u>[Updated] Seamless Integration of Skype and Zoom for Businesses for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/5-schritte-fur-die-erfolgreiche-implementierung-von-rpa-mit-abbyy-prozessintelligenz-pdf/"><u>5-Schritte Für Die Erfolgreiche Implementierung Von RPA Mit ABBYY Prozessintelligenz - PDF</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-fur-den-schnellen-und-intelligenten-umgang-mit-belegdokumentation-expertise-in-der-dokumentenverarbeitungstechnologie/"><u>ABBYY Für Den Schnellen Und Intelligenten Umgang Mit Belegdokumentation - Expertise in Der Dokumentenverarbeitungstechnologie</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyys-innovative-approach-to-building-a-secure-future-via-advanced-automated-solutions/"><u>ABBYY's Innovative Approach to Building a Secure Future via Advanced Automated Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/advanced-ocr-and-data-capture-using-abyby-flexicapture-for-laserfiche-powerful-tools-from-abbyy-solutions/"><u>Advanced OCR and Data Capture Using ABYBY FlexiCapture for Laserfiche - Powerful Tools From ABBYY Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-traffic-with-cookiebot-the-ultimate-seo-and-marketing-solution-for-modern-websites/"><u>Boost Traffic With Cookiebot: The Ultimate SEO and Marketing Solution for Modern Websites</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-user-experience-and-data-insights-with-our-cookiebot-integration-technology/"><u>Boost User Experience & Data Insights with Our Cookiebot Integration Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-your-sites-performance-using-the-advanced-features-of-cookiebot/"><u>Boost Your Site's Performance Using the Advanced Features of Cookiebot</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-your-sites-ranking-with-advanced-cookiebot-seo-technology/"><u>Boost Your Site's Ranking with Advanced Cookiebot SEO Technology</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/breaking-through-virtual-barriers-crafting-engaging-metaverse-content/"><u>Breaking Through Virtual Barriers  Crafting Engaging Metaverse Content</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enabled-enhance-your-site-with-smart-data-tracking-solutions/"><u>Cookiebot-Enabled: Enhance Your Site with Smart Data Tracking Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-your-gateway-to-enhanced-web-analytics-and-personalized-marketing/"><u>Cookiebot: Your Gateway to Enhanced Web Analytics and Personalized Marketing</u></a></li>
-<li><a href="https://program-issues.techidaily.com/cure-your-sony-vegas-breakdowns-with-these-troubleshooting-steps/"><u>Cure Your Sony Vegas Breakdowns with These Troubleshooting Steps</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cutting-delivery-times-for-global-top-tier-brewery-karlstejn-group-with-advanced-abbyy-systems/"><u>Cutting Delivery Times for Global Top-Tier Brewery Karlstejn Group with Advanced ABBYY Systems</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-your-business-with-abbyy-flexicapture-for-a-digitally-advanced-future/"><u>Elevate Your Business with ABBYY FlexiCapture for a Digitally Advanced Future</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhance-your-application-with-ai-ocr-tech-join-the-abbyy-expert-talk/"><u>Enhance Your Application with AI OCR Tech: Join the ABBYY Expert Talk</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-marketing-with-the-power-of-cookiebot-technology/"><u>Enhanced Marketing with the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-site-engagement-through-cookiebots-smart-visitor-tracking-solutions/"><u>Enhanced Site Engagement Through Cookiebot's Smart Visitor Tracking Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-user-experience-with-advanced-traffic-analysis-technology/"><u>Enhanced User Experience with Advanced Traffic Analysis Technology</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/epson-printer-error-now-working/"><u>Epson Printer Error, Now Working</u></a></li>
-<li><a href="https://solve-info.techidaily.com/experience-seamless-conversion-with-our-cookiebot-technology-integration/"><u>Experience Seamless Conversion with Our Cookiebot Technology Integration</u></a></li>
-<li><a href="https://solve-info.techidaily.com/experience-tailored-navigation-with-cookiebot-technology/"><u>Experience Tailored Navigation with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/exploring-the-real-effects-of-covid-on-workers-one-in-four-considering-resignation-due-to-inefficient-corporate-procedures/"><u>Exploring the Real Effects of Covid on Workers: One in Four Considering Resignation Due to Inefficient Corporate Procedures</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/forgot-locked-iphone-se-2022-password-learn-the-best-methods-to-unlock-drfone-by-drfone-ios/"><u>Forgot Locked iPhone SE (2022) Password? Learn the Best Methods To Unlock | Dr.fone</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/from-youtube-to-tiktok-and-now-vimeo-gifs-for-2024/"><u>From YouTube to TikTok, and Now Vimeo-Gifs for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/gartners-magic-quadrant-recognizes-abbyy-as-a-standout-named-leader-in-ocr-technology/"><u>Gartner's Magic Quadrant Recognizes ABBYY as a Standout Named Leader in OCR Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/harnessing-idp-solutions-a-game-changer-in-modern-insurance-management/"><u>Harnessing IDP Solutions: A Game Changer in Modern Insurance Management</u></a></li>
-<li><a href="https://win11.techidaily.com/mitigating-conflicting-camera-requests-windows-error-0xa00f4243/"><u>Mitigating Conflicting Camera Requests (Windows, Error 0xA00F4243)</u></a></li>
-<li><a href="https://solve-info.techidaily.com/multilingual-archive-protection-by-abbyy-finereader-securing-4000000plus-historical-documents-for-future-generations-at-the-national-library-of-latvia/"><u>Multilingual Archive Protection by ABBYY FineReader: Securing 4,000,000+ Historical Documents for Future Generations at the National Library of Latvia</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimized-with-automated-tracker-discover-the-power-of-cookiebot/"><u>Optimized with Automated Tracker: Discover the Power of Cookiebot</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimizing-real-time-data-on-top-platforms-watchos-vs-wear-os-and-achieving-a-seamless-60-fps-experience-expert-analysis-by-abbyy-gurus/"><u>Optimizing Real-Time Data on TOP Platforms: WatchOS Vs. Wear OS and Achieving a Seamless 60 FPS Experience - Expert Analysis by ABBYY Gurus</u></a></li>
-<li><a href="https://solve-info.techidaily.com/revolutionize-quick-cashflow-with-abbyys-mobile-ocr-sdk-for-instantaneous-loan-approvals/"><u>Revolutionize Quick Cashflow with ABBYY's Mobile OCR SDK for Instantaneous Loan Approvals!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/revolutionize-your-operations-the-power-of-digital-replicas-and-simulated-processes-for-business-advancement/"><u>Revolutionize Your Operations: The Power of Digital Replicas and Simulated Processes for Business Advancement</u></a></li>
-<li><a href="https://solve-info.techidaily.com/scott-opitz-transitions-to-key-leadership-roles-as-cto-and-cpo-at-dabbyy/"><u>Scott Opitz Transitions to Key Leadership Roles as CTO and CPO at D'Abbyy</u></a></li>
-<li><a href="https://solve-info.techidaily.com/top-5-essentials-for-effective-business-process-analytics-now/"><u>Top 5 Essentials for Effective Business Process Analytics Now</u></a></li>
-<li><a href="https://solve-info.techidaily.com/transform-your-iphone-photos-into-searchable-text-files-using-finereaders-powerful-ocr-technology/"><u>Transform Your iPhone Photos Into Searchable Text Files Using FineReader's Powerful OCR Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/understanding-data-shifts-transforming-from-etl-to-elt-techniques-insights-and-importance-with-abbyy/"><u>Understanding Data Shifts: Transforming From ETL to ELT Techniques - Insights and Importance with ABBYY</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unleash-potential-with-smart-cookie-technology-discover-your-sites-secret-weapon/"><u>Unleash Potential with Smart Cookie Technology: Discover Your Site's Secret Weapon!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unleash-the-potential-of-clever-automation-this-september-join-abbyys-enlightening-journey/"><u>Unleash the Potential of Clever Automation This September – Join ABBYY's Enlightening Journey</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unlocking-new-ocr-features-with-abbyy-finereader-engine-update-to-version-12/"><u>Unlocking New OCR Features with ABBYY FineReader Engine Update to Version 12</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unlocking-the-hidden-potential-in-your-supply-chain-dont-miss-out-on-this-key-advantage/"><u>Unlocking the Hidden Potential in Your Supply Chain: Don't Miss Out on This Key Advantage</u></a></li>
-<li><a href="https://solve-info.techidaily.com/utilizing-cookiebot-technology-for-effective-user-tracking-and-personalization/"><u>Utilizing Cookiebot Technology for Effective User Tracking and Personalization</u></a></li>
-<li><a href="https://solve-info.techidaily.com/visionary-executive-neil-murphy-guides-global-strategy-as-emea-channel-chief-and-svp-at-top-level-sales-position/"><u>Visionary Executive Neil Murphy Guides Global Strategy as EMEA Channel Chief and SVP at Top-Level Sales Position</u></a></li>
-<li><a href="https://solve-info.techidaily.com/peak-matrix2024-idp/"><u>アバビイ調査で優勝者を決める：エベレスト・コンソーシアムのPEAK Matrixリーダー指数2024 - IDP</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-crafting-engaging-youtube-video-layouts/"><u>[New] In 2024, Crafting Engaging YouTube Video Layouts</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-integrating-creative-filters-in-zoom-calls/"><u>[New] Integrating Creative Filters in Zoom Calls</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-channel-growth-blueprint-selecting-between-studio-and-latest-beta/"><u>[Updated] In 2024, Channel Growth Blueprint Selecting Between Studio and Latest Beta</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-mastering-whatsapp-call-recording-techniques/"><u>[Updated] In 2024, Mastering WhatsApp Call Recording Techniques</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/ideal-video-game-setups-for-children-consoles-controllers-and-more/"><u>Ideal Video Game Setups for Children: Consoles, Controllers, and More</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-mastering-minecraft-survival-housing/"><u>In 2024, Mastering Minecraft Survival Housing</u></a></li>
+<li><a href="https://solve-info.techidaily.com/junges-management-gefahrdet-durch-ineffiziente-geschaftspraktiken-und-veraltete-technologie-abbyy-umfrage-zeigt-schnelle-demotivierung-gegenuber-alteren-kol9/"><u>Junges Management Gefährdet Durch Ineffiziente Geschäftspraktiken Und Veraltete Technologie: ABBYY Umfrage Zeigt Schnelle Demotivierung Gegenüber Älteren Kollegen</u></a></li>
+<li><a href="https://solve-info.techidaily.com/launching-intelligent-transit-solutions-insights-from-the-abbyy-blog/"><u>Launching Intelligent Transit Solutions: Insights From the ABBYY Blog</u></a></li>
+<li><a href="https://solve-info.techidaily.com/leveraging-cookiebot-technology-for-superior-visitor-insights-and-site-optimization/"><u>Leveraging Cookiebot Technology for Superior Visitor Insights and Site Optimization</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-in-2024-android-app-store-favorites-top-downloads-and-reviews/"><u>New In 2024, Android App Store Favorites Top Downloads and Reviews</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-science-behind-oleds-working-principle-explained/"><u>The Science Behind OLEDs: Working Principle Explained</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/the-ultimate-guide-to-downloading-and-installing-steelseries-arctis-5-drivers/"><u>The Ultimate Guide to Downloading and Installing SteelSeries Arctis 5 Drivers</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120863/26400?prodsku=Mercury" target="_top" id="2120863">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120863/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

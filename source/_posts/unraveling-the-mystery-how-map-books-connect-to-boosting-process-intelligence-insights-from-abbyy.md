@@ -1,34 +1,16 @@
 ---
 title: "Unraveling the Mystery: How Map Books Connect to Boosting Process Intelligence - Insights From ABBYY"
-date: 2024-09-08T23:40:20.137Z
-updated: 2024-09-09T23:40:20.137Z
+date: 2024-09-07T20:07:49.855Z
+updated: 2024-09-14T18:57:23.148Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/50cbd8d07e0873a4343caac1afaca4ba3bdd492ab0995e73547b18cbc746d1e9.png
 ---
 
-<!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Unraveling the Mystery: How Map Books Connect to Boosting Process Intelligence - Insights From ABBYY
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## “What the Hell Is a Map Book!?”- and what does it have to do with the rise of Process Intelligence?
 
 ###### Joe Rayfield
@@ -37,12 +19,6 @@ August 08, 2019
 
 ![What is a map book and how is it related to process intelligence? | ABBYY Blog Post](https://static5.abbyy.com/abbyycommedia/25366/10809_smm_blog_what-the-hell-is-a-map-bookblog.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **_Digital technologies are evolving at a furious pace and our business strategies are lagging behind. We need a new approach to processes for the digital age._**
 
 Recently in a discussion with my wife, I attempted to explain why ABBYY acquired TimelinePI – and I somehow ended up telling a long and elaborate story about how I was the best map book reader in my family. I regaled her with my stories of travelling all around the south of England trying to find multiple football (or soccer as my US friends and colleagues call it) grounds with my Dad in our Volvo Estate, continuously getting thwarted by traffic, roadworks, and getting lost through out-of-date map books.
@@ -71,26 +47,8 @@ With the risk of sounding like a scratched record, throw away the “map books�
 
 ![Joseph Rayfield ABBYY](https://static1.abbyy.com/abbyycommedia/25707/josephrayfield-99x99.png)
 
-<!-- affiliate ads begin -->
-<span id="1983446">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Joe Rayfield
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -145,8 +103,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -156,41 +112,27 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-hints.techidaily.com/new-build-a-metaverse-identity-a-streamlined-design-process/"><u>[New] Build a Metaverse Identity  A Streamlined Design Process</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-microsofts-glimpse-into-augmented-reality-the-hololens-journey/"><u>[New] Microsoft’s Glimpse Into Augmented Reality – The HoloLens Journey</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-unveiling-novel-window-11-secrets-for-enhanced-usage/"><u>[Updated] 2024 Approved  Unveiling Novel WINDOW 11 Secrets for Enhanced Usage</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-mastering-the-art-of-earnings-facebooks-blue-icon-badge/"><u>2024 Approved  Mastering the Art of Earnings  Facebook’s Blue Icon Badge</u></a></li>
-<li><a href="https://extra-information.techidaily.com/comparing-augmented-reality-stickers-beyond-google/"><u>Comparing Augmented Reality Stickers  Beyond Google</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-the-key-to-unlocking-next-level-site-personalization-and-insights/"><u>Cookiebot: The Key to Unlocking Next-Level Site Personalization and Insights</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cultivating-sharp-skills-insights-into-intellectual-development-from-the-abbyy-blog/"><u>Cultivating Sharp Skills: Insights Into Intellectual Development From the ABBYY Blog</u></a></li>
-<li><a href="https://solve-info.techidaily.com/deciphering-hidden-truths-how-process-mining-reveals-significant-patterns/"><u>Deciphering Hidden Truths: How Process Mining Reveals Significant Patterns</u></a></li>
-<li><a href="https://solve-info.techidaily.com/driven-by-advanced-cookie-tracking-meet-the-powerhouse-behind-digital-marketing/"><u>Driven by Advanced Cookie Tracking: Meet the Powerhouse Behind Digital Marketing</u></a></li>
-<li><a href="https://solve-info.techidaily.com/east-midlands-railway-enhances-daily-email-throughput-by-more-than-5-hours-using-abbyy-and-engeneum/"><u>East Midlands Railway Enhances Daily Email Throughput by More than 5 Hours Using ABBYY & Engeneum</u></a></li>
-<li><a href="https://solve-info.techidaily.com/effizientes-kinderschriftenerlernen-mit-abbey-road-finedreader/"><u>Effizientes Kinderschriftenerlernen Mit Abbey Road FinedReader</u></a></li>
-<li><a href="https://solve-info.techidaily.com/empowering-sap-bots-with-next-gen-content-cognition-technology-from-abbyy/"><u>Empowering SAP Bots with Next-Gen Content Cognition Technology From ABBYY</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhance-user-experience-and-analytics-discover-the-power-of-cookiebot-technology/"><u>Enhance User Experience and Analytics: Discover the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-personalization-with-the-advanced-capabilities-of-cookiebot-technology/"><u>Enhanced Personalization with the Advanced Capabilities of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-traffic-with-customized-cookiebot-technology/"><u>Enhanced Traffic with Customized Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-patient-connections-optimizing-your-referral-to-appointment-process/"><u>Enhancing Patient Connections: Optimizing Your Referral-to-Appointment Process</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-user-experience-through-cookiebot-driven-seo-strategies/"><u>Enhancing User Experience Through Cookiebot-Driven SEO Strategies</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/exclusive-article-collection-on-advanced-data-erasure-methods-by-stellar-experts/"><u>Exclusive Article Collection on Advanced Data Erasure Methods by Stellar Experts</u></a></li>
-<li><a href="https://solve-info.techidaily.com/expediting-cross-border-trade-the-impact-of-a-five-minute-clearance-gap-at-the-uk-eu-frontier/"><u>Expediting Cross-Border Trade: The Impact of a Five-Minute Clearance Gap at the UK-EU Frontier</u></a></li>
-<li><a href="https://solve-info.techidaily.com/how-abbyys-instantaneous-text-digitization-propels-rapid-advancements-in-the-digital-realm/"><u>How ABBYY’s Instantaneous Text Digitization Propels Rapid Advancements in the Digital Realm</u></a></li>
-<li><a href="https://solve-info.techidaily.com/how-covid-has-changed-employees-perspectives-a-staggering-25-contemplating-job-change-due-to-flawed-business-operations/"><u>How COVID Has Changed Employees' Perspectives: A Staggering 25%% Contemplating Job Change Due to Flawed Business Operations</u></a></li>
-<li><a href="https://fox-that.techidaily.com/how-to-fix-your-iphoneipad-when-it-cant-connect-to-wi-fi-a-guide-with-8-key-fixes/"><u>How to Fix Your iPhone/iPad When It Can't Connect to Wi-Fi – A Guide with 8 Key Fixes</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-buzzing-on-both-platforms-top-10-tiktok-tweets-explored/"><u>In 2024, Buzzing on Both Platforms  Top 10 TikTok Tweets Explored</u></a></li>
-<li><a href="https://solve-info.techidaily.com/iphone-app-for-seamless-document-digitalization-advanced-ocr-scan-and-pdfjpg-integration-made-easy/"><u>IPhone App for Seamless Document Digitalization: Advanced OCR Scan and PDF/JPG Integration Made Easy!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/iphone-scanning-app-convert-documents-and-images-into-pdf-using-ocr-technology/"><u>IPhone Scanning App: Convert Documents & Images Into PDF Using OCR Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/meinungsforschungsanalyse-mit-abbyy-wie-connexions-zur-optimierung-seiner-methoden-beitragt/"><u>Meinungsforschungsanalyse Mit ABBYY: Wie Connexions Zur Optimierung Seiner Methoden Beiträgt</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimisation-des-processus-rpa-grace-a-une-analyse-avancee-strategies-defficacite-avec-abbyy/"><u>Optimisation Des Processus RPA Grâce À Une Analyse Avancée : Stratégies D'efficacité Avec ABBYY</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimisez-votre-strategie-logistique-guide-de-la-liste-de-controle-pour-le-transports/"><u>Optimisez Votre Stratégie Logistique: Guide De La Liste De Contrôle Pour Le Transports</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimized-through-next-level-advertising-tools-provided-by-cookiebot/"><u>Optimized Through Next-Level Advertising Tools Provided by Cookiebot</u></a></li>
-<li><a href="https://solve-info.techidaily.com/photography-tips-and-task-management-secrets-revealed-on-abbyy-blog/"><u>Photography Tips & Task Management Secrets Revealed on ABBYY Blog</u></a></li>
-<li><a href="https://solve-info.techidaily.com/pourquoi-utiliser-le-mining-processeux-exploration-des-avantages-et-cas-dusage/"><u>Pourquoi Utiliser Le Mining Processeux? Exploration Des Avantages Et Cas D'Usage</u></a></li>
-<li><a href="https://solve-info.techidaily.com/revolutionize-quick-cashflow-with-abbyys-mobile-ocr-sdk-for-instantaneous-loan-approvals/"><u>Revolutionize Quick Cashflow with ABBYY's Mobile OCR SDK for Instantaneous Loan Approvals!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/revolutionize-your-operations-the-power-of-digital-replicas-and-simulated-processes-for-business-advancement/"><u>Revolutionize Your Operations: The Power of Digital Replicas and Simulated Processes for Business Advancement</u></a></li>
-<li><a href="https://solve-info.techidaily.com/scott-opitz-transitions-to-key-leadership-roles-as-cto-and-cpo-at-dabbyy/"><u>Scott Opitz Transitions to Key Leadership Roles as CTO and CPO at D'Abbyy</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/stepwise-instructions-snapchat-for-mac-users-for-2024/"><u>Stepwise Instructions  Snapchat for Mac Users for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/the-new-world-update-eliminates-persistent-freezing-errors/"><u>The New World Update Eliminates Persistent Freezing Errors</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/uniting-networks-sharing-fb-vids-on-whatsapp-chat-for-2024/"><u>Uniting Networks  Sharing FB Vids on WhatsApp Chat for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-comprehensive-guide-for-srt-format-conversions/"><u>[Updated] Comprehensive Guide for SRT Format Conversions</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-dissecting-imovies-cropping-algorithm-for-2024/"><u>[Updated] Dissecting iMovie's Cropping Algorithm for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-facebook-follower-verification-techniques-for-professionals/"><u>[Updated] Facebook Follower Verification Techniques for Professionals</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-in-pursuit-of-quality-a-deep-dive-into-sonys-x1000v/"><u>[Updated] In Pursuit of Quality A Deep Dive Into Sony's X1000V</u></a></li>
+<li><a href="https://solve-info.techidaily.com/iuoajoepvus7oplusiyvplusaykplusmhkeiejeobqplusaxguocgeocieocjoocipluswkiewmljrlibxpgkdnmotjgarllypoyzop6pmsbrjga7miyvms5xjgajjgavvjjgi0i/"><u>「現代貿易金融に求められる変化:創造的な問題解決の手法とは？」</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-the-secrets-of-selecting-a-powerful-streaming-device/"><u>2024 Approved The Secrets of Selecting a Powerful Streaming Device</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-top-5-affordable-drones-under-500/"><u>2024 Approved Top 5 Affordable Drones Under $500</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/best-digital-realms-downloadable-alarm-melodies-for-2024/"><u>Best Digital Realms Downloadable Alarm Melodies for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-get-back-lost-photos-from-xiaomi-13-ultra-by-fonelab-android-recover-photos/"><u>How to get back lost photos from Xiaomi 13 Ultra.</u></a></li>
+<li><a href="https://solve-info.techidaily.com/innovative-strategies-for-boosting-your-websites-page-visibility/"><u>Innovative Strategies for Boosting Your Website's Page Visibility</u></a></li>
+<li><a href="https://solve-info.techidaily.com/leverage-cookiebot-technology-for-improved-website-insights-and-optimization/"><u>Leverage Cookiebot Technology for Improved Website Insights and Optimization</u></a></li>
+<li><a href="https://solve-info.techidaily.com/mastering-the-procurement-and-payments-journey-a-definitive-guide/"><u>Mastering the Procurement and Payments Journey: A Definitive Guide</u></a></li>
+<li><a href="https://solve-info.techidaily.com/optimized-with-the-help-of-cookiebot-enhanced-website-analytics/"><u>Optimized with the Help of Cookiebot: Enhanced Website Analytics</u></a></li>
+<li><a href="https://solve-info.techidaily.com/revolutionizing-document-automation-through-abbyy-vance-harnessing-power-of-computer-vision-and-large-language-models/"><u>Revolutionizing Document Automation Through ABBYY Vance - Harnessing Power of Computer Vision and Large Language Models</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/transform-your-igtv-backgrounds-with-style/"><u>Transform Your IGTV Backgrounds with Style</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115947/19272" target="_top" id="2115947">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115947" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

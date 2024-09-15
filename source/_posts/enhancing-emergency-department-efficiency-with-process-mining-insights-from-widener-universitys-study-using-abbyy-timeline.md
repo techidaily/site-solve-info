@@ -1,34 +1,16 @@
 ---
 title: "Enhancing Emergency Department Efficiency with Process Mining: Insights From Widener University's Study Using ABBYY Timeline"
-date: 2024-09-08T23:40:19.823Z
-updated: 2024-09-09T23:40:19.823Z
+date: 2024-09-13T17:00:19.529Z
+updated: 2024-09-14T17:44:55.577Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6050aa5ce58a3d916a0355d32e6800af8938ccf6ad706af2327feef0ddd5dc8b.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Enhancing Emergency Department Efficiency with Process Mining: Insights From Widener University's Study Using ABBYY Timeline
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Process Mining in Healthcare: Widener University Students Use ABBYY Timeline to Improve ED Patient Flow
 
 ###### Norma Najera
@@ -37,12 +19,6 @@ September 23, 2022
 
 ![](https://static3.abbyy.com/abbyycommedia/35931/848x444-embedded-timeline-schema-analysis.jpeg) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 As an undergraduate student attending Widener University for my Bachelor's in Business Analytics and Marketing, I couldn’t pass up the opportunity to go big for student project day. My mind was scattered as I struggled to decide what topic I wanted to choose related to my major. My colleague, Emily Pitcherello, recalled that our professor Ryan Raiker, senior director of [process intelligence](https://tools.techidaily.com/abbyy/products/) at ABBYY, had provided us with insight into his work by explaining the usefulness of [ABBYY Timeline](https://tools.techidaily.com/abbyy/products/) a couple of months prior.
 
 [Related article: What is process mining?](https://tools.techidaily.com/abbyy/products/)
@@ -63,12 +39,6 @@ ABBYY Timeline was able to demonstrate how, on average, the patients at this spe
 
 ![](https://static1.abbyy.com/abbyycommedia/35933/timeline-4.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 As a team of aspiring analysts, we were able to find potential improvements for the hospital such as QR codes on personal identification meant for healthcare workers, greater use of Apple’s iPhone features related to Medical ID, and the hiring of an experienced insurance verifier/coder.
 
 ![hopsital improvements with ABBYY Timeline](https://static1.abbyy.com/abbyycommedia/35938/timeline-3.png)
@@ -87,24 +57,12 @@ As our world moves towards a heightened technology era, it's crucial for the nex
 
 ![](https://static1.abbyy.com/abbyycommedia/35930/norma-najera_110x110.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Norma Najera
 
 Business Analytics BA, Marketing Minor, Widener University
 
 Norma Najera is currently a 2nd-year student at Widener University, expecting to graduate with a major in Analytics and a minor in Marketing, with a concentration in Data Analysis. I'm interested in taking any steps to combine my knowledge of both data analysis and marketing in my prospective professional career.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123472/16836" target="_top" id="2123472">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123472" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123472/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -159,8 +117,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -170,49 +126,31 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-ensuring-your-video-shines-in-the-staff-pick-spotlight-for-2024/"><u>[New] Ensuring Your Video Shines in the Staff Pick Spotlight for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-innovative-designs-unleashed-comprehensive-guide-to-animation-suites/"><u>[New] Innovative Designs Unleashed  Comprehensive Guide to Animation Suites</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-elevating-videogame-recording-the-steam-methodology-for-2024/"><u>[Updated] Elevating Videogame Recording  The Steam Methodology for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-from-viewers-to-valuables-mastering-video-monetization-on-vimeo-for-2024/"><u>[Updated] From Viewers to Valuables  Mastering Video Monetization on Vimeo for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-fur-den-schnellen-und-intelligenten-umgang-mit-belegdokumentation-expertise-in-der-dokumentenverarbeitungstechnologie/"><u>ABBYY Für Den Schnellen Und Intelligenten Umgang Mit Belegdokumentation - Expertise in Der Dokumentenverarbeitungstechnologie</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyys-innovative-approach-to-building-a-secure-future-via-advanced-automated-solutions/"><u>ABBYY's Innovative Approach to Building a Secure Future via Advanced Automated Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/advanced-ocr-and-data-capture-using-abyby-flexicapture-for-laserfiche-powerful-tools-from-abbyy-solutions/"><u>Advanced OCR and Data Capture Using ABYBY FlexiCapture for Laserfiche - Powerful Tools From ABBYY Solutions</u></a></li>
-<li><a href="https://network-issues.techidaily.com/ati-gpu-lacks-dx-acceleration-fix/"><u>ATI GPU Lacks DX Acceleration Fix</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-traffic-with-cookiebot-the-ultimate-seo-and-marketing-solution-for-modern-websites/"><u>Boost Traffic With Cookiebot: The Ultimate SEO and Marketing Solution for Modern Websites</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-user-experience-and-data-insights-with-our-cookiebot-integration-technology/"><u>Boost User Experience & Data Insights with Our Cookiebot Integration Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-your-sites-performance-using-the-advanced-features-of-cookiebot/"><u>Boost Your Site's Performance Using the Advanced Features of Cookiebot</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enabled-enhance-your-site-with-smart-data-tracking-solutions/"><u>Cookiebot-Enabled: Enhance Your Site with Smart Data Tracking Solutions</u></a></li>
-<li><a href="https://extra-information.techidaily.com/deciphering-variances-between-standard-and-immersive-video-tech/"><u>Deciphering Variances Between Standard & Immersive Video Tech</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhance-your-application-with-ai-ocr-tech-join-the-abbyy-expert-talk/"><u>Enhance Your Application with AI OCR Tech: Join the ABBYY Expert Talk</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-marketing-with-the-power-of-cookiebot-technology/"><u>Enhanced Marketing with the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-site-engagement-through-cookiebots-smart-visitor-tracking-solutions/"><u>Enhanced Site Engagement Through Cookiebot's Smart Visitor Tracking Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-user-experience-with-advanced-traffic-analysis-technology/"><u>Enhanced User Experience with Advanced Traffic Analysis Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/experience-seamless-conversion-with-our-cookiebot-technology-integration/"><u>Experience Seamless Conversion with Our Cookiebot Technology Integration</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/exploring-the-monetization-framework-of-tseries-via-youtube/"><u>Exploring the Monetization Framework of TSeries via YouTube</u></a></li>
-<li><a href="https://solve-info.techidaily.com/exploring-the-real-effects-of-covid-on-workers-one-in-four-considering-resignation-due-to-inefficient-corporate-procedures/"><u>Exploring the Real Effects of Covid on Workers: One in Four Considering Resignation Due to Inefficient Corporate Procedures</u></a></li>
-<li><a href="https://solve-info.techidaily.com/gartners-magic-quadrant-recognizes-abbyy-as-a-standout-named-leader-in-ocr-technology/"><u>Gartner's Magic Quadrant Recognizes ABBYY as a Standout Named Leader in OCR Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/harnessing-idp-solutions-a-game-changer-in-modern-insurance-management/"><u>Harnessing IDP Solutions: A Game Changer in Modern Insurance Management</u></a></li>
-<li><a href="https://solve-info.techidaily.com/how-covid-has-changed-employees-perspectives-a-staggering-25-contemplating-job-change-due-to-flawed-business-operations/"><u>How COVID Has Changed Employees' Perspectives: A Staggering 25%% Contemplating Job Change Due to Flawed Business Operations</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-vivo-t2-5g-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Vivo T2 5G</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-7-to-androidios-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 7 To Android/iOS? | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-top-7-skype-hacker-to-hack-any-skype-account-on-your-oppo-a1x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Skype Hacker to Hack Any Skype Account On your Oppo A1x 5G | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/iphone-app-for-seamless-document-digitalization-advanced-ocr-scan-and-pdfjpg-integration-made-easy/"><u>IPhone App for Seamless Document Digitalization: Advanced OCR Scan and PDF/JPG Integration Made Easy!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/iphone-scanning-app-convert-documents-and-images-into-pdf-using-ocr-technology/"><u>IPhone Scanning App: Convert Documents & Images Into PDF Using OCR Technology</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/mastering-the-art-of-valheim-gardening-for-2024/"><u>Mastering the Art of Valheim Gardening for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/meinungsforschungsanalyse-mit-abbyy-wie-connexions-zur-optimierung-seiner-methoden-beitragt/"><u>Meinungsforschungsanalyse Mit ABBYY: Wie Connexions Zur Optimierung Seiner Methoden Beiträgt</u></a></li>
-<li><a href="https://solve-info.techidaily.com/multilingual-archive-protection-by-abbyy-finereader-securing-4000000plus-historical-documents-for-future-generations-at-the-national-library-of-latvia/"><u>Multilingual Archive Protection by ABBYY FineReader: Securing 4,000,000+ Historical Documents for Future Generations at the National Library of Latvia</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimisation-des-processus-rpa-grace-a-une-analyse-avancee-strategies-defficacite-avec-abbyy/"><u>Optimisation Des Processus RPA Grâce À Une Analyse Avancée : Stratégies D'efficacité Avec ABBYY</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimisez-votre-strategie-logistique-guide-de-la-liste-de-controle-pour-le-transports/"><u>Optimisez Votre Stratégie Logistique: Guide De La Liste De Contrôle Pour Le Transports</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimized-through-next-level-advertising-tools-provided-by-cookiebot/"><u>Optimized Through Next-Level Advertising Tools Provided by Cookiebot</u></a></li>
-<li><a href="https://solve-info.techidaily.com/photography-tips-and-task-management-secrets-revealed-on-abbyy-blog/"><u>Photography Tips & Task Management Secrets Revealed on ABBYY Blog</u></a></li>
-<li><a href="https://solve-info.techidaily.com/pourquoi-utiliser-le-mining-processeux-exploration-des-avantages-et-cas-dusage/"><u>Pourquoi Utiliser Le Mining Processeux? Exploration Des Avantages Et Cas D'Usage</u></a></li>
-<li><a href="https://solve-info.techidaily.com/revolutionize-quick-cashflow-with-abbyys-mobile-ocr-sdk-for-instantaneous-loan-approvals/"><u>Revolutionize Quick Cashflow with ABBYY's Mobile OCR SDK for Instantaneous Loan Approvals!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/revolutionize-your-operations-the-power-of-digital-replicas-and-simulated-processes-for-business-advancement/"><u>Revolutionize Your Operations: The Power of Digital Replicas and Simulated Processes for Business Advancement</u></a></li>
-<li><a href="https://solve-info.techidaily.com/scott-opitz-transitions-to-key-leadership-roles-as-cto-and-cpo-at-dabbyy/"><u>Scott Opitz Transitions to Key Leadership Roles as CTO and CPO at D'Abbyy</u></a></li>
-<li><a href="https://solve-info.techidaily.com/transform-your-iphone-photos-into-searchable-text-files-using-finereaders-powerful-ocr-technology/"><u>Transform Your iPhone Photos Into Searchable Text Files Using FineReader's Powerful OCR Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unleash-potential-with-smart-cookie-technology-discover-your-sites-secret-weapon/"><u>Unleash Potential with Smart Cookie Technology: Discover Your Site's Secret Weapon!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unleash-the-potential-of-clever-automation-this-september-join-abbyys-enlightening-journey/"><u>Unleash the Potential of Clever Automation This September – Join ABBYY's Enlightening Journey</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unlocking-the-hidden-potential-in-your-supply-chain-dont-miss-out-on-this-key-advantage/"><u>Unlocking the Hidden Potential in Your Supply Chain: Don't Miss Out on This Key Advantage</u></a></li>
-<li><a href="https://solve-info.techidaily.com/utilizing-cookiebot-technology-for-effective-user-tracking-and-personalization/"><u>Utilizing Cookiebot Technology for Effective User Tracking and Personalization</u></a></li>
-<li><a href="https://solve-info.techidaily.com/visionary-executive-neil-murphy-guides-global-strategy-as-emea-channel-chief-and-svp-at-top-level-sales-position/"><u>Visionary Executive Neil Murphy Guides Global Strategy as EMEA Channel Chief and SVP at Top-Level Sales Position</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-best-backgrounds-for-live-streaming-2023/"><u>[New] 2024 Approved Best Backgrounds for Live Streaming 2023</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-evaluating-recmeisters-innovation-in-video-capture/"><u>[Updated] 2024 Approved Evaluating Recmeister's Innovation in Video Capture</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-optimal-hd-video-memory-creators/"><u>[Updated] In 2024, Optimal HD Video Memory Creators</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-streaming-success-recording-roblox-on-apple-devices/"><u>[Updated] In 2024, Streaming Success Recording Roblox on Apple Devices</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-screen-mirroring-apple-iphone-xs-max-to-tv-or-pc-drfone-by-drfone-ios/"><u>How Screen Mirroring Apple iPhone XS Max to TV or PC? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-can-i-bypass-a-forgotten-phone-password-of-oneplus-ace-2-by-drfone-android/"><u>In 2024, Can I Bypass a Forgotten Phone Password Of OnePlus Ace 2?</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-your-account-has-been-disabled-in-the-app-store-and-itunes-from-apple-iphone-11-pro-by-drfone-ios/"><u>In 2024, Your Account Has Been Disabled in the App Store and iTunes From Apple iPhone 11 Pro?</u></a></li>
+<li><a href="https://solve-info.techidaily.com/personalized-marketing-with-cookiebot-technology-integration/"><u>Personalized Marketing with Cookiebot Technology Integration</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/reviewing-the-value-proposition-of-a-4tb-patriot-viper-vp4300-lite-solid-state-drive/"><u>Reviewing the Value Proposition of a 4TB Patriot Viper VP4300 Lite Solid State Drive</u></a></li>
+<li><a href="https://solve-info.techidaily.com/revolutionize-your-it-infrastructure-using-ai-essential-strategies-by-abbyy-experts/"><u>Revolutionize Your IT Infrastructure Using AI: Essential Strategies by ABBYY Experts</u></a></li>
+<li><a href="https://solve-info.techidaily.com/smart-integration-of-ai-and-robotics-in-modern-medicine-infographic-guide/"><u>Smart Integration of AI and Robotics in Modern Medicine - Infographic Guide</u></a></li>
+<li><a href="https://solve-info.techidaily.com/streamlined-workflow-integration-with-pipefy-and-abbyy-document-automation/"><u>Streamlined Workflow Integration with Pipefy & ABBYY Document Automation</u></a></li>
+<li><a href="https://win-dash.techidaily.com/updated-rndis-drivers-for-windows-a-complete-guide-with-downloads/"><u>Updated RNDIS Drivers for Windows: A Complete Guide with Downloads</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

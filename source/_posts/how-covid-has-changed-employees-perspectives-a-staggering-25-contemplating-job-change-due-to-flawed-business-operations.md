@@ -1,40 +1,22 @@
 ---
 title: "How COVID Has Changed Employees' Perspectives: A Staggering 25%% Contemplating Job Change Due to Flawed Business Operations"
-date: 2024-09-08T23:40:17.340Z
-updated: 2024-09-09T23:40:17.340Z
+date: 2024-09-12T17:41:40.929Z
+updated: 2024-09-14T23:20:49.105Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/92d935200679b107d6e949886541d1fff9656f8b1ef1aeadb85afda988825dc9.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How COVID Has Changed Employees' Perspectives: A Staggering 25% Contemplating Job Change Due to Flawed Business Operations
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The True Impact of COVID On Employees: 1-In-4 Want to Quit Their Jobs Because of Poor Business Processes
 
 December 02, 2020
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **_COVID-19 Technology Survey by ABBYY shows two-thirds of businesses adopted AI during lockdown_**
 
 Working from home during the pandemic has taken its toll on many workers, with one in four wanting to quit because of poor business processes, according to a new survey. The global COVID-19 Technology and Business Processes Survey discovered nearly half of staff (48%) blamed bad processes for making their job more challenging – with a third saying they waste time.
@@ -60,18 +42,6 @@ As the survey results show, organizations continue to face rising challenges whe
 
 [![ABBYY GLOBAL COVID TECHNOLOGY SURVEY RESULTS](https://static1.abbyy.com/abbyycommedia/30408/abbyy-global-covid-technology-survey_us_1200x628.jpg)](https://www.abbyy.com/media/30408/abbyy-global-covid-technology-survey%5Fus%5F1200x628.jpg "see full version")
 
-<!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **About ABBYY**
 
 ABBYY empowers organizations to gain a complete understanding of their business processes and the content that fuels them with its [Digital Intelligence](https://tools.techidaily.com/abbyy/products/) platform. ABBYY technologies are used by more than 5,000 companies, including many of the Fortune 500, and is recognized for its leadership in [Intelligent Document Processing](https://tools.techidaily.com/abbyy/products/) (IDP) and [Process Discovery & Mining](https://tools.techidaily.com/abbyy/products/) for driving significant impact where it matters most: customer experience, effectiveness, profitability and competitive advantage. ABBYY is a global company with offices in 14 countries. For more information, visit [www.abbyy.com](https://tools.techidaily.com/abbyy/products/) or visit us on social on [LinkedIn](https://www.linkedin.com/company/abbyy "ABBYY on LinkedIn"), [Twitter](https://twitter.com/ABBYY%5FSoftware "ABBYY on Twitter") and [Facebook](https://www.facebook.com/ABBYYsoft "ABBYY on Facebook").
@@ -92,8 +62,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -103,36 +71,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/updated-srgb-versus-rgb-a-detailed-comparison-for-professionals/"><u>[Updated] Srgb Versus Rgb  A Detailed Comparison for Professionals</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-futures-palette-the-best-sci-fi-films-crafting-virtual-worlds/"><u>[New] In 2024, Future's Palette The Best Sci-Fi Films Crafting Virtual Worlds</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-integrating-jobs-and-passion-projects-effectively/"><u>2024 Approved Integrating Jobs & Passion Projects Effectively</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/5-revolutionary-tools-to-create-with-ai/"><u>5 Revolutionary Tools to Create with AI</u></a></li>
 <li><a href="https://solve-info.techidaily.com/ebook-by-abby/"><u>保険金要求手続き管理: 最適な効果的手法はどこで学べますか？ | eBook by ABBY</u></a></li>
-<li><a href="https://win11.techidaily.com/accelerate-task-management-in-microsoft-project/"><u>Accelerate Task Management in Microsoft Project</u></a></li>
-<li><a href="https://article-tips.techidaily.com/advanced-mac-skills-perfecting-srt-file-management-for-2024/"><u>Advanced Mac Skills  Perfecting SRT File Management for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/automated-insurance-underwriting-with-data-driven-techniques/"><u>Automated Insurance Underwriting with Data-Driven Techniques</u></a></li>
-<li><a href="https://solve-info.techidaily.com/automated-web-analytics-with-cookiebot-technology/"><u>Automated Web Analytics with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-site-engagement-with-cookiebot-technology-integration/"><u>Boost Site Engagement with Cookiebot Technology Integration</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/can-t-view-hevc-h-265-content-on-moto-g14-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Can’t view HEVC H.265 content on Moto G14</u></a></li>
-<li><a href="https://solve-info.techidaily.com/celebrating-international-womens-day-2024-honoring-abbyys-leading-female-contributors/"><u>Celebrating International Women's Day 2024: Honoring ABBYY's Leading Female Contributors</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-performance-unlocking-website-personalization/"><u>Cookiebot-Driven Performance: Unlocking Website Personalization</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-personalization-enhancing-your-websites-user-experience/"><u>Cookiebot-Driven Personalization: Enhancing Your Website's User Experience</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-solutions-for-enhanced-user-engagement/"><u>Cookiebot-Driven Solutions for Enhanced User Engagement</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-success-optimizing-your-website-with-advanced-analytics/"><u>Cookiebot-Driven Success: Optimizing Your Website with Advanced Analytics</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enabled-enhancing-your-websites-engagement-and-conversion-rates/"><u>Cookiebot-Enabled: Enhancing Your Website's Engagement & Conversion Rates</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-user-experience-tailored-content-and-targeting/"><u>Cookiebot-Enhanced User Experience: Tailored Content & Targeting</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-fueled-personalization-enhance-user-experience-with-smart-marketing-automation/"><u>Cookiebot-Fueled Personalization: Enhance User Experience with Smart Marketing Automation</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-user-experience-through-smart-analytics/"><u>Cookiebot: Enhanced User Experience Through Smart Analytics</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhancing-user-experience-with-personalization-and-data-driven-marketing/"><u>Cookiebot: Enhancing User Experience with Personalization and Data-Driven Marketing</u></a></li>
-<li><a href="https://solve-info.techidaily.com/discover-abbyys-best-digital-intelligence-narratives-from-202-2-top-six-picks-unveiled-in-our-latest-post/"><u>Discover ABBYY's Best Digital Intelligence Narratives From 202 2 - Top Six Picks Unveiled in Our Latest Post!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/discover-culinary-convenience-with-abbyys-recipe-digitization-and-photo-enchantment-featured-on-our-blog/"><u>Discover Culinary Convenience with ABBYY's Recipe Digitization and Photo Enchantment - Featured on Our Blog</u></a></li>
-<li><a href="https://solve-info.techidaily.com/distinguishing-between-process-intelligence-and-business-intelligence-for-strategic-decisions/"><u>Distinguishing Between Process Intelligence and Business Intelligence for Strategic Decisions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/driving-engagement-through-smart-data-insights-enhanced-by-cookiebot-technology/"><u>Driving Engagement Through Smart Data Insights: Enhanced by Cookiebot Technology</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-poco-m6-5g-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Poco M6 5G</u></a></li>
 <li><a href="https://solve-info.techidaily.com/elevate-user-experience-with-the-precision-of-cookiebot-technology-integration/"><u>Elevate User Experience with the Precision of Cookiebot Technology Integration</u></a></li>
 <li><a href="https://solve-info.techidaily.com/elevate-your-web-tracking-optimize-seo-using-the-power-of-cookiebot-technology/"><u>Elevate Your Web Tracking: Optimize SEO Using the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/exploring-together-top-metaverse-multiplayer-joints-for-2024/"><u>Exploring Together  Top Metaverse Multiplayer Joints for 2024</u></a></li>
-<li><a href="https://iphone-location.techidaily.com/in-2024-does-pokegoplusplus-still-work-on-apple-iphone-14-proipad-drfone-by-drfone-virtual-ios/"><u>In 2024, Does PokeGo++ still work on Apple iPhone 14 Pro/iPad? | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-enable-usb-debugging-on-a-locked-oppo-a38-phone-by-drfone-android/"><u>In 2024, How To Enable USB Debugging on a Locked Oppo A38 Phone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/never-a-cap-on-saved-instagram-stories-for-2024/"><u>Never a Cap on Saved Instagram Stories for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/no-moving-discs-unjam-your-xbox-sx-series-x/"><u>No Moving Discs? Unjam Your Xbox SX Series X</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ard-youtube-license-vs-creative-commons/"><u>Standard YouTube License Vs. Creative Commons</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-essential-blueprint-for-srt-file-adaptability-for-2024/"><u>The Essential Blueprint for SRT File Adaptability for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/for-effective-youtube-end-screen-usage/"><u>Tips for Effective YouTube End Screen Usage</u></a></li>
+<li><a href="https://solve-info.techidaily.com/empower-your-site-with-cookiebot-technology-advanced-analytics-and-targeting-made-simple/"><u>Empower Your Site with Cookiebot Technology: Advanced Analytics and Targeting Made Simple</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/guide-to-printer-settings-the-easy-way-in-win11-max-50-chars/"><u>Guide to Printer Settings: The Easy Way in Win11 (Max 50 Chars)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-top-10-photo-libraries-for-free-visuals-worldwide/"><u>In 2024, Top 10 Photo Libraries for Free Visuals Worldwide</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

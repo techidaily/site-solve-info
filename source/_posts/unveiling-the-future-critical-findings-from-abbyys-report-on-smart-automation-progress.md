@@ -1,54 +1,24 @@
 ---
 title: "Unveiling the Future: Critical Findings From ABBYY's Report on Smart Automation Progress"
-date: 2024-09-08T23:40:18.463Z
-updated: 2024-09-09T23:40:18.463Z
+date: 2024-09-08T17:18:18.134Z
+updated: 2024-09-14T16:41:21.407Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a33821f7d1add97134f0556ceb5947dead1c89e2bf8e16eab36445ca53259ede.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Unveiling the Future: Critical Findings From ABBYY's Report on Smart Automation Progress
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115930/19272" target="_top" id="2115930">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115930" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115930/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## AI budgets increased over 80% within enterprises globally, according to the ABBYY State of Intelligent Automation Report
 
 September 20, 2023
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![News Partners31](https://static4.abbyy.com/abbyycommedia/33881/news-partners31.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **_IT leaders report a significant impact to customer value, employees’ well-being, and enterprises’ return on AI investments._**
 
 The economy may have had a downward impact on enterprise investments, but these increased exponentially when implementing AI, according to 82% of IT executives taking part in the latest State of Intelligent Automation Report: Impact of the Economy on AI Priorities, commissioned by ABBYY.
@@ -74,12 +44,6 @@ More details about AI investments, ROI expected and achieved, budget priorities,
 
 ![](https://static1.abbyy.com/abbyycommedia/37805/infographic-economic-challenges-survey-en.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115925/19272" target="_top" id="2115925">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115925" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115925/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Methodology
 
 This research was conducted by Sapio Research in July 2023 on behalf of ABBYY. 1000 IT decision makers from 17 industries including financial services, healthcare, transportation/logistics/supply chain, insurance, retail, government/public sector, and healthcare were surveyed across the US, UK, Germany, and France to understand how the current global economic stagnation is impacting investments in intelligent automation. The survey also looked at what technologies, if any, organizations plan to adopt in the near future.
@@ -91,14 +55,28 @@ ABBYY puts your information to work. We combine innovation and experience to tra
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115943/19272" target="_top" id="2115943">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115943" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### ABBYY Editorial Contact
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
+
+<!-- affiliate ads begin -->
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Gina Ray
 
@@ -114,8 +92,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -125,45 +101,16 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-snapdivide-assessment-for-2024/"><u>[New] SnapDivide Assessment for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-the-essential-facetune-walkthrough-for-stunning-photos/"><u>[Updated] 2024 Approved  The Essential Facetune Walkthrough for Stunning Photos</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-comprehensive-acid-pro-evaluation-and-alternative-software/"><u>2024 Approved  Comprehensive ACID Pro Evaluation & Alternative Software</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-invisible-audiences-viewing-instagram-stories-privately-from-pcandroidios-screens/"><u>2024 Approved  Invisible Audiences  Viewing Instagram Stories Privately From PC/Android/iOS Screens</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-unlocking-the-secrets-of-premium-insta-tunes-a-complete-guide/"><u>2024 Approved  Unlocking the Secrets of Premium Insta Tunes  A Complete Guide</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-your-websites-traffic-with-cookiebot-technology-power/"><u>Boost Your Website's Traffic with Cookiebot Technology Power</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boosting-robotic-automation-through-an-integrated-business-process-insight-platform/"><u>Boosting Robotic Automation Through an Integrated Business Process Insight Platform</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boosting-visitor-interaction-with-advanced-cookiebot-technology-solutions/"><u>Boosting Visitor Interaction with Advanced Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/comment-abbeyvision-domine-le-marche-avec-son-ocr-en-faveur-des-connaisseurs-du-monde-du-vin-decouverte-exclusive-de-abbyy-actualites/"><u>Comment AbbeyVision Domine Le Marché Avec Son OCR en Faveur Des Connaisseurs Du Monde Du Vin : Découverte Exclusive De ABBYY Actualités</u></a></li>
-<li><a href="https://solve-info.techidaily.com/consistent-financial-excellence-abbyy-records-over-ten-percent-revenue-jump-for-third-year-running/"><u>Consistent Financial Excellence: ABBYY Records Over-Ten Percent Revenue Jump for Third Year Running</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enabled-solutions-optimize-your-website-effortlessly/"><u>Cookiebot-Enabled Solutions: Optimize Your Website Effortlessly</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enabled-optimize-your-site-with-our-powerful-tracking-solutions/"><u>Cookiebot-Enabled: Optimize Your Site with Our Powerful Tracking Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enabled-optimize-your-websites-performance-and-security/"><u>Cookiebot-Enabled: Optimize Your Website's Performance and Security</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-optimized-experience-tailored-by-advanced-tracking/"><u>Cookiebot-Enhanced: Optimized Experience Tailored By Advanced Tracking</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-optimized-user-tracking-and-personalization/"><u>Cookiebot-Enhanced: Optimized User Tracking & Personalization</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-fueled-solutions-for-enhanced-online-marketing/"><u>Cookiebot-Fueled Solutions for Enhanced Online Marketing</u></a></li>
-<li><a href="https://solve-info.techidaily.com/download-the-latest-update-of-abbyy-textgrabber-for-ios-with-instantaneous-language-conversion-capability/"><u>Download the Latest Update of ABBYY TextGrabber for iOS with Instantaneous Language Conversion Capability!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/driven-by-cookiebot-enhancing-your-websites-visitor-tracking/"><u>Driven by Cookiebot: Enhancing Your Website's Visitor Tracking</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-user-experience-with-our-cookiebot-technology-solutions/"><u>Elevate User Experience with Our Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/empower-your-site-analytics-through-innovative-tracker-solutions/"><u>Empower Your Site Analytics Through Innovative Tracker Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-conversion-tracking-with-the-cookiebot-integration/"><u>Enhanced Conversion Tracking with the Cookiebot Integration</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-conversions-with-our-advanced-cookiebot-technology/"><u>Enhanced Conversions with Our Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-marketing-automation-with-cookiebot-technology/"><u>Enhanced Marketing Automation with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-marketing-insights-with-the-power-of-cookiebot-technology/"><u>Enhanced Marketing Insights with the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-user-experience-with-automated-ad-targeting-the-power-of-cookiebot-technology/"><u>Enhanced User Experience with Automated Ad Targeting: The Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-client-interaction-through-ai-transforming-the-customer-journey-with-automation/"><u>Enhancing Client Interaction Through AI: Transforming the Customer Journey with Automation</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-site-performance-through-advanced-cookiebot-features/"><u>Enhancing Site Performance Through Advanced Cookiebot Features</u></a></li>
-<li><a href="https://solve-info.techidaily.com/experience-tailored-browsing-with-cookiebot-technology-driven-content/"><u>Experience Tailored Browsing with Cookiebot Technology Driven Content</u></a></li>
-<li><a href="https://solve-info.techidaily.com/expert-processing-partners-boosting-abbyy-advanced-functionality/"><u>Expert Processing Partners Boosting ABBYY Advanced Functionality</u></a></li>
-<li><a href="https://solve-info.techidaily.com/how-artificial-intelligence-boosts-roi-through-advanced-image-recognition-expert-advice-on-intelligent-capture-blog-by-abbyy/"><u>How Artificial Intelligence Boosts ROI Through Advanced Image Recognition - Expert Advice on Intelligent Capture | Blog by ABBYY</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-xiaomi-redmi-a2plus-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On Xiaomi Redmi A2+ | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/introducing-neoml-abbyys-new-open-source-library-speeding-up-artifice-intelligence-innovation/"><u>Introducing NeoML: ABBYY's New Open Source Library Speeding Up Artifice Intelligence Innovation</u></a></li>
-<li><a href="https://solve-info.techidaily.com/junges-management-gefahrdet-durch-ineffiziente-geschaftspraktiken-und-veraltete-technologie-abbyy-umfrage-zeigt-schnelle-demotivierung-gegenuber-alteren-kol9/"><u>Junges Management Gefährdet Durch Ineffiziente Geschäftspraktiken Und Veraltete Technologie: ABBYY Umfrage Zeigt Schnelle Demotivierung Gegenüber Älteren Kollegen</u></a></li>
-<li><a href="https://solve-info.techidaily.com/launching-intelligent-transit-solutions-insights-from-the-abbyy-blog/"><u>Launching Intelligent Transit Solutions: Insights From the ABBYY Blog</u></a></li>
-<li><a href="https://solve-info.techidaily.com/les-avantages-dutiliser-locr-dabbevillier-pour-les-amateurs-de-vin-la-solution-la-plus-appreciee-par-vivino/"><u>Les Avantages D'utiliser L'OCR D'Abbevillier Pour Les Amateurs De Vin: La Solution La Plus Appréciée Par Vivino</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/reviving-your-pc-restarting-windows-11-apps/"><u>Reviving Your PC: Restarting Windows 11 Apps</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/step-by-step-guide-installing-up-to-date-drivers-on-hp-designjet-f310-g409-and-similar-models/"><u>Step-by-Step Guide: Installing Up-to-Date Drivers on HP DesignJet F310, G409, and Similar Models</u></a></li>
-<li><a href="https://some-skills.techidaily.com/the-illustrators-journey-navigating-for-success-in-designing-for-2024/"><u>The Illustrator's Journey  Navigating for Success in Designing for 2024</u></a></li>
-<li><a href="https://techidaily.com/the-way-to-get-back-lost-music-from-nubia-red-magic-9-proplus-by-fonelab-android-recover-music/"><u>The way to get back lost music from Nubia Red Magic 9 Pro+</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-5-online-communities-tailored-for-seniors/"><u>Top 5 Online Communities Tailored for Seniors</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/ultimate-list-6-leading-chatgpt-addons-for-your-vs-code-workflow/"><u>Ultimate List: 6 Leading ChatGPT Addons for Your VS Code Workflow</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-streamline-web-surfing-with-microsoft-edges-multi-display-mode/"><u>[New] In 2024, Streamline Web Surfing with Microsoft Edge's Multi-Display Mode</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nstantly-invert-your-playback-order-with-these-hacks/"><u>[New] Instantly Invert Your Playback Order with These Hacks</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-universal-approach-to-smartphone-mac-and-pc-video-filming/"><u>[Updated] In 2024, Universal Approach to Smartphone, Mac, and PC Video Filming</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1-abbyy-expedites-border-processing-with-90-speed-enhancement/"><u>1. ABBYY Expedites Border Processing with 90% Speed Enhancement</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-rapid-tiktok-downloads-flawless-mp4-format-conversions/"><u>2024 Approved Rapid TikTok Downloads Flawless MP4 Format Conversions</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-achieve-excellence-in-google-meet-hostparticipant-at-no-cost/"><u>In 2024, Achieve Excellence in Google Meet (Host/Participant) at No Cost</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-realmewithwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Realmewith/without a PC</u></a></li>
+<li><a href="https://solve-info.techidaily.com/optimized-with-the-cutting-edge-of-traffic-management-the-cookiebot-solution/"><u>Optimized with the Cutting-Edge of Traffic Management: The Cookiebot Solution</u></a></li>
+<li><a href="https://solve-info.techidaily.com/the-smart-enterprise-chronicles-with-maxime-vermeir-delving-into-artificial-intelligence/"><u>The Smart Enterprise Chronicles with Maxime Vermeir – Delving Into Artificial Intelligence</u></a></li>
+<li><a href="https://solve-info.techidaily.com/unlocking-productivity-discover-how-abbyy-intelligent-automation-boosted-efficiency-by-35-insights-from-a-comprehensive-case-study/"><u>Unlocking Productivity: Discover How ABBYY Intelligent Automation Boosted Efficiency by 35% - Insights From a Comprehensive Case Study</u></a></li>
+<li><a href="https://solve-info.techidaily.com/utilizing-cookiebot-technology-for-improved-data-collection-and-analysis/"><u>Utilizing Cookiebot Technology for Improved Data Collection and Analysis</u></a></li>
 </ul></div>
+

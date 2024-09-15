@@ -1,7 +1,7 @@
 ---
 title: "Digital Onboarding Mistakes: Why Most Companeries Are Losing Customer Opportunities"
-date: 2024-09-08T23:40:19.573Z
-updated: 2024-09-09T23:40:19.573Z
+date: 2024-09-09T18:56:37.309Z
+updated: 2024-09-14T23:00:08.637Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/03aa98ead41db04bf63114eadc16ec748777a43531b6ed97c07d153cc7d6b5c7.jpg
@@ -11,12 +11,6 @@ thumbnail: https://thmb.techidaily.com/03aa98ead41db04bf63114eadc16ec748777a4353
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 90% of companies lose potential customers during the digital onboarding process, according to ABBYY State of Intelligent Automation Report Q4-2022
 
 November 15, 2022
@@ -59,12 +53,6 @@ All of these issues have a significant impact on revenue with:
   
 ![Infographic-onboarding-survey-global](https://static1.abbyy.com/abbyycommedia/36315/infographic-onboarding-survey-global.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Solving the issue: The fine balance between technology and human interaction
 
   
@@ -83,28 +71,17 @@ _Gabrielle Lukianchuk, Chief Marketing Officer at ABBYY_
 
 Get more insights into onboarding drivers and pain points and discover a better way to meet customer expectations in the new ABBYY State of Intelligent Automation Report by [downloading here](https://tools.techidaily.com/abbyy/products/).
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Methodology
 
 This research was conducted by Sapio Research in September 2022 on behalf of ABBYY. The survey was conducted among 1,623 decision makers across the UK, US, France, Germany, and Japan on why onboarding processes need to change and what businesses need to do to address customer pain points – by activating the right mix of the human factor alongside automation.
 
 <!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### About ABBYY
 
 ABBYY powers intelligent automation. We reimagine the way people work and how companies accelerate business by delivering the intelligence that fuels automation platforms. Our solutions transform enterprise data and empower you with the insights you need to work smarter and faster. 
@@ -116,21 +93,16 @@ ABBYY is a US-based global company with offices in 15 countries. For more inform
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Editorial Contact
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Gina Ray, APR
 
 _Director of Global Public Relations_
@@ -145,8 +117,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -156,53 +126,14 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-6-game-changing-tactics-to-increase-watch-time-and-reduce-churn-rate/"><u>[Updated] 2024 Approved  6 Game-Changing Tactics to Increase Watch Time and Reduce Churn Rate</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-exploring-and-locating-videos-on-facebook-platform/"><u>[Updated] In 2024, Exploring and Locating Videos on Facebook Platform</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-marketing-magic-with-testimonial-videos/"><u>2024 Approved  Marketing Magic with Testimonial Videos</u></a></li>
-<li><a href="https://android-frp.techidaily.com/5-quick-methods-to-bypass-motorola-edge-40-neo-frp-by-drfone-android/"><u>5 Quick Methods to Bypass Motorola Edge 40 Neo FRP</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-als-losung-zur-automatisierung-von-rechtspapierverarbeitung-fortschrittliche-rechnungsmanagement-systeme-fur-rechtsanwalte/"><u>ABBYY Als Lösung Zur Automatisierung Von Rechtspapierverarbeitung – Fortschrittliche Rechnungsmanagement-Systeme Für Rechtsanwälte</u></a></li>
-<li><a href="https://solve-info.techidaily.com/achieving-unparalleled-process-improvement-with-process-mining-and-robotic-automation/"><u>Achieving Unparalleled Process Improvement with Process Mining & Robotic Automation</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-your-site-with-automated-personalization-the-cookiebot-advantage/"><u>Boost Your Site with Automated Personalization: The Cookiebot Advantage</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-your-site-with-our-efficient-cookiebot-analytics-solution/"><u>Boost Your Site with Our Efficient Cookiebot Analytics Solution</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-your-sites-traffic-with-our-leading-cookiebot-driven-analytics-tools/"><u>Boost Your Site's Traffic with Our Leading Cookiebot-Driven Analytics Tools</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/boosting-pc-gaming-performance-turn-off-mouse-acceleration-on-windows-11/"><u>Boosting PC Gaming Performance: Turn Off Mouse Acceleration on Windows 11</u></a></li>
-<li><a href="https://solve-info.techidaily.com/convert-photos-to-editable-pdfsjpeg-files-using-iocr-scanner-streamline-reading-on-ios-devices/"><u>Convert Photos to Editable PDFs/JPEG Files Using iOCR Scanner | Streamline Reading on iOS Devices</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-digital-solutions-elevate-your-seo-strategy/"><u>Cookiebot-Driven Digital Solutions: Elevate Your SEO Strategy</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enabled-customized-user-experience-boosts-engagement-and-sales/"><u>Cookiebot-Enabled Customized User Experience Boosts Engagement and Sales</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-site-performance-and-personalization/"><u>Cookiebot-Enhanced Site Performance and Personalization</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-boost-your-websites-conversion-with-advanced-tracking/"><u>Cookiebot-Enhanced: Boost Your Website's Conversion with Advanced Tracking</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-smart-personalization-for-your-site/"><u>Cookiebot-Enhanced: Smart Personalization for Your Site</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-unleashing-the-potential-of-smart-marketing-technology/"><u>Cookiebot-Enhanced: Unleashing the Potential of Smart Marketing Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-the-key-to-cutting-edge-data-tracking-and-personalization/"><u>Cookiebot: The Key to Cutting-Edge Data Tracking and Personalization</u></a></li>
-<li><a href="https://solve-info.techidaily.com/discover-efficient-data-analytics-through-our-advanced-cookiebot-driven-solutions/"><u>Discover Efficient Data Analytics Through Our Advanced Cookiebot-Driven Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/dynamique-croissante-un-dixieme-de-moins-de-societes-francaises-recherchent-les-contributions-des-citoyens-developpeurs/"><u>Dynamique Croissante : Un Dixième De Moins De Sociétés Françaises Recherchent Les Contributions Des 'Citoyens Développeurs'</u></a></li>
-<li><a href="https://solve-info.techidaily.com/ebook-accelerating-digital-agility-transformation-within-the-insurance-sector/"><u>EBook: Accelerating Digital Agility Transformation Within the Insurance Sector</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-site-traffic-with-our-cookiebot-powered-analytics-solutions/"><u>Elevate Site Traffic with Our Cookiebot Powered Analytics Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-your-digital-presence-with-cutting-edge-cookiebot-technology-solutions/"><u>Elevate Your Digital Presence with Cutting-Edge Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-your-online-marketing-experience-the-magic-of-cookiebot-automation/"><u>Elevate Your Online Marketing: Experience the Magic of Cookiebot Automation</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-your-website-with-advanced-cookiebot-technology-solutions/"><u>Elevate Your Website with Advanced Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-your-website-with-cookiebot-technology-solutions/"><u>Elevate Your Website with Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevating-your-sites-potential-through-advanced-cookiebot-integration/"><u>Elevating Your Site's Potential Through Advanced Cookiebot Integration</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/explore-why-the-samsung-galaxy-a51-is-your-go-to-5g-budget-phone-our-in-depth-analysis-revealed/"><u>Explore Why the Samsung Galaxy A51 Is Your Go-To 5G Budget Phone - Our In-Depth Analysis Revealed!</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-can-i-use-a-fake-gps-without-mock-location-on-oppo-a38-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Use a Fake GPS Without Mock Location On Oppo A38? | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/iphone-tutorial-snap-and-stream-simultaneously-for-2024/"><u>IPhone Tutorial  Snap and Stream Simultaneously for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/launching-intelligent-transit-solutions-insights-from-the-abbyy-blog/"><u>Launching Intelligent Transit Solutions: Insights From the ABBYY Blog</u></a></li>
-<li><a href="https://solve-info.techidaily.com/les-avantages-dutiliser-locr-dabbevillier-pour-les-amateurs-de-vin-la-solution-la-plus-appreciee-par-vivino/"><u>Les Avantages D'utiliser L'OCR D'Abbevillier Pour Les Amateurs De Vin: La Solution La Plus Appréciée Par Vivino</u></a></li>
-<li><a href="https://solve-info.techidaily.com/leveraging-cookiebot-technology-for-superior-visitor-insights-and-site-optimization/"><u>Leveraging Cookiebot Technology for Superior Visitor Insights and Site Optimization</u></a></li>
-<li><a href="https://solve-info.techidaily.com/mastering-modern-banking-challenges-proven-abbyy-strategies-for-thriving-through-crisis-and-beyond/"><u>Mastering Modern Banking Challenges: Proven ABBYY Strategies for Thriving Through Crisis and Beyond</u></a></li>
-<li><a href="https://solve-info.techidaily.com/norton-rose-llp-utilise-le-serveur-de-reconnaissance-dabbyy-pour-la-digitalisation-centrale-des-documents/"><u>Norton Rose LLP Utilise Le Serveur De Reconnaissance D'ABBYY Pour La Digitalisation Centrale Des Documents</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimizing-business-processes-how-abbyy-complements-automation-anywhere-solutions/"><u>Optimizing Business Processes: How ABBYY Complements Automation Anywhere Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/participate-in-the-exclusive-abbyy-smart-automation-event-of-may-2024/"><u>Participate in the Exclusive ABBYY Smart Automation Event of May 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/personalized-marketing-with-cookiebot-technology-integration/"><u>Personalized Marketing with Cookiebot Technology Integration</u></a></li>
-<li><a href="https://solve-info.techidaily.com/revolutionize-your-it-infrastructure-using-ai-essential-strategies-by-abbyy-experts/"><u>Revolutionize Your IT Infrastructure Using AI: Essential Strategies by ABBYY Experts</u></a></li>
-<li><a href="https://solve-info.techidaily.com/smart-integration-of-ai-and-robotics-in-modern-medicine-infographic-guide/"><u>Smart Integration of AI and Robotics in Modern Medicine - Infographic Guide</u></a></li>
-<li><a href="https://solve-info.techidaily.com/streamlined-workflow-integration-with-pipefy-and-abbyy-document-automation/"><u>Streamlined Workflow Integration with Pipefy & ABBYY Document Automation</u></a></li>
-<li><a href="https://solve-info.techidaily.com/texthelp-und-abbyy-revolutionarer-support-fur-menschen-mit-leseschwache-oder-dysgraphie/"><u>Texthelp Und ABBYY: Revolutionärer Support Für Menschen Mit Leseschwäche Oder Dysgraphie</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/the-art-of-angle-alteration-mastering-the-rotation-ritual-on-instagram-for-2024/"><u>The Art of Angle Alteration  Mastering the Rotation Ritual on Instagram for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/top-7-ai-powered-tools-for-creating-stunning-presentations-effortlessly/"><u>Top 7 AI-Powered Tools for Creating Stunning Presentations Effortlessly</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unleash-potential-with-our-cookiebot-integrated-services/"><u>Unleash Potential with Our Cookiebot Integrated Services</u></a></li>
-<li><a href="https://solve-info.techidaily.com/untapped-opportunities-how-british-enterprises-can-harness-automation-advantages-according-to-abbyy-insights/"><u>Untapped Opportunities: How British Enterprises Can Harness Automation Advantages, According to ABBYY Insights</u></a></li>
-<li><a href="https://solve-info.techidaily.com/verbessern-sie-die-sicherheit-von-dokumenten-bei-der-eingabe-mit-tangro-hochladen-per-process-security/"><u>Verbessern Sie Die Sicherheit Von Dokumenten Bei Der Eingabe Mit Tangro® - Hochladen per Process Security</u></a></li>
-<li><a href="https://solve-info.techidaily.com/warum-fehlt-es-bei-deutschen-firmen-oftmals-an-einem-verstandnis-fur-rpa-was-zu-misserfolgen-fuhrt-insights-von-abbyy/"><u>Warum Fehlt Es Bei Deutschen Firmen Oftmals an Einem Verständnis Für RPA, Was Zu Misserfolgen Führt – Insights Von ABBYY</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyycfo/"><u>ジェームズ・ライター氏がABBYYの新しいCFOとして昇格</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-inquiring-into-the-benefit-of-verified-online-self-portraits-for-2024/"><u>[New] Inquiring Into the Benefit of Verified Online Self-Portraits for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-the-newest-insignia-wireless-adapter-driver-software-for-windows-computers/"><u>Get the Newest Insignia Wireless Adapter Driver Software for Windows Computers</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/lock-your-infinix-hot-30i-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Infinix Hot 30i Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://solve-info.techidaily.com/photography-tips-and-task-management-secrets-revealed-on-abbyy-blog/"><u>Photography Tips & Task Management Secrets Revealed on ABBYY Blog</u></a></li>
+<li><a href="https://solve-info.techidaily.com/pourquoi-utiliser-le-mining-processeux-exploration-des-avantages-et-cas-dusage/"><u>Pourquoi Utiliser Le Mining Processeux? Exploration Des Avantages Et Cas D'Usage</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/quick-guide-updating-your-dell-inspiron-70017432g7-laptops-drivers-with-simple-steps/"><u>Quick Guide: Updating Your Dell Inspiron 7001/7432G7 Laptop's Drivers with Simple Steps</u></a></li>
+<li><a href="https://solve-info.techidaily.com/revolutionize-quick-cashflow-with-abbyys-mobile-ocr-sdk-for-instantaneous-loan-approvals/"><u>Revolutionize Quick Cashflow with ABBYY's Mobile OCR SDK for Instantaneous Loan Approvals!</u></a></li>
+<li><a href="https://solve-info.techidaily.com/revolutionize-your-operations-the-power-of-digital-replicas-and-simulated-processes-for-business-advancement/"><u>Revolutionize Your Operations: The Power of Digital Replicas and Simulated Processes for Business Advancement</u></a></li>
+<li><a href="https://windows11.techidaily.com/unlock-efficiency-advanced-tips-for-task-juggling-in-windows-11/"><u>Unlock Efficiency: Advanced Tips for Task Juggling in Windows 11</u></a></li>
 </ul></div>
+

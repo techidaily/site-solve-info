@@ -1,7 +1,7 @@
 ---
 title: "Navigating Financial Turbulence: Essential Digital Tactics for Banking Success with Insights From ABBYY Leaders"
-date: 2024-09-08T23:40:18.403Z
-updated: 2024-09-09T23:40:18.403Z
+date: 2024-09-11T19:26:57.842Z
+updated: 2024-09-14T18:28:54.770Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b15da95a75575187a58fe60ff06afce56cf37bc750905abb4530851c744c2b18.jpg
@@ -11,12 +11,6 @@ thumbnail: https://thmb.techidaily.com/b15da95a75575187a58fe60ff06afce56cf37bc75
 
 [Back to Webinars](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Digital Strategies for Banks to Thrive in Today’s Crisis and Beyond
 
 English
@@ -27,64 +21,29 @@ English
 
 ![18 Reggietwigg 198X198](https://static4.abbyy.com/abbyycommedia/25486/18-reggietwigg-198x198.png)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Reginald J. Twigg, Ph.D.
 
 Director of Product Marketing, Digital Enterprise, **ABBYY**
 
 ![13 Jacobmorgan 198X198](https://static5.abbyy.com/abbyycommedia/25490/forrester-logo-forspeakers.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![13 Jacobmorgan 198X198](https://static4.abbyy.com/abbyycommedia/25477/13-jacobmorgan-198x198.png)
 
-<!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Jacob Morgan
 
 Senior Analyst, **Forrester**
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Overview
 
 The challenges that banks are facing are staggering— overwhelming exceptions in lending, unprecedented threats to KYC/AML, and LIBOR compliance. The tidal wave of COVID-related loan and forbearance applications continues to rise, while the strain of supporting a remote workforce is pushing processes and technology into crisis. Digital transformation is more necessary than ever…and yet investments must be prioritized strategically.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Watch this webinar to get:
 
 * A first look at Forrester’s recent findings on digital banking amidst the pandemic
@@ -92,6 +51,13 @@ The challenges that banks are facing are staggering— overwhelming exceptions i
 * Practical steps for implementing Digital Intelligence to tackle these challenges
 
 Watch now to learn how to overcome today’s crisis and prepare for tomorrow.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Watch now
 
@@ -105,11 +71,18 @@ All personal information collected via this method is under full scope of all pr
 [![On Demand ABBYY Forrester Webinar US](https://static1.abbyy.com/abbyycommedia/25739/on-demand-abbyy-forrester-webinar.jpg)](https://www.youtube.com/watch?v=Vp78wy6zEgA) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
@@ -168,8 +141,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -179,36 +150,15 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-tactics-to-determine-igtv-viewership-success/"><u>[New] Tactics to Determine IGTV Viewership Success</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-top-8-access-free-eco-friendly-vfx-backdrops-online/"><u>[Updated] In 2024, Top 8  Access Free Eco-Friendly VFX Backdrops Online</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-iphones-simple-guide-for-efficient-screen-recording/"><u>[Updated] IPhone's Simple Guide for Efficient Screen Recording</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-step-by-step-guide-to-youtube-video-editing-mastery/"><u>[Updated] Step by Step Guide to YouTube Video Editing Mastery</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-reclaim-original-vibrance-in-photographs-with-these-top-apps/"><u>2024 Approved  Reclaim Original Vibrance in Photographs with These Top Apps</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-excellent-typography-trick-sets/"><u>[Updated] Excellent Typography Trick Sets</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-quick-fixes-for-professional-looking-youtube-thumbnails/"><u>[Updated] Quick Fixes for Professional-Looking YouTube Thumbnails</u></a></li>
 <li><a href="https://solve-info.techidaily.com/ebook-by-abby/"><u>保険金要求手続き管理: 最適な効果的手法はどこで学べますか？ | eBook by ABBY</u></a></li>
+<li><a href="https://solve-info.techidaily.com/distinguishing-between-process-intelligence-and-business-intelligence-for-strategic-decisions/"><u>Distinguishing Between Process Intelligence and Business Intelligence for Strategic Decisions</u></a></li>
+<li><a href="https://solve-info.techidaily.com/driving-engagement-through-smart-data-insights-enhanced-by-cookiebot-technology/"><u>Driving Engagement Through Smart Data Insights: Enhanced by Cookiebot Technology</u></a></li>
 <li><a href="https://solve-info.techidaily.com/elevate-user-experience-with-the-precision-of-cookiebot-technology-integration/"><u>Elevate User Experience with the Precision of Cookiebot Technology Integration</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-your-web-tracking-optimize-seo-using-the-power-of-cookiebot-technology/"><u>Elevate Your Web Tracking: Optimize SEO Using the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/empower-your-site-with-cookiebot-technology-advanced-analytics-and-targeting-made-simple/"><u>Empower Your Site with Cookiebot Technology: Advanced Analytics and Targeting Made Simple</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhance-online-engagement-with-cookiebot-technology/"><u>Enhance Online Engagement with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhance-your-website-visibility-the-power-of-cookiebot-integration/"><u>Enhance Your Website Visibility: The Power of Cookiebot Integration</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-user-tracking-with-the-power-of-cookiebot-technology/"><u>Enhanced User Tracking with the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-web-traffic-with-cookiebot-technology/"><u>Enhanced Web Traffic with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-efficiency-in-finance-the-power-of-hyperautomation-on-sap-cloud-platforms-by-abbyy/"><u>Enhancing Efficiency in Finance: The Power of Hyperautomation on SAP Cloud Platforms by ABBYY</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-employee-skills-with-sap-and-abbyy-insights-from-an-industry-pro/"><u>Enhancing Employee Skills with SAP & ABBYY: Insights From an Industry Pro</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-smartphone-cleanliness-leveraging-abbyys-bcr-tech-and-digital-notetaking-tools/"><u>Enhancing Smartphone Cleanliness: Leveraging ABBYY's BCR Tech & Digital Notetaking Tools</u></a></li>
-<li><a href="https://solve-info.techidaily.com/experienced-dev-leader-mihajlo-mulic-takes-the-helm-as-senior-software-pro-at-abbyy/"><u>Experienced Dev Leader: Mihajlo Mulic Takes the Helm as Senior Software Pro at ABBYY</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/full-guide-on-mirroring-your-motorola-moto-g24-to-your-pcmac-drfone-by-drfone-android/"><u>Full Guide on Mirroring Your Motorola Moto G24 to Your PC/Mac | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/harnessing-the-power-of-cookiebot-for-superior-site-personalization-and-growth/"><u>Harnessing the Power of Cookiebot for Superior Site Personalization and Growth</u></a></li>
-<li><a href="https://solve-info.techidaily.com/how-process-intelligence-leads-to-success-understanding-the-top-five-advantages/"><u>How Process Intelligence Leads to Success: Understanding the Top Five Advantages</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-a-step-by-step-manual-swiftly-produce-captions-for-facebook-videos/"><u>In 2024, A Step-by-Step Manual  Swiftly Produce Captions for Facebook Videos</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-complete-analysis-gopro-silver-edition-hero4-assessment/"><u>In 2024, Complete Analysis  GoPro Silver Edition HERO4 Assessment</u></a></li>
-<li><a href="https://solve-info.techidaily.com/integrating-compliance-protocols-with-exceptional-cx-strategies-in-banking-and-finance/"><u>Integrating Compliance Protocols with Exceptional CX Strategies in Banking & Finance</u></a></li>
-<li><a href="https://solve-info.techidaily.com/intelligent-docx-and-pdf-automation-with-quadrants-spark-2022-matrix-solution/"><u>Intelligent DOCX & PDF Automation with Quadrant's SPARK 2022 Matrix Solution</u></a></li>
-<li><a href="https://solve-info.techidaily.com/leveraging-ai-and-analytics-for-boosting-staff-participation-and-commitment/"><u>Leveraging AI and Analytics for Boosting Staff Participation and Commitment</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimized-with-the-cutting-edge-of-traffic-management-the-cookiebot-solution/"><u>Optimized with the Cutting-Edge of Traffic Management: The Cookiebot Solution</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/premier-gif-application-selection-for-iphone-users-for-2024/"><u>Premier GIF Application Selection for iPhone Users for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/the-smart-enterprise-chronicles-with-maxime-vermeir-delving-into-artificial-intelligence/"><u>The Smart Enterprise Chronicles with Maxime Vermeir – Delving Into Artificial Intelligence</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/transform-your-workflow-top-10-stealthy-canva-techniques-for-2024/"><u>Transform Your Workflow  Top 10 Stealthy Canva Techniques for 2024</u></a></li>
-<li><a href="https://android-frp.techidaily.com/ultimate-guide-on-oneplus-nord-3-5g-frp-bypass-by-drfone-android/"><u>Ultimate Guide on OnePlus Nord 3 5G FRP Bypass</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unlocking-productivity-discover-how-abbyy-intelligent-automation-boosted-efficiency-by-35-insights-from-a-comprehensive-case-study/"><u>Unlocking Productivity: Discover How ABBYY Intelligent Automation Boosted Efficiency by 35%% - Insights From a Comprehensive Case Study</u></a></li>
-<li><a href="https://win-blog.techidaily.com/wave-goodbye-to-game-lags-cyberpunk-2077s-freeze-problem-resolved/"><u>Wave Goodbye to Game Lags: Cyberpunk 2077'S Freeze Problem Resolved</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-videos-from-xiaomi-redmi-note-12t-pro-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Videos from Xiaomi Redmi Note 12T Pro to iPad | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-google-nest-mini-camera-exploring-facial-recognition-and-innovative-delivery-notifications/"><u>In-Depth Analysis of the Google Nest Mini Camera: Exploring Facial Recognition & Innovative Delivery Notifications</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-ultimate-pathway-to-creating-metaverse-identities/"><u>The Ultimate Pathway to Creating Metaverse Identities</u></a></li>
+<li><a href="https://apple-account.techidaily.com/why-apple-account-disabled-from-your-apple-iphone-11-pro-max-how-to-fix-by-drfone-ios/"><u>Why Apple Account Disabled From your Apple iPhone 11 Pro Max? How to Fix</u></a></li>
 </ul></div>
+

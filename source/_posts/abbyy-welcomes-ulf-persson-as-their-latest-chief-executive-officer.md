@@ -1,40 +1,22 @@
 ---
 title: ABBYY Welcomes Ulf Persson as Their Latest Chief Executive Officer
-date: 2024-09-08T23:40:18.539Z
-updated: 2024-09-09T23:40:18.539Z
+date: 2024-09-08T17:23:49.476Z
+updated: 2024-09-14T21:36:53.293Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c80fad792e3cb229a3e653969139437b39335328a63ecf71a877586d96fe497a.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135476/26400" target="_top" id="2135476">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135476/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Welcomes Ulf Persson as Their Latest Chief Executive Officer
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY® Group Appoints New CEO
 
 January 19, 2017
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ABBYY Group has announced the appointment of [Ulf Persson](https://tools.techidaily.com/abbyy/products/) \- its current Chairman of the Board - as the Group’s new CEO. Ulf Persson will succeed Sergey Andreev, who has been leading the company for the past 17 years.
 
 ABBYY Group has also announced other changes in its top management. ABBYY Founder David Yang will return as Chairman of the Board, a position he previously held. ABBYY Group former Senior VP and CFO Vadim Tereshchenko’s role has been considerably expanded. He will now hold the positions of COO and CFO as well as that of Deputy CEO.
@@ -65,8 +47,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -76,47 +56,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/updated-2024-approved-elite-20-unprotected-open-access-pubg-montages/"><u>[Updated] 2024 Approved  Elite 20 Unprotected, Open-Access PUBG Montages</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-prime-routines-for-mobile-game-screening/"><u>[Updated] 2024 Approved  Prime Routines for Mobile Game Screening</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-become-a-tiktok-filming-pro-a-step-by-step-approach-for-2024/"><u>[Updated] Become a TikTok Filming Pro  A Step-by-Step Approach for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-fast-forwarding-fundamentals-a-novices-guide-to-snapchat/"><u>[Updated] Fast Forwarding Fundamentals  A Novice's Guide to Snapchat</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-2023-how-to-make-facebook-videos-full-screen/"><u>[Updated] In 2024, 2023 | How to Make Facebook Videos Full Screen?</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-save-and-stream-gotomeet-on-desktops-and-phones-for-2024/"><u>[Updated] Save and Stream  GoToMeet on Desktops & Phones for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-tech-enthusiasts-manual-mastering-macoss-capture-tool-for-2024/"><u>[Updated] Tech Enthusiasts' Manual  Mastering macOS's Capture Tool for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-instagram-optimization-top-techniques-for-businesses-and-brands/"><u>2024 Approved  Instagram Optimization  Top Techniques for Businesses and Brands</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-perfect-your-canon-shots-10-free-tailored-for-professionals/"><u>2024 Approved  Perfect Your Canon Shots  10 Free, Tailored for Professionals</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-sdk-nouveau-kit-dintegration-pour-la-prise-de-commande-rapide-et-reactive-des-donnees/"><u>ABBYY SDK Nouveau Kit D'Intégration Pour La Prise De Commande Rapide Et Réactive Des Données</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyys-intelligent-capture-connector-now-ready-on-uipath-marketplace-enhance-automation-with-advanced-ocr-technology/"><u>ABBYY's Intelligent Capture Connector Now Ready on UiPath Marketplace, Enhance Automation with Advanced OCR Technology!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-e201/"><u>ABBYY自動請求書解析と電子文書対応ソリューションの紹介: Eドキュメントジャパン201</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-abbyy-flexicapture-ai-ocr/"><u>ABBYYブログで解析: 効果的な帳票処理を可能にするABBYY FlexiCapture - AI OCRプラットフォームの革新</u></a></li>
-<li><a href="https://solve-info.techidaily.com/ai-driven-process-improvement-and-efficient-paperwork-management-in-government-sectors/"><u>AI-Driven Process Improvement & Efficient Paperwork Management in Government Sectors</u></a></li>
-<li><a href="https://solve-info.techidaily.com/automated-insurance-underwriting-with-data-driven-techniques/"><u>Automated Insurance Underwriting with Data-Driven Techniques</u></a></li>
-<li><a href="https://solve-info.techidaily.com/automated-web-analytics-with-cookiebot-technology/"><u>Automated Web Analytics with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-site-engagement-with-cookiebot-technology-integration/"><u>Boost Site Engagement with Cookiebot Technology Integration</u></a></li>
-<li><a href="https://solve-info.techidaily.com/celebrating-international-womens-day-2024-honoring-abbyys-leading-female-contributors/"><u>Celebrating International Women's Day 2024: Honoring ABBYY's Leading Female Contributors</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-music-files-on-honor-90-gt-by-fonelab-android-recover-music/"><u>Complete guide for recovering music files on Honor 90 GT</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-performance-unlocking-website-personalization/"><u>Cookiebot-Driven Performance: Unlocking Website Personalization</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-personalization-enhancing-your-websites-user-experience/"><u>Cookiebot-Driven Personalization: Enhancing Your Website's User Experience</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-solutions-for-enhanced-user-engagement/"><u>Cookiebot-Driven Solutions for Enhanced User Engagement</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-success-optimizing-your-website-with-advanced-analytics/"><u>Cookiebot-Driven Success: Optimizing Your Website with Advanced Analytics</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enabled-enhancing-your-websites-engagement-and-conversion-rates/"><u>Cookiebot-Enabled: Enhancing Your Website's Engagement & Conversion Rates</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-user-experience-tailored-content-and-targeting/"><u>Cookiebot-Enhanced User Experience: Tailored Content & Targeting</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-fueled-personalization-enhance-user-experience-with-smart-marketing-automation/"><u>Cookiebot-Fueled Personalization: Enhance User Experience with Smart Marketing Automation</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-user-experience-through-smart-analytics/"><u>Cookiebot: Enhanced User Experience Through Smart Analytics</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhancing-user-experience-with-personalization-and-data-driven-marketing/"><u>Cookiebot: Enhancing User Experience with Personalization and Data-Driven Marketing</u></a></li>
-<li><a href="https://solve-info.techidaily.com/discover-abbyys-best-digital-intelligence-narratives-from-202-2-top-six-picks-unveiled-in-our-latest-post/"><u>Discover ABBYY's Best Digital Intelligence Narratives From 202 2 - Top Six Picks Unveiled in Our Latest Post!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/discover-culinary-convenience-with-abbyys-recipe-digitization-and-photo-enchantment-featured-on-our-blog/"><u>Discover Culinary Convenience with ABBYY's Recipe Digitization and Photo Enchantment - Featured on Our Blog</u></a></li>
-<li><a href="https://solve-info.techidaily.com/distinguishing-between-process-intelligence-and-business-intelligence-for-strategic-decisions/"><u>Distinguishing Between Process Intelligence and Business Intelligence for Strategic Decisions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/driving-engagement-through-smart-data-insights-enhanced-by-cookiebot-technology/"><u>Driving Engagement Through Smart Data Insights: Enhanced by Cookiebot Technology</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/effortless-installation-guide-intel-ac-7260-dual-band-wifi-card-driver-download/"><u>Effortless Installation Guide: Intel AC 7260 Dual Band WiFi Card Driver Download</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-itel-p40-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Itel P40 | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/how-to-use-video-titles-and-youtube-tags-for-more-views-for-2024/"><u>How to Use Video Titles and YouTube Tags for More Views for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-lava-yuva-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Fixing Foneazy MockGo Not Working On Lava Yuva 2 Pro | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-huawei-nova-y71-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Huawei Nova Y71 | Dr.fone</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-ultimate-guide-10-prime-video-communication-apps-on-smartphones/"><u>In 2024, Ultimate Guide  10 Prime Video Communication Apps on Smartphones</u></a></li>
-<li><a href="https://driver-download.techidaily.com/quick-and-simple-methods-for-downloading-and-updating-microsoft-surface-drivers/"><u>Quick and Simple Methods for Downloading & Updating Microsoft Surface Drivers</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/step-by-step-guide-removing-drm-from-ebooks-chapter-16/"><u>Step-by-Step Guide: Removing DRM From eBooks Chapter 16</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-ultimate-breakdown-of-windows-10s-battery-diagnostic-feature-and-its-benefits/"><u>The Ultimate Breakdown of Windows 10'S Battery Diagnostic Feature and Its Benefits</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/top-screen-capture-contenders-a-comprehensive-review-for-2024/"><u>Top Screen Capture Contenders  A Comprehensive Review for 2024</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-try-filmora-video-editor-and-download-this-powerful-and-intuitive-program-to-help-you-cut-trim-split-your-videos/"><u>Updated Try Filmora Video Editor and Download This Powerful and Intuitive Program to Help You Cut, Trim, Split Your Videos</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-innovative-free-chat-platforms-with-shared-screen-viewing/"><u>[New] 2024 Approved Innovative Free Chat Platforms with Shared Screen Viewing</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-filmmakers-guide-to-the-top-10-essential-camera-brands/"><u>[New] In 2024, Filmmaker's Guide to the Top 10 Essential Camera Brands</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-visionary-graphics-best-cards-in-4k-space-for-2024/"><u>[New] Visionary Graphics Best Cards in 4K Space for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bangla-blitz-hone-skills-quickly-each-day/"><u>Bangla Blitz: Hone Skills Quickly Each Day</u></a></li>
+<li><a href="https://solve-info.techidaily.com/driven-by-advanced-cookie-tracking-meet-the-powerhouse-behind-digital-marketing/"><u>Driven by Advanced Cookie Tracking: Meet the Powerhouse Behind Digital Marketing</u></a></li>
+<li><a href="https://solve-info.techidaily.com/east-midlands-railway-enhances-daily-email-throughput-by-more-than-5-hours-using-abbyy-and-engeneum/"><u>East Midlands Railway Enhances Daily Email Throughput by More than 5 Hours Using ABBYY & Engeneum</u></a></li>
+<li><a href="https://solve-info.techidaily.com/effizientes-kinderschriftenerlernen-mit-abbey-road-finedreader/"><u>Effizientes Kinderschriftenerlernen Mit Abbey Road FinedReader</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/excellence-in-4k-leading-blu-ray-players-compared-for-2024/"><u>Excellence in 4K Leading Blu-Ray Players Compared for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-realme-c67-4g-device-by-drfone-android/"><u>In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Realme C67 4G Device</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/quick-and-reliable-tiktok-to-mp4-file-transfer-software-for-2024/"><u>Quick and Reliable TikTok to MP4 File Transfer Software for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/step-up-your-game-techniques-for-bordered-instagram-videos/"><u>Step Up Your Game Techniques for Bordered Instagram Videos</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/step-by-step-guide-transferring-dvd-content-from-your-computers-hard-drive-to-a-portable-usb-flash-drive-on-pc-and-mac-systems/"><u>Step-by-Step Guide: Transferring DVD Content From Your Computer's Hard Drive to a Portable USB Flash Drive on PC & Mac Systems</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115928/19272" target="_top" id="2115928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115928" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

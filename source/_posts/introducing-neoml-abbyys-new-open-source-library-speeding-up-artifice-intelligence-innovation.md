@@ -1,46 +1,22 @@
 ---
 title: "Introducing NeoML: ABBYY's New Open Source Library Speeding Up Artifice Intelligence Innovation"
-date: 2024-09-08T23:40:20.704Z
-updated: 2024-09-09T23:40:20.704Z
+date: 2024-09-12T22:48:37.253Z
+updated: 2024-09-14T16:38:31.032Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0911d971631dfd9a70ce54df48c6542f0fb3a0ed015eda89c92fcb9372e4bb6e.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Introducing NeoML: ABBYY's New Open Source Library Speeding Up Artifice Intelligence Innovation
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY launches NeoML, an open-source library to accelerate AI developments
 
 June 16, 2020
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### _The framework provides software developers with powerful deep learning and traditional machine learning algorithms for creating applications that fuel digital transformation._ 
 
 ABBYY, a Digital Intelligence company, today announced the launch of [NeoML](https://github.com/neoml-lib), an open-source library for building, training, and deploying machine learning models.
@@ -89,8 +65,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -100,57 +74,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-maximize-reach-with-effective-igtv-video-posts/"><u>[New] 2024 Approved  Maximize Reach with Effective IGTV Video Posts</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-effortless-film-logging-how-to-use-devices-like-pros/"><u>[New] Effortless Film Logging  How to Use Devices Like Pros</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-elevate-video-views-twitter-to-facebook-transition/"><u>[New] In 2024, Elevate Video Views  Twitter to Facebook Transition</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-essential-knowledge-zooming-into-clustered-rooms/"><u>[Updated] 2024 Approved  Essential Knowledge  Zooming Into Clustered Rooms</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-learn-to-capture-on-ipad-like-a-pro-effortlessly/"><u>[Updated] 2024 Approved  Learn To Capture on iPad Like a Pro - Effortlessly</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-mastering-video-selection-adding-to-your-youtube-playlists/"><u>[Updated] 2024 Approved  Mastering Video Selection  Adding to Your YouTube Playlists</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-tweetbite-download-twitter-vids-with-mobile-app/"><u>[Updated] 2024 Approved  TweetBite  Download Twitter Vids with Mobile App</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-interactive-presenters-synopsis-update-8/"><u>[Updated] Interactive Presenter's Synopsis, Update 8</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-transform-every-moment-top-ideas-for-enriching-life-through-podcasts/"><u>[Updated] Transform Every Moment  Top Ideas for Enriching Life Through Podcasts</u></a></li>
-<li><a href="https://solve-info.techidaily.com/iuoajoepvus7oplusiyvplusaykplusmhkeiejeobqplusaxguocgeocieocjoocipluswkiewmljrlibxpgkdnmotjgarllypoyzop6pmsbrjga7miyvms5xjgajjgavvjjgi0i/"><u>「現代貿易金融に求められる変化:創造的な問題解決の手法とは？」</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-fb-ad-videos-made-easy-utilize-free-video-making-kit/"><u>2024 Approved  FB Ad Videos Made Easy  Utilize Free Video-Making Kit</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-quell-the-quake-techniques-to-smooth-out-gopro-footage/"><u>2024 Approved  Quell the Quake  Techniques to Smooth Out GoPro Footage</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-the-pros-approach-to-documenting-overwatch-battles/"><u>2024 Approved  The Pro's Approach to Documenting Overwatch Battles</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/3-easy-ways-to-factory-reset-a-locked-iphone-se-without-itunes-drfone-by-drfone-ios/"><u>3 Easy Ways to Factory Reset a Locked iPhone SE Without iTunes | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-sdk-nouveau-kit-dintegration-pour-la-prise-de-commande-rapide-et-reactive-des-donnees/"><u>ABBYY SDK Nouveau Kit D'Intégration Pour La Prise De Commande Rapide Et Réactive Des Données</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyys-intelligent-capture-connector-now-ready-on-uipath-marketplace-enhance-automation-with-advanced-ocr-technology/"><u>ABBYY's Intelligent Capture Connector Now Ready on UiPath Marketplace, Enhance Automation with Advanced OCR Technology!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-e201/"><u>ABBYY自動請求書解析と電子文書対応ソリューションの紹介: Eドキュメントジャパン201</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-abbyy-flexicapture-ai-ocr/"><u>ABBYYブログで解析: 効果的な帳票処理を可能にするABBYY FlexiCapture - AI OCRプラットフォームの革新</u></a></li>
-<li><a href="https://solve-info.techidaily.com/ai-driven-process-improvement-and-efficient-paperwork-management-in-government-sectors/"><u>AI-Driven Process Improvement & Efficient Paperwork Management in Government Sectors</u></a></li>
-<li><a href="https://solve-info.techidaily.com/automated-insurance-underwriting-with-data-driven-techniques/"><u>Automated Insurance Underwriting with Data-Driven Techniques</u></a></li>
-<li><a href="https://solve-info.techidaily.com/automated-web-analytics-with-cookiebot-technology/"><u>Automated Web Analytics with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-site-engagement-with-cookiebot-technology-integration/"><u>Boost Site Engagement with Cookiebot Technology Integration</u></a></li>
-<li><a href="https://solve-info.techidaily.com/celebrating-international-womens-day-2024-honoring-abbyys-leading-female-contributors/"><u>Celebrating International Women's Day 2024: Honoring ABBYY's Leading Female Contributors</u></a></li>
-<li><a href="https://facebook.techidaily.com/connect-more-with-a-click-adding-contacts-in-fb-messenger/"><u>Connect More with a Click: Adding Contacts in FB Messenger</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-performance-unlocking-website-personalization/"><u>Cookiebot-Driven Performance: Unlocking Website Personalization</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-personalization-enhancing-your-websites-user-experience/"><u>Cookiebot-Driven Personalization: Enhancing Your Website's User Experience</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-solutions-for-enhanced-user-engagement/"><u>Cookiebot-Driven Solutions for Enhanced User Engagement</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/dive-into-reading-without-spending-the-top-17-destinations-for-free-online-books-download/"><u>Dive Into Reading Without Spending: The Top 17 Destinations for Free Online Books Download</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-your-site-with-cookiebot-personalized-analytics-and-retargeting-solutions/"><u>Enhancing Your Site with Cookiebot: Personalized Analytics & Retargeting Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-your-sites-performance-through-advanced-analytics-tools/"><u>Enhancing Your Site's Performance Through Advanced Analytics Tools</u></a></li>
-<li><a href="https://solve-info.techidaily.com/erfolgreiche-digitale-strategien-fur-banken-nach-dem-wandel-implementierung-von-digital-twins-im-bereich-der-kredite/"><u>Erfolgreiche Digitale Strategien Für Banken Nach Dem Wandel – Implementierung Von Digital Twins Im Bereich Der Kredite</u></a></li>
-<li><a href="https://article-helps.techidaily.com/exploring-best-8k-tvs-detailed-matchups-unveiled-for-2024/"><u>Exploring Best 8K TVs  Detailed Matchups Unveiled for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/harness-the-power-of-cookiebot-for-enhanced-site-analytics-and-user-engagement/"><u>Harness the Power of Cookiebot for Enhanced Site Analytics & User Engagement</u></a></li>
-<li><a href="https://solve-info.techidaily.com/harnessing-the-power-of-cookiebot-for-advanced-web-tracking-solutions/"><u>Harnessing the Power of Cookiebot for Advanced Web Tracking Solutions</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-nokia-g310-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Nokia G310 To Phone | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-arctic-athleticism-revealed-the-top-of-the-line-in-olympic-snowboard-cross/"><u>In 2024, Arctic Athleticism Revealed  The Top of the Line in Olympic Snowboard Cross</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/in-2024-mastering-audacity-pro-audio-capture-guide/"><u>In 2024, Mastering Audacity  Pro Audio Capture Guide</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-realme-11x-5g-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Realme 11X 5G Users</u></a></li>
-<li><a href="https://solve-info.techidaily.com/innovative-strategies-for-boosting-your-websites-page-visibility/"><u>Innovative Strategies for Boosting Your Website's Page Visibility</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/instagram-easter-eggs-unlocking-the-secretive-tricks-and-tips-for-2024/"><u>Instagram Easter Eggs  Unlocking the Secretive Tricks and Tips for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/leverage-cookiebot-technology-for-improved-website-insights-and-optimization/"><u>Leverage Cookiebot Technology for Improved Website Insights and Optimization</u></a></li>
-<li><a href="https://solve-info.techidaily.com/mastering-the-procurement-and-payments-journey-a-definitive-guide/"><u>Mastering the Procurement and Payments Journey: A Definitive Guide</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/mastering-video-thumbnail-creation-for-maximum-clicks/"><u>Mastering Video Thumbnail Creation for Maximum Clicks</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimized-with-the-help-of-cookiebot-enhanced-website-analytics/"><u>Optimized with the Help of Cookiebot: Enhanced Website Analytics</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/photographic-soundtracking-online-for-2024/"><u>Photographic Soundtracking Online for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/revolutionizing-document-automation-through-abbyy-vance-harnessing-power-of-computer-vision-and-large-language-models/"><u>Revolutionizing Document Automation Through ABBYY Vance - Harnessing Power of Computer Vision and Large Language Models</u></a></li>
-<li><a href="https://solve-info.techidaily.com/revolutionizing-public-sector-the-impact-of-artificer-intelligence-in-citizen-identification/"><u>Revolutionizing Public Sector: The Impact of Artificer Intelligence in Citizen Identification</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/testing-titans-in-depth-comparison-of-gopros-hero5b-and-session-for-2024/"><u>Testing Titans  In-Depth Comparison of GoPro's Hero5B & Session for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-xiaomi-redmi-note-12-proplus-5g-by-drfone-android/"><u>The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Xiaomi Redmi Note 12 Pro+ 5G</u></a></li>
-<li><a href="https://solve-info.techidaily.com/top-process-insight-narratives-from-abbyys-annual-digest/"><u>Top Process Insight Narratives From ABBYY's Annual Digest</u></a></li>
-<li><a href="https://solve-info.techidaily.com/top-questions-customers-have-on-ai-insights-and-explanations-for-your-peace-of-mind/"><u>Top Questions Customers Have on AI - Insights & Explanations for Your Peace of Mind</u></a></li>
-<li><a href="https://win11.techidaily.com/unlock-full-control-of-windows-key-using-these-tips/"><u>Unlock Full Control of Windows Key Using These Tips</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unlocking-marketing-potential-with-predictive-analytics-from-cookiebot-technology/"><u>Unlocking Marketing Potential with Predictive Analytics From Cookiebot Technology</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-capture-calls-on-iphone-2024/"><u>[New] Capture Calls on iPhone 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-mastering-game-capture-windows-11-edition/"><u>[Updated] 2024 Approved Mastering Game Capture Windows 11 Edition</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-xsplit-vs-obs-battle-ideal-tools-for-livestreaming-for-2024/"><u>[Updated] XSplit Vs. OBS Battle Ideal Tools for Livestreaming for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unlocking-smooth-playback-overcoming-booty-freezes/"><u>2024 Approved Unlocking Smooth Playback Overcoming Booty Freezes</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/detailed-protocols-for-filming-films-across-multiplatform-systems-for-2024/"><u>Detailed Protocols for Filming Films Across Multiplatform Systems for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/driven-by-cookiebot-enhancing-your-websites-visitor-tracking/"><u>Driven by Cookiebot: Enhancing Your Website's Visitor Tracking</u></a></li>
+<li><a href="https://solve-info.techidaily.com/elevate-user-experience-with-our-cookiebot-technology-solutions/"><u>Elevate User Experience with Our Cookiebot Technology Solutions</u></a></li>
+<li><a href="https://solve-info.techidaily.com/empower-your-site-analytics-through-innovative-tracker-solutions/"><u>Empower Your Site Analytics Through Innovative Tracker Solutions</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/envisioning-the-ideal-user-experience-in-windows-11/"><u>Envisioning the Ideal User Experience in Windows 11</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/from-jarring-edits-to-seamless-inshot-integration-for-2024/"><u>From Jarring Edits to Seamless Inshot Integration for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-streamlined-audiovisual-sequencing-in-audacity/"><u>In 2024, Streamlined Audiovisual Sequencing in Audacity</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-depth-analysis-of-best-no-fee-livestream-options-on-all-devices-for-2024/"><u>In-Depth Analysis of Best No-Fee LiveStream Options on All Devices for 2024</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

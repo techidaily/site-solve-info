@@ -1,18 +1,12 @@
 ---
 title: Enhanced Marketing Automation with Cookiebot Technology
-date: 2024-09-08T23:40:20.568Z
-updated: 2024-09-09T23:40:20.568Z
+date: 2024-09-08T20:48:24.616Z
+updated: 2024-09-14T16:00:24.219Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/678fddf7ae4566a62c5d9f963bb3c78467acea0fb81bb49e5d9d8fec87876404.jpeg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Enhanced Marketing Automation with Cookiebot Technology
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -25,12 +19,6 @@ thumbnail: https://thmb.techidaily.com/678fddf7ae4566a62c5d9f963bb3c78467acea0fb
 
 ![](https://static1.abbyy.com/abbyycommedia/34766/skills-for-transportation-cover2-848x444.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 サプライチェーンは、消費者や産業界の生命線であり、とりわけ混乱の影響を受けやすいものです。 特にこの2年間、私たちは混乱の影響を経験してきましたが、混乱に加えて、厳しい納期と低マージンを余儀なくされる熾烈な競争を経験してきました。 サプライチェーンは、調達から出荷、通関、支払いに至るまで、すべてのプロセスで文書を常に利用しており、文書を処理できるかどうかは、企業の回復力、適応力、競争力、利益に直接影響します。
 
 しかし、文書の扱いに対するアプローチ方法は時代遅れであり、多くの場合、従来の光学式文字認識（OCR）の手順にロボティクプロセスオートメーション（RPA）の回避策を加えたものに頼っています。 もし、もっと良い方法があるとしたら？
@@ -53,12 +41,6 @@ thumbnail: https://thmb.techidaily.com/678fddf7ae4566a62c5d9f963bb3c78467acea0fb
 
 もはや、ドキュメントスキルの運用メリットを得るために、大きなキャプチャープラットフォームやフレームワークは必要ありません。 事前学習済みのコンテナ化されたドキュメント「スキル」（データだけでなく、文書に対して必要なアクションを理解する、事前に学習されたアクション）を持つAIの助けを借りれば、サプライチェーンはついに一般的なボトルネックを取り除き、輸送・物流から買掛金（AP）の支払い処理まで、あらゆるレベルのビジネスオペレーションが依存する文書主導のプロセスをコントロールできるようになります。
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 急速な変化に対応して輸送・物流業務を最適化したいとお考えですか？
 
 当社にはそのためのスキルがあります。
@@ -66,11 +48,18 @@ thumbnail: https://thmb.techidaily.com/678fddf7ae4566a62c5d9f963bb3c78467acea0fb
 [ABBYY MarketplaceにアクセスするENG](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114263/17093" target="_top" id="2114263">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114263" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114263/17093" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## ABBYY Marketplaceのアプローチ方法
 
 [輸送・物流分野](https://tools.techidaily.com/abbyy/products/)では、スピードが顧客満足度と競争力の鍵となります。これこそが、まさに新しい[ABBYY Marketplace](https://tools.techidaily.com/abbyy/products/)の背景にある考え方です。これは、企業文書を処理および理解するための初のデジタルマーケットプレイスであり、コンテンツスキル、コネクター、およびアセットを豊富に提供します。 トップレベルの荷主や物流業者、そして多くのクラウドベースの企業が、数分ですぐに使用できる、使いやすく設定可能でプラグイン可能な当社のプラットフォームを使って、ビジネスユーザーとシチズンディベロッパーに対し業界最高レベルの文書およびコンテンツ処理を提供しています。
@@ -84,19 +73,14 @@ ABBYY VantageとMarketplaceには、ABBYYとABBYYパートナーが開発した�
 ![Reggie Twigg ABBYY](https://static4.abbyy.com/abbyycommedia/25636/02c-reggietwigg-99x99.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Reginald J. Twigg
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 
 シェア 
@@ -151,8 +135,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -162,36 +144,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-comedy-collection-a-1992-review-of-the-goofys-for-2024/"><u>[New] 'Comedy Collection'  A 1992 Review of The Goofys for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-mastery-in-making-your-instagrams-seamless/"><u>[New] 2024 Approved  Mastery in Making Your Instagrams Seamless</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-edge-your-way-to-success-instagrams-finest-border-applications-for-2024/"><u>[New] Edge Your Way to Success  Instagram's Finest Border Applications for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-free-to-use-the-top-10-mobile-live-streaming-apps-list/"><u>[New] Free to Use  The Top 10 Mobile Live Streaming Apps List</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-elevate-your-channel-ranking-with-these-11-seo-secrets/"><u>[Updated] In 2024, Elevate Your Channel Ranking with These 11 SEO Secrets</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-htc-vive-comfort-top-strategies-to-prevent-discomfort/"><u>2024 Approved  HTC Vive Comfort  Top Strategies to Prevent Discomfort</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-pushing-the-boundaries-in-depth-review-of-benq-sw320s-4k-display/"><u>2024 Approved  Pushing the Boundaries  In-Depth Review of BenQ SW320's 4K Display</u></a></li>
-<li><a href="https://solve-info.techidaily.com/ebook-by-abby/"><u>保険金要求手続き管理: 最適な効果的手法はどこで学べますか？ | eBook by ABBY</u></a></li>
-<li><a href="https://ai-voice.techidaily.com/best-celebrity-voice-generator-tools-to-transform-your-voice/"><u>Best Celebrity Voice Generator Tools to Transform Your Voice</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-user-experience-with-the-precision-of-cookiebot-technology-integration/"><u>Elevate User Experience with the Precision of Cookiebot Technology Integration</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-your-web-tracking-optimize-seo-using-the-power-of-cookiebot-technology/"><u>Elevate Your Web Tracking: Optimize SEO Using the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/empower-your-site-with-cookiebot-technology-advanced-analytics-and-targeting-made-simple/"><u>Empower Your Site with Cookiebot Technology: Advanced Analytics and Targeting Made Simple</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhance-online-engagement-with-cookiebot-technology/"><u>Enhance Online Engagement with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhance-your-website-visibility-the-power-of-cookiebot-integration/"><u>Enhance Your Website Visibility: The Power of Cookiebot Integration</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-user-tracking-with-the-power-of-cookiebot-technology/"><u>Enhanced User Tracking with the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-web-traffic-with-cookiebot-technology/"><u>Enhanced Web Traffic with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-efficiency-in-finance-the-power-of-hyperautomation-on-sap-cloud-platforms-by-abbyy/"><u>Enhancing Efficiency in Finance: The Power of Hyperautomation on SAP Cloud Platforms by ABBYY</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-employee-skills-with-sap-and-abbyy-insights-from-an-industry-pro/"><u>Enhancing Employee Skills with SAP & ABBYY: Insights From an Industry Pro</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-smartphone-cleanliness-leveraging-abbyys-bcr-tech-and-digital-notetaking-tools/"><u>Enhancing Smartphone Cleanliness: Leveraging ABBYY's BCR Tech & Digital Notetaking Tools</u></a></li>
-<li><a href="https://solve-info.techidaily.com/experienced-dev-leader-mihajlo-mulic-takes-the-helm-as-senior-software-pro-at-abbyy/"><u>Experienced Dev Leader: Mihajlo Mulic Takes the Helm as Senior Software Pro at ABBYY</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/exploring-the-features-of-netgears-outstanding-nighthawk-c7000-wireless-modem-a-review/"><u>Exploring the Features of Netgear's Outstanding Nighthawk C7000 Wireless Modem – A Review</u></a></li>
-<li><a href="https://solve-info.techidaily.com/harnessing-the-power-of-cookiebot-for-superior-site-personalization-and-growth/"><u>Harnessing the Power of Cookiebot for Superior Site Personalization and Growth</u></a></li>
-<li><a href="https://solve-info.techidaily.com/how-process-intelligence-leads-to-success-understanding-the-top-five-advantages/"><u>How Process Intelligence Leads to Success: Understanding the Top Five Advantages</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-the-role-of-visual-aids-in-pedagogy/"><u>In 2024, The Role of Visual Aids in Pedagogy</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-depth-analysis-cutzone-pro-review-unveiled/"><u>In-Depth Analysis  CutZone Pro Review Unveiled</u></a></li>
-<li><a href="https://solve-info.techidaily.com/integrating-compliance-protocols-with-exceptional-cx-strategies-in-banking-and-finance/"><u>Integrating Compliance Protocols with Exceptional CX Strategies in Banking & Finance</u></a></li>
-<li><a href="https://solve-info.techidaily.com/intelligent-docx-and-pdf-automation-with-quadrants-spark-2022-matrix-solution/"><u>Intelligent DOCX & PDF Automation with Quadrant's SPARK 2022 Matrix Solution</u></a></li>
-<li><a href="https://solve-info.techidaily.com/leveraging-ai-and-analytics-for-boosting-staff-participation-and-commitment/"><u>Leveraging AI and Analytics for Boosting Staff Participation and Commitment</u></a></li>
-<li><a href="https://solve-info.techidaily.com/navigating-financial-turbulence-essential-digital-tactics-for-banking-success-with-insights-from-abbyy-leaders/"><u>Navigating Financial Turbulence: Essential Digital Tactics for Banking Success with Insights From ABBYY Leaders</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimized-with-the-cutting-edge-of-traffic-management-the-cookiebot-solution/"><u>Optimized with the Cutting-Edge of Traffic Management: The Cookiebot Solution</u></a></li>
-<li><a href="https://network-issues.techidaily.com/solutions-for-quashing-lenovo-flashes/"><u>Solutions for Quashing Lenovo Flashes</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/unlocking-iphone-12-mini-passcode-without-a-computer-by-drfone-ios/"><u>Unlocking iPhone 12 mini Passcode without a Computer</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-acquire-no-cost-sounds-for-videos-and-podcasts/"><u>[New] Acquire No-Cost Sounds for Videos & Podcasts!</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-fortune-on-screen-achieving-youtube-earnings-unlinked-from-ads/"><u>[New] In 2024, Fortune on Screen Achieving YouTube Earnings Unlinked From Ads</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-a-critical-look-at-ustream-with-similar-sites/"><u>[Updated] A Critical Look at Ustream with Similar Sites</u></a></li>
+<li><a href="https://solve-info.techidaily.com/exploring-the-real-effects-of-covid-on-workers-one-in-four-considering-resignation-due-to-inefficient-corporate-procedures/"><u>Exploring the Real Effects of Covid on Workers: One in Four Considering Resignation Due to Inefficient Corporate Procedures</u></a></li>
+<li><a href="https://solve-info.techidaily.com/gartners-magic-quadrant-recognizes-abbyy-as-a-standout-named-leader-in-ocr-technology/"><u>Gartner's Magic Quadrant Recognizes ABBYY as a Standout Named Leader in OCR Technology</u></a></li>
+<li><a href="https://solve-info.techidaily.com/harnessing-idp-solutions-a-game-changer-in-modern-insurance-management/"><u>Harnessing IDP Solutions: A Game Changer in Modern Insurance Management</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-flash-dead-samsung-galaxy-a54-5g-safely-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Flash Dead Samsung Galaxy A54 5G Safely | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-all-must-knows-to-use-fake-gps-go-location-spoofer-on-vivo-y78plus-t1-edition-drfone-by-drfone-virtual-android/"><u>In 2024, All Must-Knows to Use Fake GPS GO Location Spoofer On Vivo Y78+ (T1) Edition | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-process-of-screen-sharing-tecno-spark-20c-to-pc-detailed-steps-drfone-by-drfone-android/"><u>In 2024, Process of Screen Sharing Tecno Spark 20C to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/mastering-your-setup-a-detailed-look-at-toms-pc-hardware-recommendations/"><u>Mastering Your Setup - A Detailed Look at Tom's PC Hardware Recommendations</u></a></li>
+<li><a href="https://solve-info.techidaily.com/multilingual-archive-protection-by-abbyy-finereader-securing-4000000plus-historical-documents-for-future-generations-at-the-national-library-of-latvia/"><u>Multilingual Archive Protection by ABBYY FineReader: Securing 4,000,000+ Historical Documents for Future Generations at the National Library of Latvia</u></a></li>
+<li><a href="https://solve-info.techidaily.com/optimized-with-automated-tracker-discover-the-power-of-cookiebot/"><u>Optimized with Automated Tracker: Discover the Power of Cookiebot</u></a></li>
+<li><a href="https://solve-info.techidaily.com/optimizing-real-time-data-on-top-platforms-watchos-vs-wear-os-and-achieving-a-seamless-60-fps-experience-expert-analysis-by-abbyy-gurus/"><u>Optimizing Real-Time Data on TOP Platforms: WatchOS Vs. Wear OS and Achieving a Seamless 60 FPS Experience - Expert Analysis by ABBYY Gurus</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/quick-kinemaster-techniques-for-memelore-for-2024/"><u>Quick KineMaster Techniques for Memelore for 2024</u></a></li>
 </ul></div>
+

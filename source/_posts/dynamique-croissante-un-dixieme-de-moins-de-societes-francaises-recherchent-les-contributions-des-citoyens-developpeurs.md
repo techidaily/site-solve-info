@@ -1,40 +1,22 @@
 ---
 title: "Dynamique Croissante : Un Dixième De Moins De Sociétés Françaises Recherchent Les Contributions Des 'Citoyens Développeurs'"
-date: 2024-09-08T23:40:19.602Z
-updated: 2024-09-09T23:40:19.602Z
+date: 2024-09-08T19:05:01.065Z
+updated: 2024-09-14T18:56:32.026Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7f38f48d6c1e2e7dd4ffc2cf3530de002749e2e66d038be493fc55f20cd91a70.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Dynamique Croissante : Un Dixième De Moins De Sociétés Françaises Recherchent Les Contributions Des 'Citoyens Développeurs'
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Selon ABBYY, moins d’1/3 des entreprises françaises font appel aux « Citizen Developers »
 
 08 juin 2021
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 * _98 % des entreprises ont rencontré des freins importants à leurs projets de transformation digitale. 7 décideurs sur 10 désignent comme cause la pandémie et le télétravail._
 * _1 entreprise sur 5 a complètement abandonné son projet de transformation digitale et 1 sur 5 n'a pas utilisé la technologie comme prévu ou a constaté qu'elle ne fonctionnait pas comme attendu._
 * __Les entreprises françaises s'appuient peu sur le « No / Low Code » dont l’adoption pourrait les aider à prospérer._
@@ -68,12 +50,6 @@ _Tableau : « Quelles technologies utilisez-vous dans le cadre de vos projets de
 
 ![Infographie - Étude sur la transformation digitale | ABBYY](https://static1.abbyy.com/abbyycommedia/33196/infographics-outlook-on-digital-transformation-fr.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115945/19272" target="_top" id="2115945">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115945" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115945/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Méthodologie** 
 
 Cette étude dressant l'état des lieux de la transformation digitale des entreprises a été menée par ABBYY en partenariat avec Sapio Research en avril-mai 2021 auprès de 1 220 décideurs informatiques appartenant à des entreprises de plus de 1 000 employés en France, au Royaume-Uni, en Allemagne, aux États-Unis et au Japon.
@@ -95,8 +71,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -106,45 +80,25 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-rewind-to-glory-with-top-5-pc-ps1-emulation-tools/"><u>[New] 2024 Approved  Rewind to Glory with Top 5 PC PS1 Emulation Tools</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-in-2024-precision-in-film-craft-advanced-kinemaster-strategies/"><u>[New] In 2024, Precision in Film Craft  Advanced Kinemaster Strategies</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/5-premier-free-tools-harnessing-ai-power-for-innovative-image-creation/"><u>5 Premier Free Tools Harnessing AI Power for Innovative Image Creation</u></a></li>
-<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-vivo-s18e-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Vivo S18e | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/auf-dem-weg-zur-konsolidierung-von-buchhaltungsprozessen-wie-abbyy-und-sap-rochlings-rechnungswesen-vereinen/"><u>Auf Dem Weg Zur Konsolidierung Von Buchhaltungsprozessen – Wie ABBYY Und SAP Röchlings Rechnungswesen Vereinen</u></a></li>
-<li><a href="https://solve-info.techidaily.com/automated-ad-targeting-powered-with-cutting-edge-cookiebot-technology/"><u>Automated Ad Targeting: Powered with Cutting-Edge Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/automated-with-cookiebot-streamlined-data-collection-and-analytics/"><u>Automated with Cookiebot: Streamlined Data Collection and Analytics</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/backdrop-beats-curating-cinematic-tunes/"><u>Backdrop Beats  Curating Cinematic Tunes</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-your-traffic-with-advanced-cookiebot-technology/"><u>Boost Your Traffic with Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/como-navegar-por-la-directriz-de-privacidad-y-uso-de-cookies-de-abbyy-tips-e-instrucciones-detalladas/"><u>Cómo Navegar Por La Directriz De Privacidad Y Uso De Cookies De Abbyy: Tips E Instrucciones Detalladas</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-campaigns-elevating-digital-engagement-and-analytics/"><u>Cookiebot-Driven Campaigns: Elevating Digital Engagement and Analytics</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-conversion-boost-your-site-with-smart-analytics/"><u>Cookiebot-Driven Conversion: Boost Your Site with Smart Analytics</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-solutions-enhance-your-sites-seo-and-user-experience/"><u>Cookiebot-Driven Solutions: Enhance Your Site's SEO and User Experience</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-solutions-enhancing-your-online-presence/"><u>Cookiebot-Driven Solutions: Enhancing Your Online Presence</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-success-enhancing-your-sites-visibility-and-conversions/"><u>Cookiebot-Driven Success: Enhancing Your Site's Visibility and Conversions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-enhanced-personalization-and-user-experience/"><u>Cookiebot-Driven: Enhanced Personalization and User Experience</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enabled-analytics-solutions-for-streamlined-user-experience-tracking/"><u>Cookiebot-Enabled Analytics Solutions for Streamlined User Experience Tracking</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enabled-personalization-enhancing-user-experience/"><u>Cookiebot-Enabled Personalization: Enhancing User Experience</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-fueled-automated-marketing-solutions/"><u>Cookiebot-Fueled Automated Marketing Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhancing-user-experience-and-tracking-success-on-your-website/"><u>Cookiebot: Enhancing User Experience & Tracking Success on Your Website</u></a></li>
-<li><a href="https://solve-info.techidaily.com/die-geheimnisse-der-abbyy-software-aufgedeckt-in-rotterdams-modernem-kunstmuseum/"><u>Die Geheimnisse Der ABBYY-Software Aufgedeckt in Rotterdams Modernem Kunstmuseum</u></a></li>
-<li><a href="https://solve-info.techidaily.com/drive-more-visitors-using-the-power-of-cookiebot/"><u>Drive More Visitors Using the Power of Cookiebot</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-document-digitization-with-next-level-technology-the-abbyy-flexicapture-cloud-upgrade/"><u>Elevate Document Digitization with Next-Level Technology: The ABBYY FlexiCapture Cloud Upgrade</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-user-experience-using-cookiebot-analytics-technology/"><u>Elevate User Experience Using Cookiebot Analytics Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhance-user-experience-and-analytics-via-the-advanced-cookiebot-integration-features/"><u>Enhance User Experience & Analytics via the Advanced Cookiebot Integration Features</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhance-your-web-analytics-using-the-cookiebot-platform/"><u>Enhance Your Web Analytics Using the Cookiebot Platform</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-conversion-rates-with-cookiebot-technology/"><u>Enhanced Conversion Rates with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-conversion-rates-with-our-cookiebot-driven-technology/"><u>Enhanced Conversion Rates with Our Cookiebot-Driven Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-conversion-rates-optimized-with-cookiebot-technology/"><u>Enhanced Conversion Rates: Optimized with Cookiebot Technology</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-best-low-lag-techniques-for-efficient-screen-snaps/"><u>In 2024, Best Low-Lag Techniques for Efficient Screen Snaps</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-breaking-down-the-three-stages-of-snapchat-calls-and-chats/"><u>In 2024, Breaking Down the Three Stages of Snapchat Calls and Chats</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-motorola-g24-power-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Motorola G24 Power? | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-premier-stop-motion-works-the-ultimate-15-selection/"><u>In 2024, Premier Stop-Motion Works  The Ultimate 15 Selection</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-rising-from-hobbyist-to-leading-graphic-expert/"><u>In 2024, Rising From Hobbyist to Leading Graphic Expert</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/precision-techniques-for-efficient-keying-processes/"><u>Precision Techniques for Efficient Keying Processes</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/rectifying-display-skew-issues/"><u>Rectifying Display Skew Issues</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/straightforward-strategies-for-iphones-screen-recording-for-2024/"><u>Straightforward Strategies for iPhone's Screen Recording for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-comprehensive-guide-to-digital-subtitle-enhancing-platforms-for-2024/"><u>The Comprehensive Guide to Digital Subtitle Enhancing Platforms for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/unlocking-archived-stories-from-facebook-a-digital-handbook-for-2024/"><u>Unlocking Archived Stories From Facebook  A Digital Handbook for 2024</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-vegas-or-premiere-choosing-the-best-video-editing-software-for-you/"><u>Updated 2024 Approved Vegas or Premiere? Choosing the Best Video Editing Software for You</u></a></li>
-<li><a href="https://techidaily.com/will-motorola-edge-2023-play-avchd-mts-files-by-aiseesoft-video-converter-play-mts-on-android/"><u>Will Motorola Edge 2023 play AVCHD mts files?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-how-to-securely-download-instagram-content-in-multiple-ways/"><u>[Updated] In 2024, How to Securely Download Instagram Content in Multiple Ways</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-unveiling-social-media-stars-your-niches-influencers-guide/"><u>[Updated] Unveiling Social Media Stars Your Niche’s Influencers Guide</u></a></li>
+<li><a href="https://solve-info.techidaily.com/abbyy-fur-den-schnellen-und-intelligenten-umgang-mit-belegdokumentation-expertise-in-der-dokumentenverarbeitungstechnologie/"><u>ABBYY Für Den Schnellen Und Intelligenten Umgang Mit Belegdokumentation - Expertise in Der Dokumentenverarbeitungstechnologie</u></a></li>
+<li><a href="https://solve-info.techidaily.com/abbyys-innovative-approach-to-building-a-secure-future-via-advanced-automated-solutions/"><u>ABBYY's Innovative Approach to Building a Secure Future via Advanced Automated Solutions</u></a></li>
+<li><a href="https://solve-info.techidaily.com/advanced-ocr-and-data-capture-using-abyby-flexicapture-for-laserfiche-powerful-tools-from-abbyy-solutions/"><u>Advanced OCR and Data Capture Using ABYBY FlexiCapture for Laserfiche - Powerful Tools From ABBYY Solutions</u></a></li>
+<li><a href="https://solve-info.techidaily.com/boost-traffic-with-cookiebot-the-ultimate-seo-and-marketing-solution-for-modern-websites/"><u>Boost Traffic With Cookiebot: The Ultimate SEO and Marketing Solution for Modern Websites</u></a></li>
+<li><a href="https://solve-info.techidaily.com/boost-user-experience-and-data-insights-with-our-cookiebot-integration-technology/"><u>Boost User Experience & Data Insights with Our Cookiebot Integration Technology</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-locate-inexpensive-deals-on-gopro-cameras-near-you/"><u>In 2024, Locate Inexpensive Deals on GoPro Cameras Near You</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/techniques-to-troubleshoot-silent-obs-sessions-for-2024/"><u>Techniques to Troubleshoot Silent OBS Sessions for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/the-complete-guide-to-oppo-find-x7-ultra-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>The Complete Guide to Oppo Find X7 Ultra FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-in-2024-videopad-video-editor-review-the-best-choice-for-beginners-and-pros-alike/"><u>Updated In 2024, Videopad Video Editor Review The Best Choice for Beginners and Pros Alike</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/virtual-vice-games-resembling-gta-v-experience/"><u>Virtual Vice Games Resembling GTA V Experience</u></a></li>
+<li><a href="https://solve-info.techidaily.com/visionary-executive-neil-murphy-guides-global-strategy-as-emea-channel-chief-and-svp-at-top-level-sales-position/"><u>Visionary Executive Neil Murphy Guides Global Strategy as EMEA Channel Chief and SVP at Top-Level Sales Position</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

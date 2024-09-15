@@ -1,46 +1,22 @@
 ---
 title: "Automated Ad Targeting: Powered with Cutting-Edge Cookiebot Technology"
-date: 2024-09-08T23:40:18.589Z
-updated: 2024-09-09T23:40:18.589Z
+date: 2024-09-10T16:26:50.683Z
+updated: 2024-09-14T17:13:08.335Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8e69d784c77bd739f0f1c851de79322ac9ec55e884e7ced93bcfd0b725d11a77.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Automated Ad Targeting: Powered with Cutting-Edge Cookiebot Technology
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Developers Creating Apps for Multiple Devices Use ABBYY Recognition Software for UI Test Automation and Robotic Quality Assurance
 
 April 19, 2016
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **_Popular Use Cases Include Video Game Design, Car Infotainment Systems_** 
 
 ABBYY, a leading provider of recognition, data capture and language-based text analytics technologies, today announced that developers of complex and interactive electronics systems are increasingly using ABBYY’s recognition software, FineReader® Engine, for User Interface [(UI) test automation](http://hubs.ly/H029ZtF0) and robotic quality assurance (QA) to reduce the effort and labor typically required to produce high-quality applications.
@@ -85,8 +61,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -96,55 +70,23 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-flawless-photography-with-picarts-background-erasure-tricks/"><u>[New] Flawless Photography with PicArt’s Background Erasure Tricks</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-how-to-change-facebook-cover-photo/"><u>[New] How to Change Facebook Cover Photo</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-the-future-of-advertising-on-youtube-shorts/"><u>[New] In 2024, The Future of Advertising on YouTube Shorts</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-proven-methods-for-effective-screen-capture-using-adobe-captive-toolkit-for-2024/"><u>[New] Proven Methods for Effective Screen Capture Using Adobe Captive Toolkit for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-capturing-screens-seamlessly-with-ezvid-video-maker/"><u>[Updated] Capturing Screens Seamlessly with Ezvid Video Maker</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-reduce-audio-noise-in-video-recording-free-and-paid-for-2024/"><u>[Updated] Reduce Audio Noise in Video Recording [Free and Paid] for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-the-ultimate-guide-to-earning-on-snapchat-for-2024/"><u>[Updated] The Ultimate Guide to Earning on Snapchat for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-ultimate-vivacut-edit-pro-comprehensive-review-and-tutorial-2024/"><u>[Updated] Ultimate VivaCut Edit Pro  Comprehensive Review & Tutorial 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-fur-den-schnellen-und-intelligenten-umgang-mit-belegdokumentation-expertise-in-der-dokumentenverarbeitungstechnologie/"><u>ABBYY Für Den Schnellen Und Intelligenten Umgang Mit Belegdokumentation - Expertise in Der Dokumentenverarbeitungstechnologie</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyys-innovative-approach-to-building-a-secure-future-via-advanced-automated-solutions/"><u>ABBYY's Innovative Approach to Building a Secure Future via Advanced Automated Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/advanced-ocr-and-data-capture-using-abyby-flexicapture-for-laserfiche-powerful-tools-from-abbyy-solutions/"><u>Advanced OCR and Data Capture Using ABYBY FlexiCapture for Laserfiche - Powerful Tools From ABBYY Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-traffic-with-cookiebot-the-ultimate-seo-and-marketing-solution-for-modern-websites/"><u>Boost Traffic With Cookiebot: The Ultimate SEO and Marketing Solution for Modern Websites</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-user-experience-and-data-insights-with-our-cookiebot-integration-technology/"><u>Boost User Experience & Data Insights with Our Cookiebot Integration Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-your-sites-performance-using-the-advanced-features-of-cookiebot/"><u>Boost Your Site's Performance Using the Advanced Features of Cookiebot</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enabled-enhance-your-site-with-smart-data-tracking-solutions/"><u>Cookiebot-Enabled: Enhance Your Site with Smart Data Tracking Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhance-your-application-with-ai-ocr-tech-join-the-abbyy-expert-talk/"><u>Enhance Your Application with AI OCR Tech: Join the ABBYY Expert Talk</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/freshly-updated-zexmte-adapter-driver-software-for-microsoft-windows-platforms/"><u>Freshly Updated Zexmte Adapter Driver Software for Microsoft Windows Platforms</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-itel-a60-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your Itel A60 FRP Locks</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/get-the-newest-upgrade-for-your-dymo-labelwriter-4xl-printer-system/"><u>Get the Newest Upgrade for Your DYMO LabelWriter 4XL Printer System</u></a></li>
-<li><a href="https://solve-info.techidaily.com/how-abbyys-instantaneous-text-digitization-propels-rapid-advancements-in-the-digital-realm/"><u>How ABBYY’s Instantaneous Text Digitization Propels Rapid Advancements in the Digital Realm</u></a></li>
-<li><a href="https://solve-info.techidaily.com/how-covid-has-changed-employees-perspectives-a-staggering-25-contemplating-job-change-due-to-flawed-business-operations/"><u>How COVID Has Changed Employees' Perspectives: A Staggering 25%% Contemplating Job Change Due to Flawed Business Operations</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-fix-iphone-13-unavailable-issue-with-ease-by-drfone-ios/"><u>How To Fix iPhone 13 Unavailable Issue With Ease</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-apple-iphone-se-to-roku-drfone-by-drfone-ios/"><u>How to Mirror Apple iPhone SE to Roku? | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-vivo-s17e-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Vivo S17e to iPhone (13/14/15) | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-7-ways-to-unlock-a-locked-realme-note-50-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Realme Note 50 Phone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-best-recording-equipment-for-creating-youtube-masterpieces/"><u>In 2024, Best Recording Equipment  For Creating YouTube Masterpieces</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-mastering-color-palettes-applying-theories-effectively/"><u>In 2024, Mastering Color Palettes  Applying Theories Effectively</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-optimizing-video-playback-for-engaged-audiences/"><u>In 2024, Optimizing Video Playback for Engaged Audiences</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-still-using-pattern-locks-with-vivo-y36i-tips-tricks-and-helpful-advice-by-drfone-android/"><u>In 2024, Still Using Pattern Locks with Vivo Y36i? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-streamlining-social-media-posts-with-srt-file-integration-tips/"><u>[New] 2024 Approved Streamlining Social Media Posts with SRT File Integration Tips</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-nvidia-quadro-drivers-for-windows-11-latest-direct-device-control-dch-versions/"><u>Download Nvidia Quadro Drivers for Windows 11: Latest Direct Device Control (DCH) Versions</u></a></li>
+<li><a href="https://win-dash.techidaily.com/hp-elitebook-8460p-drivers-downloaded-complete-guide-and-updates-for-windows-users/"><u>HP EliteBook 8460P Drivers Downloaded - Complete Guide and Updates for Windows Users</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-artisans-approach-expert-color-alteration-tactics/"><u>In 2024, The Artisan's Approach Expert Color Alteration Tactics</u></a></li>
 <li><a href="https://solve-info.techidaily.com/iphone-app-for-seamless-document-digitalization-advanced-ocr-scan-and-pdfjpg-integration-made-easy/"><u>IPhone App for Seamless Document Digitalization: Advanced OCR Scan and PDF/JPG Integration Made Easy!</u></a></li>
 <li><a href="https://solve-info.techidaily.com/iphone-scanning-app-convert-documents-and-images-into-pdf-using-ocr-technology/"><u>IPhone Scanning App: Convert Documents & Images Into PDF Using OCR Technology</u></a></li>
 <li><a href="https://solve-info.techidaily.com/meinungsforschungsanalyse-mit-abbyy-wie-connexions-zur-optimierung-seiner-methoden-beitragt/"><u>Meinungsforschungsanalyse Mit ABBYY: Wie Connexions Zur Optimierung Seiner Methoden Beiträgt</u></a></li>
-<li><a href="https://common-error.techidaily.com/1723205547961-miracast-troubles-beat-the-unsupported-receiving-device-error-this-year/"><u>Miracast Troubles? Beat the 'Unsupported Receiving Device' Error This Year</u></a></li>
 <li><a href="https://solve-info.techidaily.com/optimisation-des-processus-rpa-grace-a-une-analyse-avancee-strategies-defficacite-avec-abbyy/"><u>Optimisation Des Processus RPA Grâce À Une Analyse Avancée : Stratégies D'efficacité Avec ABBYY</u></a></li>
 <li><a href="https://solve-info.techidaily.com/optimisez-votre-strategie-logistique-guide-de-la-liste-de-controle-pour-le-transports/"><u>Optimisez Votre Stratégie Logistique: Guide De La Liste De Contrôle Pour Le Transports</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimized-through-next-level-advertising-tools-provided-by-cookiebot/"><u>Optimized Through Next-Level Advertising Tools Provided by Cookiebot</u></a></li>
-<li><a href="https://program-issues.techidaily.com/overcoming-the-destiny-2-centipede-glitch-solution-found/"><u>Overcoming the Destiny 2 Centipede Glitch - Solution Found</u></a></li>
-<li><a href="https://solve-info.techidaily.com/photography-tips-and-task-management-secrets-revealed-on-abbyy-blog/"><u>Photography Tips & Task Management Secrets Revealed on ABBYY Blog</u></a></li>
-<li><a href="https://solve-info.techidaily.com/pourquoi-utiliser-le-mining-processeux-exploration-des-avantages-et-cas-dusage/"><u>Pourquoi Utiliser Le Mining Processeux? Exploration Des Avantages Et Cas D'Usage</u></a></li>
-<li><a href="https://solve-info.techidaily.com/revolutionize-quick-cashflow-with-abbyys-mobile-ocr-sdk-for-instantaneous-loan-approvals/"><u>Revolutionize Quick Cashflow with ABBYY's Mobile OCR SDK for Instantaneous Loan Approvals!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/revolutionize-your-operations-the-power-of-digital-replicas-and-simulated-processes-for-business-advancement/"><u>Revolutionize Your Operations: The Power of Digital Replicas and Simulated Processes for Business Advancement</u></a></li>
-<li><a href="https://solve-info.techidaily.com/scott-opitz-transitions-to-key-leadership-roles-as-cto-and-cpo-at-dabbyy/"><u>Scott Opitz Transitions to Key Leadership Roles as CTO and CPO at D'Abbyy</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solving-the-driverpowerstatefailure-a-step-by-step-guide/"><u>Solving the DRIVER_POWER_STATE_FAILURE: A Step-by-Step Guide</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/the-straightforward-guide-to-photo-uploads-on-instagram/"><u>The Straightforward Guide to Photo Uploads on Instagram</u></a></li>
-<li><a href="https://solve-info.techidaily.com/transform-your-iphone-photos-into-searchable-text-files-using-finereaders-powerful-ocr-technology/"><u>Transform Your iPhone Photos Into Searchable Text Files Using FineReader's Powerful OCR Technology</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/troubleshooting-and-resolving-mobile-call-problems-in-android-devices/"><u>Troubleshooting and Resolving Mobile Call Problems in Android Devices</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unleash-potential-with-smart-cookie-technology-discover-your-sites-secret-weapon/"><u>Unleash Potential with Smart Cookie Technology: Discover Your Site's Secret Weapon!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unleash-the-potential-of-clever-automation-this-september-join-abbyys-enlightening-journey/"><u>Unleash the Potential of Clever Automation This September – Join ABBYY's Enlightening Journey</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unlocking-the-hidden-potential-in-your-supply-chain-dont-miss-out-on-this-key-advantage/"><u>Unlocking the Hidden Potential in Your Supply Chain: Don't Miss Out on This Key Advantage</u></a></li>
-<li><a href="https://solve-info.techidaily.com/utilizing-cookiebot-technology-for-effective-user-tracking-and-personalization/"><u>Utilizing Cookiebot Technology for Effective User Tracking and Personalization</u></a></li>
-<li><a href="https://solve-info.techidaily.com/visionary-executive-neil-murphy-guides-global-strategy-as-emea-channel-chief-and-svp-at-top-level-sales-position/"><u>Visionary Executive Neil Murphy Guides Global Strategy as EMEA Channel Chief and SVP at Top-Level Sales Position</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/troubleshooting-tips-for-dealing-with-missing-or-non-existent-msstdfmtdll-file-errors/"><u>Troubleshooting Tips for Dealing with Missing or Non-Existent Msstdfmt.dll File Errors</u></a></li>
+<li><a href="https://change-location.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-vivo-y17s-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Vivo Y17s | Dr.fone</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

@@ -1,46 +1,22 @@
 ---
 title: "Boost Your Site with Automated Personalization: The Cookiebot Advantage"
-date: 2024-09-08T23:40:19.375Z
-updated: 2024-09-09T23:40:19.375Z
+date: 2024-09-08T19:16:09.059Z
+updated: 2024-09-14T20:02:15.913Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/29cfc21c1254cb70322b91195c7081ab1c044155fd0a604dc9fcf1b208976460.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Boost Your Site with Automated Personalization: The Cookiebot Advantage
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY社、世界有数のアナリスト企業NelsonHall社の 「Process Discovery & Mining NEAT Assessment 2021」でリーダーの評価を獲得
 
 12月16日, 2021
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ドキュメントデータとビジネスプロセスを完全に理解することで真のデジタルトランスフォーメーション（DX）を実現するABBYY社（本社：米国ノースカロライナ州、日本法人ABBYYジャパン株式会社、本社：神奈川県横浜市、代表取締役：小原洋）は、世界有数のアナリスト企業であるNelsonHall社の「Process Discovery & Mining NEAT Assessment 2021（2021年のプロセスディスカバリーとプロセスマイニングのNEATベンダー評価）」においてリーダーの評価を獲得したことを発表しました。デジタルオペレーションの変革を専門とするNelsonHall社は、戦略的ソーシングマネージャーが、多様な基準や事業状況でベンダーのパフォーマンスを評価し、プロセスマイニングの具体的な能力、デスクトッププロセス検出、プロセス変革を計画および推進する能力において最も優れたベンダーを見極められるようNEAT評価ツールを作成しています。
 
 ABBYY社のCMOを務めるScott Opitzは、次のように述べています。
@@ -51,12 +27,6 @@ _ABBYY社のCMOを務めるScott Opitzは、次のように述べています_
 
 _![](https://static1.abbyy.com/abbyycommedia/34891/pdm-neat-accelerate-process-change-final.png?width=848&height=848)_
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ABBYY社は、将来的な顧客の要件を満たすことができる点と、すぐに利益をもたらす能力の点で比較評価され、業界でトップグループに位置づけられました。主な評価ポイントは、提供する製品の成熟度、提供能力、顧客が得られる利益、顧客とのパートナーシップ、革新を進めるメカニズム、契約期間を通じて顧客のビジネスをどの程度サポートしているのかなどが挙げられています。
 
 「ABBYY社は、ネイティブのプロセスマイニングとタスクマイニングの機能を備え、2つの機能を緊密に統合した非常に希少なプラットフォームを提供しています。ユーザーは360度全方位からの正確なデータ把握によって複数のレベルでビジネスプロセスを理解し、業務変革を計画することができます。ABBYY社がリーダーに位置付けられている理由は、これらの機能と同社の業務変革支援に向けた投資が大きな要因です」
@@ -93,8 +63,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -104,56 +72,28 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-harnessing-the-power-of-hashtags-to-amplify-your-igtv-content/"><u>[New] 2024 Approved  Harnessing the Power of Hashtags to Amplify Your IGTV Content</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-prime-asmr-channels-for-auditory-delight/"><u>[New] 2024 Approved  Prime ASMR Channels for Auditory Delight</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-expert-audio-adjustments-for-youtube-content-makers-for-2024/"><u>[New] Expert Audio Adjustments for YouTube Content Makers for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-optimizing-online-identity-through-yt-profile-refinement/"><u>[New] In 2024, Optimizing Online Identity Through YT Profile Refinement</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-10-ultimate-high-res-4k-mirrorless-cams/"><u>[Updated] 10 Ultimate High-Res 4K Mirrorless Cams</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-action-cams-duel-black-hero5-against-sj7/"><u>[Updated] Action Cams Duel  Black Hero5 Against SJ7</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-must-have-devices-for-exploration-videos/"><u>[Updated] Must-Have Devices for Exploration Videos</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-premium-animated-design-kits/"><u>[Updated] Premium Animated Design Kits</u></a></li>
-<li><a href="https://some-tips.techidaily.com/updated-unlocking-zooms-potential-learn-how-to-use-video-filters/"><u>[Updated] Unlocking Zoom's Potential  Learn How to Use Video Filters</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-implementing-gradual-audio-diminishment-in-lumafusion/"><u>2024 Approved  Implementing Gradual Audio Diminishment in Lumafusion</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-unrivaled-5-non-twitter-communities-online/"><u>2024 Approved  Unrivaled 5 Non-Twitter Communities Online</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/6-proven-ways-to-unlock-poco-c50-phone-when-you-forget-the-password-by-drfone-android/"><u>6 Proven Ways to Unlock Poco C50 Phone When You Forget the Password</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-dominates-the-everest-groups-idp-peak-matrix-ranking/"><u>ABBYY Dominates the Everest Group's IDP PEAK Matrix Ranking</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-erweitert-internationaler-eintritt-zu-kunstlicher-intelligenz-tools-in-den-letzten-quartalen-von-2018/"><u>ABBYY Erweitert Internationaler Eintritt Zu Künstlicher Intelligenz Tools in Den Letzten Quartalen Von 2018</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-flexicapture-innovatives-losungsangebot-fur-die-prufungsabwicklung-der-uzh/"><u>ABBYY FlexiCapture: Innovatives Lösungsangebot Für Die Prüfungsabwicklung Der UZH</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-news-and-updates-with-timelinepi/"><u>ABBYY News and Updates with TimelinePI</u></a></li>
-<li><a href="https://windows11.techidaily.com/addressing-parsing-misstep-code-0xc00ce556/"><u>Addressing Parsing Misstep: Code 0xC00CE556</u></a></li>
-<li><a href="https://extra-information.techidaily.com/androids-premier-gaming-application-decoding-the-kinemaster-experience/"><u>Android's Premier Gaming Application - Decoding the KineMaster Experience</u></a></li>
-<li><a href="https://solve-info.techidaily.com/beyond-horizons-in-document-processing-discover-how-abvs-innovation-sets-new-standards/"><u>Beyond Horizons in Document Processing: Discover How ABV's Innovation Sets New Standards</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-user-engagement-with-our-advanced-cookiebot-integration-solutions/"><u>Boost User Engagement with Our Advanced Cookiebot Integration Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-your-websites-traffic-with-cookiebot-technology-power/"><u>Boost Your Website's Traffic with Cookiebot Technology Power</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boosting-robotic-automation-through-an-integrated-business-process-insight-platform/"><u>Boosting Robotic Automation Through an Integrated Business Process Insight Platform</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boosting-visitor-interaction-with-advanced-cookiebot-technology-solutions/"><u>Boosting Visitor Interaction with Advanced Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://howto.techidaily.com/bricked-your-tecno-phantom-v-flip-heres-a-full-solution-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Bricked Your Tecno Phantom V Flip? Heres A Full Solution | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/comment-abbeyvision-domine-le-marche-avec-son-ocr-en-faveur-des-connaisseurs-du-monde-du-vin-decouverte-exclusive-de-abbyy-actualites/"><u>Comment AbbeyVision Domine Le Marché Avec Son OCR en Faveur Des Connaisseurs Du Monde Du Vin : Découverte Exclusive De ABBYY Actualités</u></a></li>
-<li><a href="https://solve-info.techidaily.com/consistent-financial-excellence-abbyy-records-over-ten-percent-revenue-jump-for-third-year-running/"><u>Consistent Financial Excellence: ABBYY Records Over-Ten Percent Revenue Jump for Third Year Running</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enabled-solutions-optimize-your-website-effortlessly/"><u>Cookiebot-Enabled Solutions: Optimize Your Website Effortlessly</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enabled-optimize-your-site-with-our-powerful-tracking-solutions/"><u>Cookiebot-Enabled: Optimize Your Site with Our Powerful Tracking Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enabled-optimize-your-websites-performance-and-security/"><u>Cookiebot-Enabled: Optimize Your Website's Performance and Security</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-optimized-experience-tailored-by-advanced-tracking/"><u>Cookiebot-Enhanced: Optimized Experience Tailored By Advanced Tracking</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-optimized-user-tracking-and-personalization/"><u>Cookiebot-Enhanced: Optimized User Tracking & Personalization</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-fueled-solutions-for-enhanced-online-marketing/"><u>Cookiebot-Fueled Solutions for Enhanced Online Marketing</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cutting-delivery-times-for-global-top-tier-brewery-karlstejn-group-with-advanced-abbyy-systems/"><u>Cutting Delivery Times for Global Top-Tier Brewery Karlstejn Group with Advanced ABBYY Systems</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/dissecting-the-technical-aspects-of-vivavideo/"><u>Dissecting the Technical Aspects of VivaVideo</u></a></li>
-<li><a href="https://solve-info.techidaily.com/download-the-latest-update-of-abbyy-textgrabber-for-ios-with-instantaneous-language-conversion-capability/"><u>Download the Latest Update of ABBYY TextGrabber for iOS with Instantaneous Language Conversion Capability!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/driven-by-cookiebot-enhancing-your-websites-visitor-tracking/"><u>Driven by Cookiebot: Enhancing Your Website's Visitor Tracking</u></a></li>
-<li><a href="https://techtrends.techidaily.com/effortless-steps-to-restore-accidentally-deleted-documents-in-windows-11/"><u>Effortless Steps to Restore Accidentally Deleted Documents in Windows 11</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-user-experience-with-our-cookiebot-technology-solutions/"><u>Elevate User Experience with Our Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-your-business-with-abbyy-flexicapture-for-a-digitally-advanced-future/"><u>Elevate Your Business with ABBYY FlexiCapture for a Digitally Advanced Future</u></a></li>
-<li><a href="https://solve-info.techidaily.com/experience-tailored-navigation-with-cookiebot-technology/"><u>Experience Tailored Navigation with Cookiebot Technology</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/get-the-latest-amd-radeon-display-adapters-drivers-for-your-windows-7-pc/"><u>Get the Latest AMD Radeon Display Adapters Drivers for Your Windows 7 PC</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-tecno-pova-5-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Tecno Pova 5 Find My Friends No Location Found? | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-remove-an-airtag-from-your-apple-id-account-on-iphone-xr-by-drfone-ios/"><u>How to Remove an AirTag from Your Apple ID Account On iPhone XR?</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-from-script-to-screen-cutting-edge-video-editing-for-youtubers/"><u>In 2024, From Script to Screen  Cutting-Edge Video Editing for YouTubers</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/latest-mpow-bluetooth-driver-software-for-windows-systems/"><u>Latest MPOW Bluetooth Driver Software for Windows Systems</u></a></li>
-<li><a href="https://solve-info.techidaily.com/leveraging-cookiebot-solutions-boosting-online-traffic-and-conversion-rates/"><u>Leveraging Cookiebot Solutions: Boosting Online Traffic & Conversion Rates</u></a></li>
-<li><a href="https://solve-info.techidaily.com/natasha-mann-leading-visionary-on-the-abbyy-board/"><u>Natasha Mann - Leading Visionary on the ABBYY Board</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/no-cost-screen-record-the-ultimate-win11-tools-1-5-listing-for-2024/"><u>No-Cost Screen Record  The Ultimate Win11 Tools #1-5 Listing for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimized-with-the-help-of-cookiebot-technology/"><u>Optimized with the Help of Cookiebot Technology</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/premium-lineup-essential-bd-software-free-to-pay-on-windows-macos-for-2024/"><u>Premium Lineup  Essential BD Software (Free to Pay) on Windows, macOS for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/the-spectrum-of-ai-innovation-and-associated-risks/"><u>The Spectrum of AI Innovation & Associated Risks</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-timeline-5er/"><u>タスクマイニング機能付きのABBYY Timeline 5でネットワーク分析:人間関�er、プロセス、コンテンツ</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-charting-a-course-through-websites-of-youtube-affiliates/"><u>[New] 2024 Approved Charting a Course Through Websites of YouTube Affiliates</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-top-4-proven-tactics-for-exceptional-loop-videos-on-ig/"><u>[New] 2024 Approved Top 4 Proven Tactics for Exceptional Loop Videos on IG</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-top-tips-for-maximizing-iphone-xs-cinematic-shots/"><u>[New] In 2024, Top Tips for Maximizing iPhone X's Cinematic Shots</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-angled-artistry-elevating-youtube-video-editing-skills-for-2024/"><u>[Updated] Angled Artistry Elevating YouTube Video Editing Skills for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-i-recover-permanently-deleted-photos-from-samsung-galaxy-f54-5g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>Can I recover permanently deleted photos from Samsung Galaxy F54 5G</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhanced-user-tracking-with-the-power-of-cookiebot-technology/"><u>Enhanced User Tracking with the Power of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhanced-web-traffic-with-cookiebot-technology/"><u>Enhanced Web Traffic with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhancing-efficiency-in-finance-the-power-of-hyperautomation-on-sap-cloud-platforms-by-abbyy/"><u>Enhancing Efficiency in Finance: The Power of Hyperautomation on SAP Cloud Platforms by ABBYY</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhancing-employee-skills-with-sap-and-abbyy-insights-from-an-industry-pro/"><u>Enhancing Employee Skills with SAP & ABBYY: Insights From an Industry Pro</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhancing-smartphone-cleanliness-leveraging-abbyys-bcr-tech-and-digital-notetaking-tools/"><u>Enhancing Smartphone Cleanliness: Leveraging ABBYY's BCR Tech & Digital Notetaking Tools</u></a></li>
+<li><a href="https://solve-info.techidaily.com/experienced-dev-leader-mihajlo-mulic-takes-the-helm-as-senior-software-pro-at-abbyy/"><u>Experienced Dev Leader: Mihajlo Mulic Takes the Helm as Senior Software Pro at ABBYY</u></a></li>
+<li><a href="https://solve-info.techidaily.com/harnessing-the-power-of-cookiebot-for-superior-site-personalization-and-growth/"><u>Harnessing the Power of Cookiebot for Superior Site Personalization and Growth</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-xiaomi-14-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On Xiaomi 14 Ultra | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-journey-to-blockchain-stardom-discover-the-top-7-generator-tools/"><u>In 2024, Journey to Blockchain Stardom - Discover the Top 7 Generator Tools</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-sculpting-your-audio-experience-in-videos-with-ease-and-precision/"><u>New In 2024, Sculpting Your Audio Experience in Videos with Ease and Precision</u></a></li>
+<li><a href="https://win-dash.techidaily.com/the-fast-track-to-updating-your-nvidia-geforce-gtx-1660-gpu-driver/"><u>The Fast Track to Updating Your Nvidia GeForce GTX 1660 GPU Driver</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

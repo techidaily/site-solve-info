@@ -1,46 +1,22 @@
 ---
 title: アバビイ調査で優勝者を決める：エベレスト・コンソーシアムのPEAK Matrixリーダー指数2024 - IDP
-date: 2024-09-08T23:40:16.733Z
-updated: 2024-09-09T23:40:16.733Z
+date: 2024-09-13T22:15:53.094Z
+updated: 2024-09-14T18:04:58.499Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ac7b7d7eb1b61e878d4715837135fe97081096b41d9601e6ca5eb36f744ec4b7.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## アバビイ調査で優勝者を決める：エベレスト・コンソーシアムのPEAK Matrixリーダー指数2024 - IDP
 
 レポート 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 6年連続6回目： エベレストグループ、PEAK Matrix®評価でABBYYをインテリジェント文書処理（IDP）製品のリーダーに選出
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115913/19272" target="_top" id="2115913">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115913" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115913/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### ABBYYは、エベレストグループの2024年度PEAK Matrix®評価で再びインテリジェント文書処理（IDP）製品 のリーダーに選ばれました。 
 
 ![PEAK_Matrix_2024_-_Intelligent_Document_Processing__IDP__-_ABBYY](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/resource-center/content-images/peak_matrix_2024_-_intelligent_document_processing__idp__-_abbyy.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 あらゆるインテリジェントオートメーションプラットフォームに統合可能な、業界唯一のローコード/ノーコードIDPプラットフォームであるABBYY Vantageを擁するABBYYは、その卓越したビジョンと能力、さらに市場への影響力が高く評価されています。Vantageは、ABBYY Marketplaceで提供される、ものの数分で使い始めることのできる事前構築済みのAIモデルを使用して、定型および非定型文書を処理する機能を備えています。 
 
 エベレストグループのIDP PEAK Matrix®評価は、AI、コグニティブ機能、生成AIを活用し、ビジネス文書に含まれるデータから最大の価値と意味を抽出する最高のIDPソリューションを見つけるために、世界中の組織から信頼されています。評価におけるリーダーは、特に業界特有のユースケースや文書タイプ用の、事前構築モデルやOOTBパッケージソリューションの拡充など、IDP機能への継続的な投資と革新を特徴としています。 
@@ -51,12 +27,6 @@ ABBYYは、エベレストグループのインテリジェント文書処理（
 
 _**Vaibhav Bansal, Vice President, Everest Group**_
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYYにご関心をお寄せいただき、誠にありがとうございます。 
 
 [レポートを読む](https://global.abbyy.com/hubfs/documents/content/report-everest-group-idp-products-peak-matrix-assessment-2024-en.pdf "Read the report") 
@@ -119,8 +89,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -130,37 +98,32 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-how-to-retain-your-instagram-captures-on-iphone-for-2024/"><u>[New] How to Retain Your Instagram Captures on iPhone for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-pixelated-prowess-celebrating-the-best-shooter-classics/"><u>[New] In 2024, Pixelated Prowess  Celebrating the Best Shooter Classics</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-todays-drones-tomorrows-landscapes-an-overview/"><u>[New] Today’s Drones, Tomorrow's Landscapes  An Overview</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/5-ways-to-track-nokia-xr21-without-app-drfone-by-drfone-virtual-android/"><u>5 Ways to Track Nokia XR21 without App | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/advanced-ocr-and-data-capture-using-abyby-flexicapture-for-laserfiche-powerful-tools-from-abbyy-solutions/"><u>Advanced OCR and Data Capture Using ABYBY FlexiCapture for Laserfiche - Powerful Tools From ABBYY Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-traffic-with-cookiebot-the-ultimate-seo-and-marketing-solution-for-modern-websites/"><u>Boost Traffic With Cookiebot: The Ultimate SEO and Marketing Solution for Modern Websites</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-user-experience-and-data-insights-with-our-cookiebot-integration-technology/"><u>Boost User Experience & Data Insights with Our Cookiebot Integration Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-your-sites-performance-using-the-advanced-features-of-cookiebot/"><u>Boost Your Site's Performance Using the Advanced Features of Cookiebot</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enabled-enhance-your-site-with-smart-data-tracking-solutions/"><u>Cookiebot-Enabled: Enhance Your Site with Smart Data Tracking Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhance-your-application-with-ai-ocr-tech-join-the-abbyy-expert-talk/"><u>Enhance Your Application with AI OCR Tech: Join the ABBYY Expert Talk</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-marketing-with-the-power-of-cookiebot-technology/"><u>Enhanced Marketing with the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-site-engagement-through-cookiebots-smart-visitor-tracking-solutions/"><u>Enhanced Site Engagement Through Cookiebot's Smart Visitor Tracking Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-user-experience-with-advanced-traffic-analysis-technology/"><u>Enhanced User Experience with Advanced Traffic Analysis Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/experience-seamless-conversion-with-our-cookiebot-technology-integration/"><u>Experience Seamless Conversion with Our Cookiebot Technology Integration</u></a></li>
-<li><a href="https://solve-info.techidaily.com/exploring-the-real-effects-of-covid-on-workers-one-in-four-considering-resignation-due-to-inefficient-corporate-procedures/"><u>Exploring the Real Effects of Covid on Workers: One in Four Considering Resignation Due to Inefficient Corporate Procedures</u></a></li>
-<li><a href="https://fake-location.techidaily.com/full-guide-to-fix-itoolab-anygo-not-working-on-nokia-c32-drfone-by-drfone-virtual-android/"><u>Full Guide to Fix iToolab AnyGO Not Working On Nokia C32 | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/gartners-magic-quadrant-recognizes-abbyy-as-a-standout-named-leader-in-ocr-technology/"><u>Gartner's Magic Quadrant Recognizes ABBYY as a Standout Named Leader in OCR Technology</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/get-started-with-video-editing-a-microsoft-tutorial-for-windows-10-8-and-7/"><u>Get Started with Video Editing A Microsoft Tutorial for Windows 10, 8, and 7</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-honor-90-pro-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Honor 90 Pro | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/harnessing-idp-solutions-a-game-changer-in-modern-insurance-management/"><u>Harnessing IDP Solutions: A Game Changer in Modern Insurance Management</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Lava Yuva 2 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-xiaomi-redmi-k70e-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Xiaomi Redmi K70E? | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-open-your-iphone-xs-max-without-a-home-button-drfone-by-drfone-ios/"><u>How To Open Your iPhone XS Max Without a Home Button | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-realme-gt-5-get-deleted-photos-back-with-ease-and-safety-by-fonelab-android-recover-photos/"><u>How to Realme GT 5 Get Deleted photos Back with Ease and Safety?</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-10-best-fake-gps-location-spoofers-for-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, 10 Best Fake GPS Location Spoofers for Honor Magic5 Ultimate | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-motorola-g54-5g-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Motorola G54 5G ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
-<li><a href="https://solve-info.techidaily.com/multilingual-archive-protection-by-abbyy-finereader-securing-4000000plus-historical-documents-for-future-generations-at-the-national-library-of-latvia/"><u>Multilingual Archive Protection by ABBYY FineReader: Securing 4,000,000+ Historical Documents for Future Generations at the National Library of Latvia</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimized-with-automated-tracker-discover-the-power-of-cookiebot/"><u>Optimized with Automated Tracker: Discover the Power of Cookiebot</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimizing-real-time-data-on-top-platforms-watchos-vs-wear-os-and-achieving-a-seamless-60-fps-experience-expert-analysis-by-abbyy-gurus/"><u>Optimizing Real-Time Data on TOP Platforms: WatchOS Vs. Wear OS and Achieving a Seamless 60 FPS Experience - Expert Analysis by ABBYY Gurus</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-elite-selection-of-singing-machines-dominating-2024-markets/"><u>The Elite Selection of Singing Machines Dominating 2024 Markets</u></a></li>
-<li><a href="https://solve-info.techidaily.com/top-5-essentials-for-effective-business-process-analytics-now/"><u>Top 5 Essentials for Effective Business Process Analytics Now</u></a></li>
-<li><a href="https://solve-info.techidaily.com/understanding-data-shifts-transforming-from-etl-to-elt-techniques-insights-and-importance-with-abbyy/"><u>Understanding Data Shifts: Transforming From ETL to ELT Techniques - Insights and Importance with ABBYY</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unlocking-new-ocr-features-with-abbyy-finereader-engine-update-to-version-12/"><u>Unlocking New OCR Features with ABBYY FineReader Engine Update to Version 12</u></a></li>
+<li><a href="https://network-issues.techidaily.com/display-modification-windows-11-oversized/"><u>[DISPLAY MODIFICATION] Windows 11 Oversized</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-ending-echoes-reconnecting-audio-to-obs/"><u>[New] 2024 Approved Ending Echoes Reconnecting Audio to OBS</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-infographic-mind-numbing-youtube-factsfigures-and-statistics-for-2024/"><u>[Updated] Infographic - Mind Numbing YouTube Facts,Figures and Statistics for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/abbyy-news-and-updates-with-timelinepi/"><u>ABBYY News and Updates with TimelinePI</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/better-balance-drones-7-leading-gimbals-for-2024/"><u>Better Balance Drone's 7 Leading Gimbals for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/beyond-horizons-in-document-processing-discover-how-abvs-innovation-sets-new-standards/"><u>Beyond Horizons in Document Processing: Discover How ABV's Innovation Sets New Standards</u></a></li>
+<li><a href="https://solve-info.techidaily.com/boost-user-engagement-with-our-advanced-cookiebot-integration-solutions/"><u>Boost User Engagement with Our Advanced Cookiebot Integration Solutions</u></a></li>
+<li><a href="https://solve-info.techidaily.com/boost-your-websites-traffic-with-cookiebot-technology-power/"><u>Boost Your Website's Traffic with Cookiebot Technology Power</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-your-m-audio-fast-track-drivers-here-optimized-for-windows-11-7-8-and-81/"><u>Get Your M-Audio Fast Track Drivers Here: Optimized for Windows 11, 7, 8 & 8.1</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/how-to-downscale-or-transcode-4k-video-to-full-hd-on-your-pc-or-mac/"><u>How to Downscale or Transcode 4K Video to Full HD on Your PC or Mac</u></a></li>
+<li><a href="https://media-tips.techidaily.com/improving-spotifys-ai-dj-with-local-news-integration-a-next-level-music-experience/"><u>Improving Spotify's AI DJ with Local News Integration: A Next-Level Music Experience</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-3-effective-ways-to-bypass-activation-lock-on-apple-iphone-11-pro-by-drfone-ios/"><u>In 2024, 3 Effective Ways to Bypass Activation Lock on Apple iPhone 11 Pro</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-privacy-protection-in-videos-a-guide-to-obscuring/"><u>In 2024, Privacy Protection in Videos A Guide to Obscuring</u></a></li>
+<li><a href="https://solve-info.techidaily.com/abbyy-timeline-5er/"><u>タスクマイニング機能付きのABBYY Timeline 5でネットワーク分析:人間関�er、プロセス、コンテンツ</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

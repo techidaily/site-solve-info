@@ -1,48 +1,24 @@
 ---
 title: 1. ABBYY Expedites Border Processing with 90%% Speed Enhancement
-date: 2024-09-08T23:40:16.794Z
-updated: 2024-09-09T23:40:16.794Z
+date: 2024-09-10T18:35:49.407Z
+updated: 2024-09-14T20:57:09.647Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d909c336a94ed9bab4a7576f74cacae95859492ef6caf81801a20c12eae1a573.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115945/19272" target="_top" id="2115945">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115945" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115945/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 1. ABBYY Expedites Border Processing with 90% Speed Enhancement
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY Reduces Customs Document Clearance Time by more than 90% to Deliver Commercial Goods to Consumers Faster
 
 December 06, 2023
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![News Colleagues8](https://static1.abbyy.com/abbyycommedia/33811/news-colleagues8.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [ABBYY](https://tools.techidaily.com/abbyy/products/)’s intelligent document processing (IDP) solutions are helping manufacturers of fast-moving consumer goods (FMCG) fast-track their trucks through border customs by reducing the time to clear custom clearances by more than 90%.
 
 Trucks moving goods across international borders can be stalled for hours if there are any errors or discrepancies in their customs paperwork, resulting not only in delayed deliveries but also in potential fines or spoilage of goods.
@@ -67,22 +43,10 @@ ABBYY puts your information to work. We combine innovation and experience to tra
 
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### ABBYY Editorial Contact
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Gina Ray
 
 _ABBYY_
@@ -97,8 +61,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -108,54 +70,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-enhancing-authenticity-techniques-to-apply-on-insta-photos/"><u>[New] In 2024, Enhancing Authenticity  Techniques to Apply on Insta Photos</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-leveraging-luminaries-for-greater-exposure/"><u>[New] In 2024, Leveraging Luminaries for Greater Exposure</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-realms-of-play-top-10-costless-online-roleplayers/"><u>[Updated] 2024 Approved  Realms of Play  Top 10 Costless Online Roleplayers</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-ideas-for-making-eye-catching-facebook-video-ads/"><u>[Updated] Ideas for Making Eye-Catching Facebook Video Ads</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-10-superior-approaches-to-live-cricket-broadcasting/"><u>[Updated] In 2024, 10 Superior Approaches to Live Cricket Broadcasting</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-mystic-mastery-in-minimalist-photo-manipulations/"><u>[Updated] Mystic Mastery in Minimalist Photo Manipulations</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-quick-ig-update-on-todays-compelling-podcast/"><u>[Updated] Quick IG Update on Today's Compelling Podcast</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-navigating-the-market-of-dronescopic-stabilizers/"><u>2024 Approved  Navigating the Market of Dronescopic Stabilizers</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-announces-appointment-of-weronika-niemczyk-as-senior-hr-director-and-people-strategy-head/"><u>ABBYY Announces Appointment of Weronika Niemczyk as Senior HR Director and People Strategy Head</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-launches-innovative-intelligent-automation-engineering-hub-in-lithuania/"><u>ABBYY Launches Innovative Intelligent Automation Engineering Hub in Lithuania</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-chosen-as-the-premier-partner-of-everest-groups-idp-with-peak-matrix/"><u>ABBYY: Chosen as the Premier Partner of Everest Group's IDP with Peak Matrix</u></a></li>
-<li><a href="https://games-able.techidaily.com/advanced-data-transfers-ideal-cables-for-games/"><u>Advanced Data Transfers: Ideal Cables For Games</u></a></li>
-<li><a href="https://solve-info.techidaily.com/ebook-accelerating-digital-agility-transformation-within-the-insurance-sector/"><u>EBook: Accelerating Digital Agility Transformation Within the Insurance Sector</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-site-traffic-with-our-cookiebot-powered-analytics-solutions/"><u>Elevate Site Traffic with Our Cookiebot Powered Analytics Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-your-digital-presence-with-cutting-edge-cookiebot-technology-solutions/"><u>Elevate Your Digital Presence with Cutting-Edge Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-your-online-marketing-experience-the-magic-of-cookiebot-automation/"><u>Elevate Your Online Marketing: Experience the Magic of Cookiebot Automation</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-your-website-with-advanced-cookiebot-technology-solutions/"><u>Elevate Your Website with Advanced Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-your-website-with-cookiebot-technology-solutions/"><u>Elevate Your Website with Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevating-your-sites-potential-through-advanced-cookiebot-integration/"><u>Elevating Your Site's Potential Through Advanced Cookiebot Integration</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhance-your-analytics-and-personalization-with-our-cookiebot-solution/"><u>Enhance Your Analytics and Personalization with Our Cookiebot Solution!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhance-your-digital-marketing-strategy-using-smart-tracking-technology-empowered-by-cookiebot-solutions/"><u>Enhance Your Digital Marketing Strategy Using Smart Tracking Technology – Empowered by Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-marketing-insights-and-control-with-the-innovative-cookiebot-system/"><u>Enhanced Marketing Insights and Control with the Innovative Cookiebot System</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-site-personalization-with-the-power-of-cookiebot-technology/"><u>Enhanced Site Personalization with the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-accessibility-with-special-mobility-how-to-protect-your-data-from-textgrabber-on-abbyy/"><u>Enhancing Accessibility with Special Mobility - How to Protect Your Data From TextGrabber on ABBYY</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-emergency-department-efficiency-with-process-mining-insights-from-widener-universitys-study-using-abbyy-timeline/"><u>Enhancing Emergency Department Efficiency with Process Mining: Insights From Widener University's Study Using ABBYY Timeline</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-rpa-success-through-next-gen-process-analytics-techniques-by-abbyy/"><u>Enhancing RPA Success Through Next-Gen Process Analytics Techniques by ABBYY</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-user-experience-with-cookiebot-technology-integration/"><u>Enhancing User Experience with Cookiebot Technology Integration</u></a></li>
-<li><a href="https://solve-info.techidaily.com/experience-enhanced-marketing-success-using-the-advanced-capabilities-of-cookiebot-solutions/"><u>Experience Enhanced Marketing Success Using the Advanced Capabilities of Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/finereader-14-von-abbyy-neue-funktionen-fur-zusatzliche-pdf-dateitypen-unterstutzen/"><u>FineReader 14 Von ABBYY: Neue Funktionen Für Zusätzliche PDF-Dateitypen Unterstützen</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-captivating-clips-with-cleverly-chosen-lights/"><u>In 2024, Captivating Clips with Cleverly Chosen Lights</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-top-4-sim-location-trackers-to-easily-find-your-lost-itel-s23plus-device-by-drfone-android/"><u>In 2024, Top 4 SIM Location Trackers To Easily Find Your Lost Itel S23+ Device</u></a></li>
-<li><a href="https://solve-info.techidaily.com/insights-on-future-ai-trends-with-abbyy-executive-moving-beyond-generative-hype/"><u>Insights on Future AI Trends with ABBYY Executive - Moving Beyond Generative Hype</u></a></li>
-<li><a href="https://solve-info.techidaily.com/iphone-document-scanning-and-ocr-convert-pdfsjpgs-with-finereader-app/"><u>IPhone Document Scanning & OCR: Convert PDFs/JPGs with FineReader App</u></a></li>
-<li><a href="https://solve-info.techidaily.com/marlin-equity-partnersabbyy/"><u>Marlin Equity PartnersがABBYYに対する投資を開始 - 最新ニュース解析</u></a></li>
-<li><a href="https://solve-info.techidaily.com/nagarro-achieves-a-60-cut-in-bill-payment-cycle-with-abbyy-for-enhanced-customer-accessibility/"><u>Nagarro Achieves a 60%% Cut in Bill Payment Cycle with ABBYY for Enhanced Customer Accessibility</u></a></li>
-<li><a href="https://solve-info.techidaily.com/no-coding-experience-required-build-your-own-apps-in-minutes-not-months/"><u>No Coding Experience Required? Build Your Own Apps in Minutes, Not Months!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimize-your-site-with-cookiebot-technology-for-tailored-user-experiences/"><u>Optimize Your Site with Cookiebot Technology for Tailored User Experiences</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimized-with-cookiebot-technology-for-smarter-online-engagement-tracking/"><u>Optimized with Cookiebot Technology for Smarter Online Engagement Tracking</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/pattern-locks-are-unsafe-secure-your-xiaomi-redmi-13c-5g-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Xiaomi Redmi 13C 5G Phone Now with These Tips</u></a></li>
-<li><a href="https://solve-info.techidaily.com/proprietary-website-personalization-using-cookiebot-technology/"><u>Proprietary Website Personalization Using Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/reshaping-fiscal-processes-in-response-to-the-modern-eras-challenges-effective-techniques-for-thriving/"><u>Reshaping Fiscal Processes in Response to the Modern Era's Challenges: Effective Techniques for Thriving</u></a></li>
-<li><a href="https://solve-info.techidaily.com/revolutionize-your-analytics-capabilities-innovative-solutions-by-cookiebot/"><u>Revolutionize Your Analytics Capabilities – Innovative Solutions by Cookiebot</u></a></li>
-<li><a href="https://solve-info.techidaily.com/sofia-tarasova-expert-collaborator-in-randd-and-product-innovation/"><u>Sofia Tarasova - Expert Collaborator in R&D & Product Innovation</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-seamless-multi-device-streaming-a-look-at-the-linksys-ea8300-router/"><u>The Ultimate Guide to Seamless Multi-Device Streaming: A Look at the Linksys EA8300 Router</u></a></li>
-<li><a href="https://solve-info.techidaily.com/transformez-votre-interface-avec-le-nouveau-sdk-dabbyy-lance-un-outil-mobile-baptise-capture-pour-une-meilleure-ux/"><u>Transformez Votre Interface Avec Le Nouveau SDK D'ABBYY Lance : Un Outil Mobile Baptisé Capture Pour Une Meilleure UX</u></a></li>
-<li><a href="https://solve-info.techidaily.com/understanding-web-pages-optimizing-your-sites-content-and-structure/"><u>Understanding Web Pages: Optimizing Your Site's Content and Structure</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unleashing-potent-digital-advertising-solutions-with-cutting-edge-cookiebot-platforms/"><u>Unleashing Potent Digital Advertising Solutions with Cutting-Edge Cookiebot Platforms</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unraveling-the-mystery-how-map-books-connect-to-boosting-process-intelligence-insights-from-abbyy/"><u>Unraveling the Mystery: How Map Books Connect to Boosting Process Intelligence - Insights From ABBYY</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/unveiling-exciting-photography-aspects-of-ios-11/"><u>Unveiling Exciting Photography Aspects of iOS 11</u></a></li>
-<li><a href="https://solve-info.techidaily.com/utilizing-cookiebot-technology-for-enhanced-user-personalization-and-seo-success/"><u>Utilizing Cookiebot Technology for Enhanced User Personalization & SEO Success</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/a-how-to-guide-on-bypassing-the-apple-iphone-13-pro-max-icloud-lock-by-drfone-ios/"><u>A How-To Guide on Bypassing the Apple iPhone 13 Pro Max iCloud Lock</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/brightening-up-your-videography-gopro-fog-free-techniques/"><u>Brightening Up Your Videography GoPro Fog-Free Techniques</u></a></li>
+<li><a href="https://solve-info.techidaily.com/empower-your-site-analytics-through-innovative-tracker-solutions/"><u>Empower Your Site Analytics Through Innovative Tracker Solutions</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhanced-conversion-tracking-with-the-cookiebot-integration/"><u>Enhanced Conversion Tracking with the Cookiebot Integration</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhanced-conversions-with-our-advanced-cookiebot-technology/"><u>Enhanced Conversions with Our Advanced Cookiebot Technology</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhanced-marketing-automation-with-cookiebot-technology/"><u>Enhanced Marketing Automation with Cookiebot Technology</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-nokia-c32-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Nokia C32</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-press-pause-on-anxiety-with-these-games/"><u>In 2024, Press Pause on Anxiety with These Games</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-are-location-permissions-life360-on-samsung-galaxy-f15-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What are Location Permissions Life360 On Samsung Galaxy F15 5G? | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/transformez-vos-films-amateurs-en-projets-professionnels-a-laide-de-winxvideo-et-dia/"><u>Transformez Vos Films Amateurs en Projets Professionnels À L'aide De WinXVideo Et D’IA!</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

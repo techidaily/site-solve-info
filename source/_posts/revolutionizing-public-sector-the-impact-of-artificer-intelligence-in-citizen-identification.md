@@ -1,58 +1,28 @@
 ---
 title: "Revolutionizing Public Sector: The Impact of Artificer Intelligence in Citizen Identification"
-date: 2024-09-08T23:40:19.254Z
-updated: 2024-09-09T23:40:19.254Z
+date: 2024-09-13T16:52:29.760Z
+updated: 2024-09-14T23:03:28.902Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b366957cb2f5f0bbc845d34641faf6413a6383aa8049e6555ff0f80bdf97ed47.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135474/26400" target="_top" id="2135474">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135474" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135474/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Revolutionizing Public Sector: The Impact of Artificer Intelligence in Citizen Identification
 
 eBook
 
-<!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Delivering on Artificial Intelligence’s Potential
 
 ### How AI identity proofing is transforming government services
 
 ![How AI identity proofing is transforming government services](https://static1.abbyy.com/abbyycommedia/36854/fnn_expert-edition_delivering-on-artificial-intelligences-potential-v.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Government agencies may not face the same competitive pressures as commercial organizations, but they still have a vested interest in delivering quality citizen service. Federal agencies have even cited constituent experience as a key driver in improving people’s trust in government.
 
 One of the technologies helping them achieve their goals is **mobile document-centric identify proofing and affirmation**, which lets users skip the lines at brick-and-mortar offices and access government services by validating their identity anytime, anywhere, from their mobile devices.
 
 ABBYY recently partnered with the Federal News Network (FNN) to contribute a chapter on AI identity proofing to their eBook _Delivering on artificial intelligence’s potential_. Download your copy below to learn how this technology is transforming government services.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Download it now!
 
 Download _Delivering on artificial intelligence’s potential_ and read ABBYY’s article (pages 20–22) to learn  
@@ -65,24 +35,32 @@ Download _Delivering on artificial intelligence’s potential_ and read ABBYY’
 
 [Read eBook](https://digital.abbyy.com/hubfs/documents/content/ebook-government-proof-of-identity-delivering-on-ai-potential-en.pdf "Read eBook") 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### You might also be interested in...
 
 [![ISG Provider Lens™ Intelligent Automation - IDP, 2021](https://static2.abbyy.com/abbyycommedia/35251/145-ia-solutionsandservices-idp-360x232.jpg) ABBYY Named Leader of IDP in the 2021 ISG Provider Lens™ Intelligent Automation – Solutions and Services Report See report](https://digital.abbyy.com/hubfs/documents/content/analystreport-intelligent-document-processing-isg-provider-lens-en.pdf "ABBYY Named Leader of IDP in the 2021 ISG Provider Lens™ Intelligent Automation – Solutions and Services Report ")[![ABBYY Vantage IDP](https://static4.abbyy.com/abbyycommedia/34808/vantage-new-product-video.jpg) ABBYY Vantage: Intelligent Document Processing Platform for the Digital Workforce Learn more](https://www.abbyy.com/vantage/ "ABBYY Vantage: Intelligent Document Processing Platform for the Digital Workforce")[![Intelligent Document Processing | ABBYY Blog](https://static1.abbyy.com/abbyycommedia/34870/ap-content-2-848x444.jpg) What Is Intelligent Document Processing (IDP), and How Does It Work? Read article](https://www.abbyy.com/blog/intelligent-document-processing/ "What Is Intelligent Document Processing (IDP), and How Does It Work?") 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115909/19272" target="_top" id="2115909">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115909" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115909/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
 #### Get your copy by filling in the form.
@@ -143,8 +121,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -154,37 +130,14 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-creating-a-captivating-experience-with-your-first-facebook-live/"><u>[New] Creating a Captivating Experience with Your First Facebook Live</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-hasty-instruction-saving-your-photos-as-youtube-channel-thumbnails/"><u>[New] In 2024, Hasty Instruction  Saving Your Photos as YouTube Channel Thumbnails</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-prime-online-collections-for-3d-typography/"><u>[Updated] 2024 Approved  Prime Online Collections for 3D Typography</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-swift-to-stillness-the-art-of-timelapse-with-a-galaxy/"><u>2024 Approved  Swift to Stillness  The Art of Timelapse with a Galaxy</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/brief-blueprints-sending-ios-videos-and-images-for-2024/"><u>Brief Blueprints  Sending iOS Videos & Images for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-site-performance-and-personalization/"><u>Cookiebot-Enhanced Site Performance and Personalization</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-smart-personalization-for-your-site/"><u>Cookiebot-Enhanced: Smart Personalization for Your Site</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-unleashing-the-potential-of-smart-marketing-technology/"><u>Cookiebot-Enhanced: Unleashing the Potential of Smart Marketing Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-the-key-to-cutting-edge-data-tracking-and-personalization/"><u>Cookiebot: The Key to Cutting-Edge Data Tracking and Personalization</u></a></li>
-<li><a href="https://solve-info.techidaily.com/digital-onboarding-mistakes-why-most-companeries-are-losing-customer-opportunities/"><u>Digital Onboarding Mistakes: Why Most Companeries Are Losing Customer Opportunities</u></a></li>
-<li><a href="https://solve-info.techidaily.com/discover-efficient-data-analytics-through-our-advanced-cookiebot-driven-solutions/"><u>Discover Efficient Data Analytics Through Our Advanced Cookiebot-Driven Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/dynamique-croissante-un-dixieme-de-moins-de-societes-francaises-recherchent-les-contributions-des-citoyens-developpeurs/"><u>Dynamique Croissante : Un Dixième De Moins De Sociétés Françaises Recherchent Les Contributions Des 'Citoyens Développeurs'</u></a></li>
-<li><a href="https://solve-info.techidaily.com/ebook-accelerating-digital-agility-transformation-within-the-insurance-sector/"><u>EBook: Accelerating Digital Agility Transformation Within the Insurance Sector</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-site-traffic-with-our-cookiebot-powered-analytics-solutions/"><u>Elevate Site Traffic with Our Cookiebot Powered Analytics Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-your-digital-presence-with-cutting-edge-cookiebot-technology-solutions/"><u>Elevate Your Digital Presence with Cutting-Edge Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-your-online-marketing-experience-the-magic-of-cookiebot-automation/"><u>Elevate Your Online Marketing: Experience the Magic of Cookiebot Automation</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-your-website-with-advanced-cookiebot-technology-solutions/"><u>Elevate Your Website with Advanced Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-your-website-with-cookiebot-technology-solutions/"><u>Elevate Your Website with Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevating-your-sites-potential-through-advanced-cookiebot-integration/"><u>Elevating Your Site's Potential Through Advanced Cookiebot Integration</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhance-your-analytics-and-personalization-with-our-cookiebot-solution/"><u>Enhance Your Analytics and Personalization with Our Cookiebot Solution!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhance-your-digital-marketing-strategy-using-smart-tracking-technology-empowered-by-cookiebot-solutions/"><u>Enhance Your Digital Marketing Strategy Using Smart Tracking Technology – Empowered by Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-marketing-insights-and-control-with-the-innovative-cookiebot-system/"><u>Enhanced Marketing Insights and Control with the Innovative Cookiebot System</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-site-personalization-with-the-power-of-cookiebot-technology/"><u>Enhanced Site Personalization with the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-accessibility-with-special-mobility-how-to-protect-your-data-from-textgrabber-on-abbyy/"><u>Enhancing Accessibility with Special Mobility - How to Protect Your Data From TextGrabber on ABBYY</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-emergency-department-efficiency-with-process-mining-insights-from-widener-universitys-study-using-abbyy-timeline/"><u>Enhancing Emergency Department Efficiency with Process Mining: Insights From Widener University's Study Using ABBYY Timeline</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-rpa-success-through-next-gen-process-analytics-techniques-by-abbyy/"><u>Enhancing RPA Success Through Next-Gen Process Analytics Techniques by ABBYY</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-user-experience-with-cookiebot-technology-integration/"><u>Enhancing User Experience with Cookiebot Technology Integration</u></a></li>
-<li><a href="https://solve-info.techidaily.com/experience-enhanced-marketing-success-using-the-advanced-capabilities-of-cookiebot-solutions/"><u>Experience Enhanced Marketing Success Using the Advanced Capabilities of Cookiebot Solutions</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-mastering-powerpoint-recording-on-camera-for-professionals/"><u>In 2024, Mastering PowerPoint Recording on Camera for Professionals</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/increasing-iphone-phone-call-volume-effective-solutions-explored/"><u>Increasing iPhone Phone Call Volume: Effective Solutions Explored</u></a></li>
-<li><a href="https://network-issues.techidaily.com/smoothen-screen-fluctuations-pro-7/"><u>Smoothen Screen Fluctuations (Pro 7)</u></a></li>
-<li><a href="https://apple-account.techidaily.com/troubleshooting-error-connecting-to-the-apple-id-server-on-apple-iphone-12-mini-by-drfone-ios/"><u>Troubleshooting Error Connecting to the Apple ID Server On Apple iPhone 12 mini</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/unleash-video-magic-the-best-camcorders-to-try/"><u>Unleash Video Magic – The Best Camcorders to Try</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-dissecting-splitcam-a-video-recorder-standout-analysis/"><u>[New] 2024 Approved Dissecting SplitCam A Video Recorder Standout Analysis</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-lava-yuva-2-pro-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Lava Yuva 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/dont-miss-out-asus-rog-zephyrus-g16-cut-costs-on-top-tier-tech-with-ultra-performance-cpu-and-gpu-plus-a-flat-screen-display-at-240hz-oled-quality-avail-for10/"><u>Don't Miss Out: Asus ROG Zephyrus G16 - Cut Costs on Top-Tier Tech with Ultra Performance CPU & GPU, Plus a Flat Screen Display at 240Hz OLED Quality – Avail for $250 Less Today!</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-and-install-kyocera-printer-drivers-on-windows-step-by-step-guide/"><u>Download & Install KYOCERA Printer Drivers on Windows: Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/mastering-the-art-of-joining-youtube-clips-for-2024/"><u>Mastering the Art of Joining YouTube Clips for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/mastering-the-procurement-and-payments-journey-a-definitive-guide/"><u>Mastering the Procurement and Payments Journey: A Definitive Guide</u></a></li>
+<li><a href="https://solve-info.techidaily.com/optimized-with-the-help-of-cookiebot-enhanced-website-analytics/"><u>Optimized with the Help of Cookiebot: Enhanced Website Analytics</u></a></li>
+<li><a href="https://solve-info.techidaily.com/revolutionizing-document-automation-through-abbyy-vance-harnessing-power-of-computer-vision-and-large-language-models/"><u>Revolutionizing Document Automation Through ABBYY Vance - Harnessing Power of Computer Vision and Large Language Models</u></a></li>
+<li><a href="https://blog-min.techidaily.com/top-11-platforms-to-discover-and-enjoy-timeless-classics-a-guide-to-streaming-vintage-films-for-free/"><u>Top 11 Platforms to Discover and Enjoy Timeless Classics: A Guide to Streaming Vintage Films for Free</u></a></li>
 </ul></div>
+
