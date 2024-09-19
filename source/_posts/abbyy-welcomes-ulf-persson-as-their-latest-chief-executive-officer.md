@@ -1,7 +1,7 @@
 ---
 title: ABBYY Welcomes Ulf Persson as Their Latest Chief Executive Officer
-date: 2024-09-08T17:23:49.476Z
-updated: 2024-09-14T21:36:53.293Z
+date: 2024-09-13T19:08:56.150Z
+updated: 2024-09-18T19:16:01.687Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c80fad792e3cb229a3e653969139437b39335328a63ecf71a877586d96fe497a.jpg
@@ -56,24 +56,25 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-innovative-free-chat-platforms-with-shared-screen-viewing/"><u>[New] 2024 Approved Innovative Free Chat Platforms with Shared Screen Viewing</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-filmmakers-guide-to-the-top-10-essential-camera-brands/"><u>[New] In 2024, Filmmaker's Guide to the Top 10 Essential Camera Brands</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-visionary-graphics-best-cards-in-4k-space-for-2024/"><u>[New] Visionary Graphics Best Cards in 4K Space for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bangla-blitz-hone-skills-quickly-each-day/"><u>Bangla Blitz: Hone Skills Quickly Each Day</u></a></li>
-<li><a href="https://solve-info.techidaily.com/driven-by-advanced-cookie-tracking-meet-the-powerhouse-behind-digital-marketing/"><u>Driven by Advanced Cookie Tracking: Meet the Powerhouse Behind Digital Marketing</u></a></li>
-<li><a href="https://solve-info.techidaily.com/east-midlands-railway-enhances-daily-email-throughput-by-more-than-5-hours-using-abbyy-and-engeneum/"><u>East Midlands Railway Enhances Daily Email Throughput by More than 5 Hours Using ABBYY & Engeneum</u></a></li>
-<li><a href="https://solve-info.techidaily.com/effizientes-kinderschriftenerlernen-mit-abbey-road-finedreader/"><u>Effizientes Kinderschriftenerlernen Mit Abbey Road FinedReader</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/excellence-in-4k-leading-blu-ray-players-compared-for-2024/"><u>Excellence in 4K Leading Blu-Ray Players Compared for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-realme-c67-4g-device-by-drfone-android/"><u>In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Realme C67 4G Device</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/quick-and-reliable-tiktok-to-mp4-file-transfer-software-for-2024/"><u>Quick and Reliable TikTok to MP4 File Transfer Software for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/step-up-your-game-techniques-for-bordered-instagram-videos/"><u>Step Up Your Game Techniques for Bordered Instagram Videos</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/step-by-step-guide-transferring-dvd-content-from-your-computers-hard-drive-to-a-portable-usb-flash-drive-on-pc-and-mac-systems/"><u>Step-by-Step Guide: Transferring DVD Content From Your Computer's Hard Drive to a Portable USB Flash Drive on PC & Mac Systems</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-elevate-your-instagram-feed-vertical-video-edits-in-fcpx/"><u>[Updated] 2024 Approved Elevate Your Instagram Feed Vertical Video Edits in FCPX</u></a></li>
+<li><a href="https://solve-info.techidaily.com/44cm44k144og44oq44gu55s76z2i6yyy55s75oml6acg44ks6kmz44gx44gp6kej6kqs77yb44cn/"><u>「サムバの画面録画手順を詳しく解説！」</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-crafting-captivating-edu-videos-essential-techniques-and-tips-for-youtube-success/"><u>2024 Approved Crafting Captivating Edu-Videos Essential Techniques and Tips for YouTube Success</u></a></li>
+<li><a href="https://solve-info.techidaily.com/3-effective-methods-for-downloading-blob-videos-a-step-by-step-guide/"><u>3 Effective Methods for Downloading Blob Videos: A Step-by-Step Guide</u></a></li>
+<li><a href="https://solve-info.techidaily.com/4-effective-methods-to-eliminate-audio-from-your-iphone-recorded-videos/"><u>4 Effective Methods to Eliminate Audio From Your iPhone Recorded Videos</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-data-from-iphone-xs-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover Data from iPhone XS? | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-exemplary-video-capture-top-5-slow-motion-cams/"><u>In 2024, Exemplary Video Capture Top 5 Slow Motion Cams</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115928/19272" target="_top" id="2115928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115928" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

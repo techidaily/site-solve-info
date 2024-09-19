@@ -1,7 +1,7 @@
 ---
 title: ABBYY at Handelsblatt's Annual Conference - Focus on Banking Technology
-date: 2024-09-08T23:27:05.540Z
-updated: 2024-09-14T16:07:40.818Z
+date: 2024-09-12T17:33:10.095Z
+updated: 2024-09-19T02:19:55.135Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b7b45cfdc35344213e5101907c39a4f8622c548d37868126691840befd4a8d38.jpg
@@ -74,22 +74,30 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-secrets-unlocked-becoming-a-leader-in-online-social-media-live-events/"><u>[Updated] 2024 Approved Secrets Unlocked Becoming a Leader in Online Social Media Live Events</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/build-your-own-slim-htpc-with-the-elegant-asrock-am5-mini-itx-board-x600tm-itx/"><u>Build Your Own Slim HTPC with the Elegant ASRock AM5 Mini-ITX Board - X600TM-ITX</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/connecting-airpods-with-macbook-air-made-simple-a-comprehensive-guide/"><u>Connecting AirPods with MacBook Air Made Simple - A Comprehensive Guide</u></a></li>
-<li><a href="https://solve-info.techidaily.com/how-artificial-intelligence-boosts-roi-through-advanced-image-recognition-expert-advice-on-intelligent-capture-blog-by-abbyy/"><u>How Artificial Intelligence Boosts ROI Through Advanced Image Recognition - Expert Advice on Intelligent Capture | Blog by ABBYY</u></a></li>
-<li><a href="https://solve-info.techidaily.com/introducing-neoml-abbyys-new-open-source-library-speeding-up-artifice-intelligence-innovation/"><u>Introducing NeoML: ABBYY's New Open Source Library Speeding Up Artifice Intelligence Innovation</u></a></li>
-<li><a href="https://solve-info.techidaily.com/junges-management-gefahrdet-durch-ineffiziente-geschaftspraktiken-und-veraltete-technologie-abbyy-umfrage-zeigt-schnelle-demotivierung-gegenuber-alteren-kol9/"><u>Junges Management Gefährdet Durch Ineffiziente Geschäftspraktiken Und Veraltete Technologie: ABBYY Umfrage Zeigt Schnelle Demotivierung Gegenüber Älteren Kollegen</u></a></li>
-<li><a href="https://solve-info.techidaily.com/launching-intelligent-transit-solutions-insights-from-the-abbyy-blog/"><u>Launching Intelligent Transit Solutions: Insights From the ABBYY Blog</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/the-best-ispoofer-alternative-to-try-on-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/the-ultimate-guide-to-choosing-a-running-watch-garmin-forerunner-45-reviews/"><u>The Ultimate Guide to Choosing a Running Watch: Garmin Forerunner 45 Reviews</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-apple-homepod-mini-experience-a-deep-dive-into-audio-quality-and-voice-controls/"><u>Unveiling the Apple HomePod Mini Experience: A Deep Dive Into Audio Quality and Voice Controls</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-digital-footprints-lead-to-facebook-video-gold/"><u>[New] Digital Footprints Lead to Facebook Video Gold</u></a></li>
+<li><a href="https://solve-info.techidaily.com/jpeg/"><u>「JPEG画像の適切なサイズにコンバートしてディスク容量を減らす手順」</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/exploring-8-surprising-ways-artificial-intelligence-merges-fact-with-fiction/"><u>Exploring 8 Surprising Ways Artificial Intelligence Merges Fact with Fiction</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/get-smart-with-search-the-new-bing-ai-feature-now-available-for-mobile-devices/"><u>Get Smart with Search: The New Bing AI Feature Now Available for Mobile Devices</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-change-location-on-tiktok-to-see-more-content-on-your-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>How to Change Location on TikTok to See More Content On your Infinix Smart 7 HD | Dr.fone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/how-to-successfully-play-mp4-videos-on-sony-playstation-5-with-easy-solutions/"><u>How to Successfully Play MP4 Videos on Sony PlayStation 5 with Easy Solutions!</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-mirror-your-gameplay-today/"><u>In 2024, Mirror Your Gameplay Today</u></a></li>
+<li><a href="https://solve-info.techidaily.com/missing-page-alert-retrieved-with-ease-using-wonderfoxs-solutions/"><u>Missing Page Alert! Retrieved with Ease Using WonderFox's Solutions</u></a></li>
+<li><a href="https://solve-info.techidaily.com/obstop-5/"><u>OBSと連携し、最高の動画編集ソフトウェアをご紹介！Top 5リスト</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-elite-circle-of-digital-titling-top-5-revealed/"><u>The Elite Circle of Digital Titling Top 5 Revealed</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/top-13-best-free-pdf-editor-apps-july-2024-recommendations/"><u>Top 13 Best Free PDF Editor Apps: July 2024 Recommendations</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-in-2024-mac-video-tag-editor-8-best-tools-for-easy-organization/"><u>Updated In 2024, Mac Video Tag Editor 8 Best Tools for Easy Organization</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

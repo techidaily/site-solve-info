@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Driven Personalization: Enhancing Your Website's User Experience"
-date: 2024-09-08T16:14:21.441Z
-updated: 2024-09-14T22:25:59.270Z
+date: 2024-09-17T03:36:33.753Z
+updated: 2024-09-19T01:03:23.483Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/eba0a5b42c98b9f5083f688e46f3bb9b2578fe7a056aaed74ee36c6a269ef696.jpg
@@ -33,19 +33,6 @@ HL TRAD doit convertir des documents régulièrement pour répondre aux besoins 
 
 Eric Le Poole, gérant de HL TRAD, explique la raison pour laquelle trouver une solution de reconnaissance de texte (OCR) devenait essentielle: « Les documents sont au centre de notre activité, qu'il s'agisse de conclusions, de comptes annuels, de rapports de gestion, ou encore, de rapports de due diligence. La possibilité de convertir ces documents devait nous permettre de récupérer du texte, des tableaux et des graphiques en évitant une ressaisie fastidieuse et source d´erreurs. Les avantages recherchés étaient de faciliter le travail de nos collaborateurs et d´assurer un meilleur service à nos clients.»
 
-<!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Solution
 
 HL TRAD a conduit une recherche sur les logiciels OCR disponibles, en particulier à travers des tests comparatifs. Au vu de la reconnaissance très rapide et de la précision très élevée d´ABBYY FineReader, deux données très importantes pour une agence de traduction comme HL TRAD, le choix s´est porté rapidement sur ABBYY FineReader. Qui plus est, FineReader a un très bon rapport qualité/prix.
@@ -57,10 +44,10 @@ ABBYY FineReader est un logiciel de reconnaissance de texte, ou OCR, qui convert
 La précision d'ABBYY FineReader, sa vitesse, son prix et sa convivialité ont été des facteurs importants dans le processus de décision. Le nombre de langues de reconnaissance constituait également un facteur important. Presque toutes les agences de traduction doivent traiter des langues différentes quotidiennement. HL TRAD doit traiter des documents rédigés principalement en français, anglais, italien, néerlandais, allemand ou espagnol. Grâce à une capacité de reconnaissance jusqu´à 189 langues, aucune tâche ne résiste à ABBYY FineReader lorsqu'il s'agit de traiter des documents multilingues.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Résultat
@@ -68,6 +55,13 @@ La précision d'ABBYY FineReader, sa vitesse, son prix et sa convivialité ont �
 Maintenant, HL TRAD effectue plus de 3600 tâches OCR par an sur des documents multipages plus ou moins complexes et de types variés. La plupart du temps, la tâche effectuée est de l´OCR vers Word, en particulier depuis un document PDF. Auparavant, un collaborateur de HL TRAD passait trop de temps à retaper et remettre en forme un document de travail. L'automatisation de la conversion de documents avec ABBYY FineReader a réduit significativement le temps qu'il faut pour accéder au contenu important. En conséquence, HL TRAD réduit par la même occasion ses coûts grâce à ABBYY FineReader et améliore la qualité de ses services à ses clients.
 
 « ABBYY est le logiciel qui permet à nos équipes commerciales et projets d'accomplir leur tâche plus rapidement et facilement » déclare Eric Le Poole. Travailler avec FineReader est devenu nécessaire pour HL TRAD. ABBYY FineReader permet de mieux répondre aux attentes de ses clients.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### A propos de HL TRAD
 
@@ -114,20 +108,17 @@ Nous serions ravis de vous aider tout au long de votre parcours d’automatisati
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-learning-made-easy-utilizing-youtube-for-dynamic-classrooms/"><u>2024 Approved Learning Made Easy Utilizing YouTube for Dynamic Classrooms</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-stepwise-approach-to-mastering-vimeo-recording/"><u>2024 Approved Stepwise Approach to Mastering Vimeo Recording</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/flawless-syncing-adding-soundtracks-to-inshot-for-2024/"><u>Flawless Syncing Adding Soundtracks to Inshot for 2024</u></a></li>
-<li><a href="https://techidaily.com/how-to-easily-hard-reset-my-vivo-x100-pro-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Vivo X100 Pro | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-13-mini-without-passcode-by-drfone-ios/"><u>How to Unlock iPhone 13 mini Without Passcode?</u></a></li>
-<li><a href="https://solve-info.techidaily.com/introducing-neoml-abbyys-new-open-source-library-speeding-up-artifice-intelligence-innovation/"><u>Introducing NeoML: ABBYY's New Open Source Library Speeding Up Artifice Intelligence Innovation</u></a></li>
-<li><a href="https://solve-info.techidaily.com/junges-management-gefahrdet-durch-ineffiziente-geschaftspraktiken-und-veraltete-technologie-abbyy-umfrage-zeigt-schnelle-demotivierung-gegenuber-alteren-kol9/"><u>Junges Management Gefährdet Durch Ineffiziente Geschäftspraktiken Und Veraltete Technologie: ABBYY Umfrage Zeigt Schnelle Demotivierung Gegenüber Älteren Kollegen</u></a></li>
-<li><a href="https://solve-info.techidaily.com/launching-intelligent-transit-solutions-insights-from-the-abbyy-blog/"><u>Launching Intelligent Transit Solutions: Insights From the ABBYY Blog</u></a></li>
-<li><a href="https://solve-info.techidaily.com/les-avantages-dutiliser-locr-dabbevillier-pour-les-amateurs-de-vin-la-solution-la-plus-appreciee-par-vivino/"><u>Les Avantages D'utiliser L'OCR D'Abbevillier Pour Les Amateurs De Vin: La Solution La Plus Appréciée Par Vivino</u></a></li>
-<li><a href="https://solve-info.techidaily.com/leveraging-cookiebot-technology-for-superior-visitor-insights-and-site-optimization/"><u>Leveraging Cookiebot Technology for Superior Visitor Insights and Site Optimization</u></a></li>
-<li><a href="https://solve-info.techidaily.com/mastering-modern-banking-challenges-proven-abbyy-strategies-for-thriving-through-crisis-and-beyond/"><u>Mastering Modern Banking Challenges: Proven ABBYY Strategies for Thriving Through Crisis and Beyond</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/quick-journey-queries-answered-by-ai-best-7-free-planning-tools/"><u>Quick Journey Queries Answered by AI: Best 7 Free Planning Tools</u></a></li>
-<li><a href="https://howto.techidaily.com/reasons-for-xiaomi-redmi-note-13-proplus-5g-stuck-on-boot-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Xiaomi Redmi Note 13 Pro+ 5G Stuck on Boot Screen and Ways To Fix Them | Dr.fone</u></a></li>
-<li><a href="https://win-answers.techidaily.com/the-long-awaited-arrival-how-immortals-fenyx-rising-became-available/"><u>The Long-Awaited Arrival: How Immortal's Fenyx Rising Became Available</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/updated-driver-downloads-for-the-sm-bus-controller-across-multiple-windows-operating-systems/"><u>Updated Driver Downloads for the SM Bus Controller Across Multiple Windows Operating Systems</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-crafting-the-perfect-close-youtubes-free-end-screen-tools-for-2024/"><u>[Updated] Crafting the Perfect Close YouTube's Free End Screen Tools for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-metaverse-matchmakers-top-friend-focused-ventures/"><u>2024 Approved Metaverse Matchmakers Top Friend-Focused Ventures</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-save-the-scene-techniques-for-transcribing-live-videos/"><u>2024 Approved Save the Scene Techniques for Transcribing Live Videos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/clear-views-combating-fog-in-gopro-photos/"><u>Clear Views Combating Fog in GoPro Photos</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-realme-12-5g-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Realme 12 5G</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-change-location-on-yik-yak-for-your-oneplus-11-5g-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>In 2024, Change Location on Yik Yak For your OnePlus 11 5G to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/successful-solutions-for-pro-aax-to-mp3-audio-converter-apps/"><u>Successful Solutions for Pro AAX to MP3 Audio Converter Apps</u></a></li>
+<li><a href="https://techidaily.com/three-solutions-to-hard-reset-infinix-zero-5g-2023-turbo-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Infinix Zero 5G 2023 Turbo? | Dr.fone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/ultimate-guide-to-the-most-efficient-dvd-to-mp4-converters-on-windows-11-2024-edition/"><u>Ultimate Guide to the Most Efficient DVD to MP4 Converters on Windows 11 - 2024 Edition!</u></a></li>
+<li><a href="https://solve-info.techidaily.com/ultimate-guide-setting-up-adultflix-plugin-for-kodi-leia-and-krypton-edition/"><u>Ultimate Guide: Setting Up AdultFlix Plugin for Kodi - Leia & Krypton Edition</u></a></li>
+<li><a href="https://solve-info.techidaily.com/ultimate-kodi-tutorial-series-mastering-your-media-experience-from-pages-1-6/"><u>Ultimate Kodi Tutorial Series: Mastering Your Media Experience From Pages 1-6</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/vocal-vanquishers-bards-and-chatgpt-clash-with-llama-companions/"><u>Vocal Vanquishers: Bards & ChatGPT Clash with Llama Companions</u></a></li>
 </ul></div>
 

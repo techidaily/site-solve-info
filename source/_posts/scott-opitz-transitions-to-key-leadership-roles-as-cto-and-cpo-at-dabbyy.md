@@ -1,7 +1,7 @@
 ---
 title: Scott Opitz Transitions to Key Leadership Roles as CTO and CPO at D'Abbyy
-date: 2024-09-10T23:08:09.475Z
-updated: 2024-09-14T20:02:31.910Z
+date: 2024-09-14T17:20:02.932Z
+updated: 2024-09-19T03:30:24.347Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5c41e214e42161b19b3ba596b247b1528c5c85cbd29aaa92283a320b0b166cc8.jpg
@@ -64,26 +64,27 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-best-video-format-for-youtube-uploading/"><u>[New] 2024 Approved Best Video Format for YouTube Uploading</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-the-slippery-slope-of-simulated-support-instagram-style/"><u>[New] In 2024, The Slippery Slope of Simulated Support, Instagram Style</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-breaking-down-the-three-stages-of-snapchat-calls-and-chats/"><u>[Updated] In 2024, Breaking Down the Three Stages of Snapchat Calls and Chats</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/choosing-the-best-video-editor-gopro-hero-vs-polaroid-cube-for-2024/"><u>Choosing the Best Video Editor GoPro Hero Vs. Polaroid Cube for 2024</u></a></li>
-<li><a href="https://techidaily.com/different-methods-for-resetting-samsung-galaxy-a14-4g-phones-with-screen-locked-and-not-drfone-by-drfone-reset-android-reset-android/"><u>Different Methods for Resetting Samsung Galaxy A14 4G Phones with Screen Locked and Not | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-personalization-with-the-advanced-capabilities-of-cookiebot-technology/"><u>Enhanced Personalization with the Advanced Capabilities of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-traffic-with-customized-cookiebot-technology/"><u>Enhanced Traffic with Customized Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-patient-connections-optimizing-your-referral-to-appointment-process/"><u>Enhancing Patient Connections: Optimizing Your Referral-to-Appointment Process</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-user-experience-through-cookiebot-driven-seo-strategies/"><u>Enhancing User Experience Through Cookiebot-Driven SEO Strategies</u></a></li>
-<li><a href="https://solve-info.techidaily.com/expediting-cross-border-trade-the-impact-of-a-five-minute-clearance-gap-at-the-uk-eu-frontier/"><u>Expediting Cross-Border Trade: The Impact of a Five-Minute Clearance Gap at the UK-EU Frontier</u></a></li>
-<li><a href="https://solve-info.techidaily.com/how-abbyys-instantaneous-text-digitization-propels-rapid-advancements-in-the-digital-realm/"><u>How ABBYY’s Instantaneous Text Digitization Propels Rapid Advancements in the Digital Realm</u></a></li>
-<li><a href="https://driver-download.techidaily.com/hp-laserjet-p2035-printer-drivers-troubleshooting-and-fixes-on-windows/"><u>HP LaserJet P2035 Printer Drivers: Troubleshooting & Fixes on Windows</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-chortlechaos-dive-deep-into-meme-genesis/"><u>In 2024, ChortleChaos Dive Deep Into Meme Genesis</u></a></li>
-<li><a href="https://howto.techidaily.com/why-your-xiaomi-redmi-k70-pro-screen-might-be-unresponsive-and-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Your Xiaomi Redmi K70 Pro Screen Might be Unresponsive and How to Fix It | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-adoption-trends-for-arvr-shopping/"><u>[New] 2024 Approved Adoption Trends for AR/VR Shopping</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/asy-sound-transformation-ios-tools-to-convert-youtube-songs-to-mp3-files/"><u>[New] Easy Sound Transformation IOS Tools to Convert YouTube Songs to MP3 Files</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-essential-techniques-for-yt-video-tweaking-with-wm-maker-for-2024/"><u>[New] Essential Techniques for YT Video Tweaking with WM Maker for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-perfecting-the-art-of-photo-mosaic-creation/"><u>[New] Perfecting the Art of Photo Mosaic Creation</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-innovating-quickly-2-approaches-to-making-snapchat-filters/"><u>2024 Approved Innovating Quickly 2 Approaches to Making Snapchat Filters</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726026473894-bilibili/"><u>Bilibiliビデオでロゴを取り除くためのステップバイステップマニュアル</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-xiaomi-13t-pro-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Xiaomi 13T Pro For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/1722159707964-localize-the-power-of-conversational-ai-free-and-easy-installation-of-a-chatgpt-clone-via-gpt4all-for-your-pc/"><u>Localize the Power of Conversational AI: Free and Easy Installation of a ChatGPT Clone via GPT4All for Your PC!</u></a></li>
+<li><a href="https://solve-info.techidaily.com/ultimate-guide-to-downloading-movies-from-dvds-onto-your-pc-step-by-step-process/"><u>Ultimate Guide to Downloading Movies From DVDs Onto Your PC - Step by Step Process</u></a></li>
+<li><a href="https://solve-info.techidaily.com/understanding-handbrakes-capabilities-for-merging-multiple-video-streams-insights-and-solutions/"><u>Understanding Handbrake's Capabilities for Merging Multiple Video Streams: Insights & Solutions</u></a></li>
+<li><a href="https://solve-info.techidaily.com/understanding-resolution-upgrades-does-true-4k-offer-significant-advantages-over-1080p/"><u>Understanding Resolution Upgrades: Does True 4K Offer Significant Advantages Over 1080P?</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/unpacking-the-features-of-androids-lightroom-app-for-2024/"><u>Unpacking the Features of Android's Lightroom App for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/vcruntime140dll-errors-explained-causes-and-fixes-for-a-successful-repair/"><u>VCRUNTIME140.dll Errors Explained: Causes and Fixes for a Successful Repair</u></a></li>
+<li><a href="https://solve-info.techidaily.com/windows-11youtubesd/"><u>Windows 11でパソコンからYouTube音楽をSDカードへ転送するための完全ガイド</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726026566647-3/"><u>ダウンロード無しで音声抽出: ムービーからのトラック3方法紹介</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "ABBYY Welcomes Paul Nizov as Their Latest Appointment: Chief Information Security Officer"
-date: 2024-09-09T18:12:54.001Z
-updated: 2024-09-14T17:10:13.658Z
+date: 2024-09-17T03:12:36.693Z
+updated: 2024-09-19T00:08:47.091Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/66ccde26d86877f06eba74ce71d6ed3e3e1b37f9fff9b02e8a19618a5ac1ec1e.jpg
@@ -69,25 +69,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/updated-innovative-designs-unleashed-comprehensive-guide-to-animation-suites/"><u>[Updated] Innovative Designs Unleashed Comprehensive Guide to Animation Suites</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/a-how-to-guide-on-bypassing-apple-iphone-x-icloud-activation-lock-by-drfone-ios/"><u>A How-To Guide on Bypassing Apple iPhone X iCloud Activation Lock</u></a></li>
-<li><a href="https://games-able.techidaily.com/assessing-gpus-graphical-memory-usage/"><u>Assessing GPU's Graphical Memory Usage</u></a></li>
-<li><a href="https://blog-min.techidaily.com/best-top-rated-free-tools-for-reviving-and-enhancing-vintage-photographs/"><u>Best Top-Rated Free Tools for Reviving and Enhancing Vintage Photographs</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-icloud-lock-on-iphone-se-2022-by-drfone-ios/"><u>In 2024, How to Bypass iCloud Lock on iPhone SE (2022)</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-realme-11-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on Realme 11 Pro | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/smart-integration-of-ai-and-robotics-in-modern-medicine-infographic-guide/"><u>Smart Integration of AI and Robotics in Modern Medicine - Infographic Guide</u></a></li>
-<li><a href="https://solve-info.techidaily.com/streamlined-workflow-integration-with-pipefy-and-abbyy-document-automation/"><u>Streamlined Workflow Integration with Pipefy & ABBYY Document Automation</u></a></li>
-<li><a href="https://solve-info.techidaily.com/texthelp-und-abbyy-revolutionarer-support-fur-menschen-mit-leseschwache-oder-dysgraphie/"><u>Texthelp Und ABBYY: Revolutionärer Support Für Menschen Mit Leseschwäche Oder Dysgraphie</u></a></li>
-<li><a href="https://video-capture.techidaily.com/top-ps3-emulators-your-gateway-to-classic-games-for-2024/"><u>Top Ps3 Emulators Your Gateway to Classic Games for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unleash-potential-with-our-cookiebot-integrated-services/"><u>Unleash Potential with Our Cookiebot Integrated Services</u></a></li>
-<li><a href="https://solve-info.techidaily.com/untapped-opportunities-how-british-enterprises-can-harness-automation-advantages-according-to-abbyy-insights/"><u>Untapped Opportunities: How British Enterprises Can Harness Automation Advantages, According to ABBYY Insights</u></a></li>
-<li><a href="https://solve-info.techidaily.com/verbessern-sie-die-sicherheit-von-dokumenten-bei-der-eingabe-mit-tangro-hochladen-per-process-security/"><u>Verbessern Sie Die Sicherheit Von Dokumenten Bei Der Eingabe Mit Tangro® - Hochladen per Process Security</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/fixed-advanced-settings-not-showing-in-win11/"><u>[Fixed] Advanced Settings Not Showing in Win11</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-elite-8-high-speed-recording-software/"><u>[Updated] Elite 8 High-Speed Recording Software</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-finding-your-niche-in-the-snapchat-economy/"><u>2024 Approved Finding Your Niche in the Snapchat Economy</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/configure-youtube-pip-on-iphone-quickly/"><u>Configure YouTube PIP on iPhone Quickly</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-unraveling-zooms-secrets-mastery-of-screenshot-sharing/"><u>In 2024, Unraveling Zoom's Secrets Mastery of Screenshot Sharing</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/maximize-your-earnings-chatbot-hustles-ultimate-pc-assembly-guidance-and-classic-portable-games/"><u>Maximize Your Earnings: Chatbot Hustles, Ultimate PC Assembly Guidance & Classic Portable Games</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726027352517-pcyoutube/"><u>PCでプレイしている間、どうやってYouTube用にゲームを記録するか</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-finest-selection-of-wireless-mice-unveiled/"><u>The Finest Selection of Wireless Mice Unveiled</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726027361613-windows-10/"><u>Windows 10ビデオ明るさ設定 - シンプルガイド</u></a></li>
+<li><a href="https://solve-info.techidaily.com/wonderfox-dvd-ripper-effortless-digital-movie-downloads/"><u>WonderFox DVD Ripper - Effortless Digital Movie Downloads</u></a></li>
+<li><a href="https://solve-info.techidaily.com/wonderfoxdvdprofactory-pro/"><u>WonderFoxストアで最新DVDコンバータProとFactory Pro両方ご利用いただけます!</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115927/19272" target="_top" id="2115927">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115927" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115927/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

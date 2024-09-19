@@ -1,7 +1,7 @@
 ---
 title: Distinguishing Between Process Intelligence and Business Intelligence for Strategic Decisions
-date: 2024-09-09T21:32:13.565Z
-updated: 2024-09-14T16:48:11.940Z
+date: 2024-09-13T20:36:28.339Z
+updated: 2024-09-18T22:37:29.898Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/48994c9ff35faf512b4c69833faf0e7ff28b80b0df78e2f2b0d58f413fb2991f.jpg
@@ -62,29 +62,29 @@ Was BI Ihnen nicht sagen kann, zumindest nicht ohne einen großen Aufwand an ben
 
 Können Sie beispielsweise feststellen, ob die Fälle, in denen bestimmte Verkäufer die höchste Anzahl von Aufträgen erhielten, mit effizienten Kundeninteraktionen zusammenfielen, bei denen Anfragen umgehend bearbeitet wurden? Und können Sie umgekehrt feststellen, ob niedrige Auftragsraten mit langsamen Reaktionszeiten oder möglicherweise übersehenen Kundenanfragen korrelierten, bei denen der Versuch komplett ignoriert wurde? Hier versagt BI, da sie nicht in der Lage ist, diese Verbindungen herzustellen und aufzudecken.
 
-## Hauptunterschiede zwischen Process Intelligence und Business Intelligence
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
+  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+## Hauptunterschiede zwischen Process Intelligence und Business Intelligence
 
 ### Schwerpunkt
 
 **Process Intelligence** konzentriert sich auf die Analyse und Optimierung von Geschäftsprozessen, wobei der gesamte Prozesslebenszyklus betrachtet wird. **Business Intelligence** konzentriert sich auf die eingehende Analyse einzelner Prozessschritte.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Datenquellen
 
 **Process Intelligence** verwendet Ereignisprotokolle, Audit-Tabellen, Benutzerinteraktionen und Desktop-Aktivitäten als primäre Datenquellen. Business Intelligence nutzt Daten aus verschiedenen Quellen, die sich auf einen bestimmten Schritt/Teil eines Geschäftsprozesses beziehen, um Muster, Trends und Anomalien zu analysieren und zu visualisieren.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Ergebnisse
 
@@ -95,10 +95,10 @@ Können Sie beispielsweise feststellen, ob die Fälle, in denen bestimmte Verkä
 Zu den Tools von **Process Intelligence** gehören Process Mining, Task Mining, Analytik, Überwachung, Vorhersage und Simulation. Tools für **Business Intelligence** sind in der Regel Dashboards, Berichte, Datenanalysen und andere Visualisierungsfunktionen.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123470/16836" target="_top" id="2123470">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123470" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123470/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Wesentliche Gemeinsamkeiten zwischen Process Intelligence und Business Intelligence
@@ -130,10 +130,10 @@ In seiner 30-jährigen Laufbahn in der Computerbranche hat Scott Opitz verschied
 Zuvor fungierte er unter anderem als Senior Vice President, Worldwide Marketing & Business Development für webMethods (heute Software AG), wobei er für Marketing, Geschäftsentwicklung und strategische Produktplanung verantwortlich zeichnete. Zu webMethods war er im Zuge von dessen Übernahme von IntelliFrame Corporation gekommen, einem Unternehmen, das sowohl Produkte zur Datenintegration als auch die integrierte Workflow- und BPM-Plattform InVista bereitstellte, die Opitz mitgegründet hatte. Scott Opitz hat außerdem zahlreiche Führungspositionen in den Bereichen Technologie, Marketing und Geschäftsentwicklung für staatliche und privatwirtschaftliche Unternehmen bekleidet.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Gefällt mir, teilen oder neu posten 
@@ -199,15 +199,19 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/updated-master-list-the-finest-no-money-video-player-tools-and-software-pcmobile/"><u>[Updated] Master List The Finest No-Money Video Player Tools & Software (PC/Mobile)</u></a></li>
-<li><a href="https://solve-info.techidaily.com/experience-enhanced-marketing-success-using-the-advanced-capabilities-of-cookiebot-solutions/"><u>Experience Enhanced Marketing Success Using the Advanced Capabilities of Cookiebot Solutions</u></a></li>
-<li><a href="https://win-blog.techidaily.com/fallout-76-fixes-how-to-reconnect-your-pc-to-the-server/"><u>Fallout 76 Fixes: How To Reconnect Your PC to the Server</u></a></li>
-<li><a href="https://solve-info.techidaily.com/finereader-14-von-abbyy-neue-funktionen-fur-zusatzliche-pdf-dateitypen-unterstutzen/"><u>FineReader 14 Von ABBYY: Neue Funktionen Für Zusätzliche PDF-Dateitypen Unterstützen</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/gopro-expertise-unleashed-livestreams-directed-at-periscope-and-facebook-for-2024/"><u>Gopro Expertise Unleashed Livestreams Directed at Periscope & Facebook for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-capture-clarity-selecting-best-gimbals-for-your-camera/"><u>In 2024, Capture Clarity Selecting Best Gimbals for Your Camera</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/in-2024-the-ultimate-guide-nine-exceptional-ai-voice-creators-poised-to-elevate-your-daily-life/"><u>In 2024, The Ultimate Guide Nine Exceptional AI Voice Creators Poised to Elevate Your Daily Life</u></a></li>
-<li><a href="https://solve-info.techidaily.com/insights-on-future-ai-trends-with-abbyy-executive-moving-beyond-generative-hype/"><u>Insights on Future AI Trends with ABBYY Executive - Moving Beyond Generative Hype</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/lg-360-camera-full-review-for-2024/"><u>LG 360 Camera Full Review for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/windows-11-audio-enhancement-disabling-instructions-do-it-yourself/"><u>Windows 11 Audio Enhancement Disabling Instructions – Do It Yourself</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-apple-macbook-air-vs-macbook-pro-which-m1-laptop-is-better/"><u>[Updated] 2024 Approved Apple MacBook Air Vs. MacBook Pro Which M1 Laptop Is Better?</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726028846182-8/"><u>【無料】動画にメロディを付けるためのトップ8ソフトウェア選び方：専門家から学ぶ！</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/best-anti-tracker-software-for-xiaomi-redmi-note-12r-drfone-by-drfone-virtual-android/"><u>Best Anti Tracker Software For Xiaomi Redmi Note 12R | Dr.fone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726026473894-bilibili/"><u>Bilibiliビデオでロゴを取り除くためのステップバイステップマニュアル</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/find-my-app-troubleshooting-no-location-found-vs-location-not-available-and-how-to-fix-them-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>Find My App Troubleshooting No Location Found vs. Location Not Available & How to Fix Them On Apple iPhone 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726027651761-hp/"><u>HPラップトップマシンで効率的な動画編集テクニック</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-game-on-a-comprehensive-guide-to-xbox-one-captures/"><u>In 2024, Game On A Comprehensive Guide to Xbox One Captures</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instagram-video-performance-mobile-and-desktop-strategies/"><u>Instagram Video Performance Mobile & Desktop Strategies</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-visionarys-guide-to-harnessing-chatgpt-powerfully-8-strategies-explored/"><u>The Visionary's Guide to Harnessing ChatGPT Powerfully – 8 Strategies Explored</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ultimate-guide-converting-videos-to-compatible-formats-for-samsung-lg-sony-and-apple-devices/"><u>Ultimate Guide: Converting Videos to Compatible Formats for Samsung, LG, Sony & Apple Devices</u></a></li>
+<li><a href="https://win-forum.techidaily.com/understanding-social-platform-leaders-facebook-twitter-instagram-and-youtube-breakdown/"><u>Understanding Social Platform Leaders: Facebook, Twitter, Instagram & Youtube Breakdown</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/why-is-my-pc-continuously-crashing-troubleshooting-the-new-world-game/"><u>Why Is My PC Continuously Crashing? Troubleshooting the 'New World' Game</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726027258055-windows-and-mac/"><u>Windows & Macで動画の鏡像作成手順３つ</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726026566647-3/"><u>ダウンロード無しで音声抽出: ムービーからのトラック3方法紹介</u></a></li>
 </ul></div>
 

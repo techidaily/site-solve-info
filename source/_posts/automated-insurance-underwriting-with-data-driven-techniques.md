@@ -1,7 +1,7 @@
 ---
 title: Automated Insurance Underwriting with Data-Driven Techniques
-date: 2024-09-07T16:29:25.371Z
-updated: 2024-09-14T19:12:36.727Z
+date: 2024-09-13T03:28:25.004Z
+updated: 2024-09-18T21:40:44.102Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b5e9ddde4e68e5c468b12c2fce264f22eb978dc955e335250b1f4d060c7be8f8.jpg
@@ -28,10 +28,10 @@ Moderator, Founder, **Data Strategy as a Service**
 ![Eileenpotter 198X198](https://static1.abbyy.com/abbyycommedia/35572/eileenpotter-198x198.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Eileen Potter
@@ -40,6 +40,13 @@ Solution Marketing Manager, Insurance, **ABBYY**
 
 ![01 Nophoto 198X198](https://static4.abbyy.com/abbyycommedia/25100/01-nophoto-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Matthew Norris
 
 Head of Digital Distribution UK and Europe, **Beazley**
@@ -47,17 +54,17 @@ Head of Digital Distribution UK and Europe, **Beazley**
 ![01 Nophoto 198X198](https://static4.abbyy.com/abbyycommedia/25100/01-nophoto-198x198.png)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Gareth Hemming
@@ -65,13 +72,6 @@ Head of Digital Distribution UK and Europe, **Beazley**
 Chief Distribution Officer at UK General Insurance, **Aviva**
 
 ![01 Nophoto 198X198](https://static4.abbyy.com/abbyycommedia/25100/01-nophoto-198x198.png)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### James Russell
 
@@ -86,19 +86,19 @@ Co-Founder & CEO, **Brisk**
 * Feed claims data back into underwriting in a robust and standardised way to enable a better view of risk, as well as more accurate pricing and reserving.
 * How insurers and brokers can grasp a better understanding of their internal processes and how to analyse where digitisation and automation can provide additional benefits.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Watch now
 
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Thank you, enjoy your webinar!
 
@@ -171,18 +171,17 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-deciding-on-ideal-vimeo-subscription-plan/"><u>[New] Deciding on Ideal Vimeo Subscription Plan</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-elevating-your-social-media-game-horizontal-videos-on-igtv/"><u>[New] Elevating Your Social Media Game Horizontal Videos on IGTV</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-unlock-the-potential-tutorial-on-enabling-speech-transcription-in-powerpoint/"><u>[New] Unlock the Potential Tutorial on Enabling Speech Transcription in PowerPoint</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-flexicapture-innovatives-losungsangebot-fur-die-prufungsabwicklung-der-uzh/"><u>ABBYY FlexiCapture: Innovatives Lösungsangebot Für Die Prüfungsabwicklung Der UZH</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-news-and-updates-with-timelinepi/"><u>ABBYY News and Updates with TimelinePI</u></a></li>
-<li><a href="https://solve-info.techidaily.com/beyond-horizons-in-document-processing-discover-how-abvs-innovation-sets-new-standards/"><u>Beyond Horizons in Document Processing: Discover How ABV's Innovation Sets New Standards</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-user-engagement-with-our-advanced-cookiebot-integration-solutions/"><u>Boost User Engagement with Our Advanced Cookiebot Integration Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-your-websites-traffic-with-cookiebot-technology-power/"><u>Boost Your Website's Traffic with Cookiebot Technology Power</u></a></li>
-<li><a href="https://win-answers.techidaily.com/conquer-lag-the-definitive-discord-performance-fixes-for-gamers-in-202n4/"><u>Conquer Lag: The Definitive Discord Performance Fixes for Gamers in 202N4</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-nokia-105-classic-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Nokia 105 Classic? | Dr.fone</u></a></li>
-<li><a href="https://discover-helper.techidaily.com/kostenlose-herunterladen-von-winx-software-dvd-ripper-und-hochwertiger-videokonverter/"><u>Kostenlose Herunterladen Von WinX-Software: DVD Ripper Und Hochwertiger Videokonverter</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-combine-multiple-avi-files-into-one-top-10-free-avi-merger-tools/"><u>New Combine Multiple AVI Files Into One Top 10 Free AVI Merger Tools</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-timeline-5er/"><u>タスクマイニング機能付きのABBYY Timeline 5でネットワーク分析:人間関�er、プロセス、コンテンツ</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-the-cryptographers-guide-to-masked-recordings/"><u>[New] In 2024, The Cryptographer's Guide to Masked Recordings</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-vimeo-integration-for-professional-instagram-users-for-2024/"><u>[New] Vimeo Integration for Professional Instagram Users for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-real-time-view-count-detectors/"><u>[Updated] 2024 Approved Real-Time View Count Detectors</u></a></li>
+<li><a href="https://solve-info.techidaily.com/3gppmp3-seo/"><u>「安全で高速・簡単な3GPPファイルのMP3への大容量変換ガイド – SEO向け最適化タイトル」</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726029928893-wav/"><u>「WAV」フォーマットで動画・音楽を変換する方法</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-the-link-between-video-views-and-youtube-earning-potential/"><u>2024 Approved The Link Between Video Views and YouTube Earning Potential</u></a></li>
+<li><a href="https://solve-info.techidaily.com/3-movmpeg/"><u>3つの最高のフリーコンバイター: MOVファイルからMPEGへ</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/giggles-galore-celebrating-the-funniest-web-content-creators-for-2024/"><u>Giggles Galore Celebrating the Funniest Web Content Creators for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/profiles-in-metaverse-promotion-case-studies-and-more/"><u>Profiles in Metaverse Promotion Case Studies and More</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/revolutionize-your-writing-with-undiscovered-markdownnote-taking-masterpiece/"><u>Revolutionize Your Writing with Undiscovered Markdown/Note Taking Masterpiece</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/step-by-step-guide-resolving-tozo-t6-compatibility-problems-with-windows-11/"><u>Step-by-Step Guide: Resolving Tozo T6 Compatibility Problems with Windows 11</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-in-2024-the-ultimate-guide-to-running-windows-and-mac-os-video-editing-apps-on-chrome-os/"><u>Updated In 2024, The Ultimate Guide to Running Windows and Mac OS Video Editing Apps on Chrome OS</u></a></li>
 </ul></div>
 

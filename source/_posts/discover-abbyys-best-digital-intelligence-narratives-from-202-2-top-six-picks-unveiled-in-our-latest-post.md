@@ -1,7 +1,7 @@
 ---
 title: Discover ABBYY's Best Digital Intelligence Narratives From 202 2 - Top Six Picks Unveiled in Our Latest Post!
-date: 2024-09-08T19:02:25.420Z
-updated: 2024-09-14T20:33:24.535Z
+date: 2024-09-12T22:26:08.316Z
+updated: 2024-09-19T02:08:00.804Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/eb6701eb360daf00501aea3027f5f407ca588034548873224d944d5de49dcde3.jpg
@@ -39,13 +39,6 @@ With social distancing measures in place and businesses across diverse industrie
 
 [Read the article.](https://www.cmswire.com/digital-experience/social-distancing-has-raised-the-bar-for-the-digital-experience/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135473/26400" target="_top" id="2135473">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135473" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135473/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. Data Insight Plays a Key Role in How ABBYY Supplies Vital Pieces of the RPA Puzzle
 
 Digital Intelligence tools are becoming more essential for enterprise companies as interest in automation continues to grow. One of the hottest fields in the space has been Robotic Process Automation (RPA), which involves the use of software robots to automate repetitive, mundane tasks. Robert Youngjohns, Chairman of the Board at ABBYY, spoke with Dave Vellante, Chief Analyst at market research firm Wikibon and co-host of SiliconANGLE Media’s video studio theCUBE.
@@ -58,19 +51,6 @@ They discussed how ABBYY’s platform identifies process flows, the importance o
 
 ![social distancing](https://static1.abbyy.com/abbyycommedia/31669/blog-1262271993-848x444.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 COVID-19 is the defining event of 2020, and with it, ”social distancing” entered our vocabulary for modern commerce, recasting interpersonal and business interactions. Now as part of our social consciousness, social distancing is fueling a growing reliance on virtualization and technologically mediated relationships. While the urgency of social distancing is already putting our technology and process readiness to the test, it raises an important question about how people, process, and content interact in this new normal. Social distancing has made the customer experience an imperative, driving digital transformation by replacing human-to-human with app-defined interactions.
 
 [Read the article.](https://www.kmworld.com/Articles/Editorial/ViewPoints/The-need-for-digital-intelligence-in-the-time-of-social-distancing--140797.aspx)
@@ -79,20 +59,27 @@ COVID-19 is the defining event of 2020, and with it, ”social distancing” ent
 
 ![ideas for improving customer service](https://static1.abbyy.com/abbyycommedia/31624/blog-digital-intelligence-1-848x444.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 The pandemic shifted many IT resources toward business continuity efforts, and many workers and leaders reached the point where they were struggling to ramp up or resume digital transformation projects. Organizations looked to tap into the benefits attained from scaling end-to-end digital transformation but needed direction on the right strategies to accelerate higher-value initiatives. The challenges stem from a lack of understanding of business processes coupled with an inability to turn a company’s data into actionable, valuable information that drives strategic business decisions. ABBYY shared six fundamental steps to help implement digital transformation.
 
 [Read the article.](https://www.cmswire.com/leadership/6-steps-to-revive-your-digital-transformation-projects/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 6\. Five Crucial Insurance Questions for the Post-COVID 'New Normal'
 
 ![process improvement in insurance](https://static1.abbyy.com/abbyycommedia/31573/blog-digital-intelligence-cover-848x444.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Only several months into the coronavirus pandemic, it became clear that the crisis had rewritten the rules for customer engagement, business processes, and technology. Insurers understood that the customer experience is critical during the claims process, otherwise they risk customer attrition. While a number of factors play a role in resolving claims, one of the most important drivers of a positive customer experience is an insurer’s operational processes. It’s vital for insurers to evaluate how to become more digitally efficient, how to enhance the customer experience by connecting historically disparate processes, and ways they can effectively bring critical customer data directly into core operational processes.
 
@@ -101,6 +88,13 @@ We shared five questions to help leaders at insurance companies evaluate if ther
 [Read the article.](https://www.dig-in.com/opinion/covid-19-5-tips-for-insurers-to-thrive)
 
 [Intelligent Automation](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -165,17 +159,17 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/ree-music-unlocked-the-ultimate-library-for-videographers/"><u>[New] Free Music Unlocked The Ultimate Library for Videographers</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-endless-memories-free-saving-on-instagram-stories-for-2024/"><u>[Updated] Endless Memories FREE Saving on Instagram Stories for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevating-your-sites-potential-through-advanced-cookiebot-integration/"><u>Elevating Your Site's Potential Through Advanced Cookiebot Integration</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhance-your-analytics-and-personalization-with-our-cookiebot-solution/"><u>Enhance Your Analytics and Personalization with Our Cookiebot Solution!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhance-your-digital-marketing-strategy-using-smart-tracking-technology-empowered-by-cookiebot-solutions/"><u>Enhance Your Digital Marketing Strategy Using Smart Tracking Technology – Empowered by Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-marketing-insights-and-control-with-the-innovative-cookiebot-system/"><u>Enhanced Marketing Insights and Control with the Innovative Cookiebot System</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-gps-location-on-oneplus-ace-3-easily-and-safely-drfone-by-drfone-virtual-android/"><u>How to Change GPS Location on OnePlus Ace 3 Easily & Safely | Dr.fone</u></a></li>
-<li><a href="https://driver-download.techidaily.com/how-to-update-or-download-dell-latitude-e6430-drivers-on-windows-step-by-step-guide/"><u>How to Update or Download Dell Latitude E6430 Drivers on Windows: Step-by-Step Guide</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-on-air-in-minutes-easy-steps-to-start-a-live-stream/"><u>In 2024, On Air in Minutes Easy Steps to Start a Live Stream</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-strategic-endings-keeping-viewers-engaged-on-yt/"><u>In 2024, Strategic Endings Keeping Viewers Engaged on YT</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Lava Blaze Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/top-6-best-4k-full-frame-camera-for-2024/"><u>Top 6 Best 4K Full Frame Camera for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/5-ways-to-control-chatgpt-with-your-voice/"><u>5 Ways to Control ChatGPT With Your Voice</u></a></li>
+<li><a href="https://techidaily.com/complete-guide-to-hard-reset-your-oneplus-nord-n30-5g-drfone-by-drfone-reset-android-reset-android/"><u>Complete Guide to Hard Reset Your OnePlus Nord N30 5G | Dr.fone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/comprehensive-comparison-of-windows-10-and-windows-8-key-upgrades-explained/"><u>Comprehensive Comparison of Windows 10 & Windows 8: Key Upgrades Explained</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/proactive-preservation-ios-photos-to-your-snap-story-for-2024/"><u>Proactive Preservation IOS Photos to Your Snap Story for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/smartphone-accessories-for-making-videos/"><u>Smartphone Accessories for Making Videos</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solving-discords-problem-with-recording-gaming-sounds-effectively/"><u>Solving Discord's Problem with Recording Gaming Sounds Effectively</u></a></li>
+<li><a href="https://solve-info.techidaily.com/top-rated-batch-processing-video-compression-tools-best-options-available/"><u>Top-Rated Batch Processing Video Compression Tools: Best Options Available</u></a></li>
+<li><a href="https://solve-info.techidaily.com/transform-your-videos-comprehensive-tutorial-on-changing-ogm-to-mp4/"><u>Transform Your Videos: Comprehensive Tutorial on Changing OGM to MP4</u></a></li>
+<li><a href="https://solve-info.techidaily.com/trouble-free-guide-watching-dvd-movies-on-your-pc/"><u>Trouble-Free Guide: Watching DVD Movies on Your PC</u></a></li>
+<li><a href="https://solve-info.techidaily.com/trouble-free-techniques-for-adding-mkv-videos-into-sony-vegas/"><u>Trouble-Free Techniques for Adding MKV Videos Into Sony Vegas</u></a></li>
+<li><a href="https://solve-info.techidaily.com/troubleshooting-downloads-how-to-successfully-retrieve-abema-previously-abematv-streaming-content/"><u>Troubleshooting Downloads: How to Successfully Retrieve ABEMA (Previously AbemaTV) Streaming Content</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/ways-to-stop-parent-tracking-your-honor-v-purse-drfone-by-drfone-virtual-android/"><u>Ways to stop parent tracking your Honor V Purse | Dr.fone</u></a></li>
 </ul></div>
 

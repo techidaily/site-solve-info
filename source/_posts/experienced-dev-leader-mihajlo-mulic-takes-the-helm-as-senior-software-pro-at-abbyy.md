@@ -1,7 +1,7 @@
 ---
 title: "Experienced Dev Leader: Mihajlo Mulic Takes the Helm as Senior Software Pro at ABBYY"
-date: 2024-09-07T21:24:58.227Z
-updated: 2024-09-15T00:01:51.976Z
+date: 2024-09-17T22:17:48.057Z
+updated: 2024-09-18T22:36:34.225Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/150327f2d987016a4ee34ba4bcfca25233b747d0406c31e769e57594f793215f.jpg
@@ -53,13 +53,6 @@ The most exciting part, without a doubt, is the people. I have the privilege of 
 
 My job is very dynamic in nature, there are different problems to solve each day, and it keeps things exciting. You're constantly challenged to solve problems, innovate, and improve solutions.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### What do you find most challenging in your role?
 
 Haha! The most challenging part is, ironically, solving different problems every day. In the short term, it can sometimes feel intense, but in the long run, it's what leads to personal and professional growth.
@@ -69,15 +62,22 @@ The beginning, transitioning into a new role or company, is often the toughest. 
 ![Santorini, Greece - ABBYY Software Developers - Mihajlo Mulic](https://static1.abbyy.com/abbyycommedia/38045/mihajlo-mulic-abbyy-santorini.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Your top advice to someone looking to follow a career path in Software Development?
 
 My advice is simple: cultivate curiosity and patience. **Curiosity keeps you asking questions and exploring, while patience enables you to tackle complex problems. Both are crucial for continuous learning, a must in the fast-evolving landscape of software engineering.**
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Work-life balance is important—how would you define it for yourself?
 
@@ -90,10 +90,10 @@ Sometimes this means staying late to finish a task, but sometimes it could mean 
 ![](https://static1.abbyy.com/abbyycommedia/38048/mihajlo-mulic-family-2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Lastly, could you recommend us a book/movie/series/ or activity you have recently discovered or are enjoying at the moment? What’s so great about it?
@@ -103,10 +103,10 @@ Not long after I was born, my parents opened a bookstore (pictured below), and i
 ![](https://static1.abbyy.com/abbyycommedia/38049/mihajlo-mulic-library.png)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Since then, I've really broadened my reading horizons. I even got impatient waiting for translations and started diving into books in English. One that stands out is _The Wheel of Time_ series, which just got its television adaptation that is fantastic. Although, I'd say it's worth reading the books first.
@@ -130,10 +130,10 @@ Want to follow Mihajlo's footsteps and join one of our tech hubs? You're in luck
 Share 
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Related posts
@@ -205,14 +205,17 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/avigating-youtubes-systems-after-video-upload/"><u>[New] Navigating YouTube's Systems After Video Upload</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/agpteks-innovative-budget-friendly-mp3-solution/"><u>AGPTEK's Innovative, Budget-Friendly MP3 Solution</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-oneplus-open-phone-without-password-by-drfone-android/"><u>How To Unlock OnePlus Open Phone Without Password?</u></a></li>
-<li><a href="https://solve-info.techidaily.com/mastering-the-procurement-and-payments-journey-a-definitive-guide/"><u>Mastering the Procurement and Payments Journey: A Definitive Guide</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimized-with-the-help-of-cookiebot-enhanced-website-analytics/"><u>Optimized with the Help of Cookiebot: Enhanced Website Analytics</u></a></li>
-<li><a href="https://solve-info.techidaily.com/revolutionizing-document-automation-through-abbyy-vance-harnessing-power-of-computer-vision-and-large-language-models/"><u>Revolutionizing Document Automation Through ABBYY Vance - Harnessing Power of Computer Vision and Large Language Models</u></a></li>
-<li><a href="https://solve-info.techidaily.com/revolutionizing-public-sector-the-impact-of-artificer-intelligence-in-citizen-identification/"><u>Revolutionizing Public Sector: The Impact of Artificer Intelligence in Citizen Identification</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/the-ultimate-guide-3-essential-steps-for-a-seamless-iphone-upgrade-from-previous-models-to-the-iphone-x/"><u>The Ultimate Guide: 3 Essential Steps for a Seamless iPhone Upgrade From Previous Models to the iPhone X</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/webpage-wonders-enhancing-with-youtubes-playlist-features-for-2024/"><u>Webpage Wonders Enhancing with YouTube's Playlist Features for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-best-practices-for-streaming-athletic-games-real-time/"><u>[New] 2024 Approved Best Practices for Streaming Athletic Games Real-Time</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-engaging-with-notable-figures-on-snapchat/"><u>[New] 2024 Approved Engaging with Notable Figures on Snapchat</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-navigating-the-lands-marketplace-of-product-sponsored-youtube-content/"><u>[New] In 2024, Navigating the Lands Marketplace of Product-Sponsored YouTube Content</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-focus-and-frame-the-art-of-intimate-movie-filming/"><u>[Updated] Focus & Frame The Art of Intimate Movie Filming</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-next-gen-ai-for-professional-visual-editing/"><u>[Updated] Next Gen AI for Professional Visual Editing</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-convenient-methods-for-storing-webinars-windows-and-mac-solutions/"><u>2024 Approved Convenient Methods for Storing Webinars Windows & Mac Solutions</u></a></li>
+<li><a href="https://solve-info.techidaily.com/capcutwindows/"><u>CapCutアプリケーションでWindows上で動画劇場化マスタリー術</u></a></li>
+<li><a href="https://solve-info.techidaily.com/download-your-own-portable-version-freeze-frame-edition-on-the-move-viewing/"><u>Download Your Own Portable Version: Freeze Frame Edition - On-the-Move Viewing</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/easily-back-up-drivers-before-a-fresh-install-of-windows-10-7-8-81or-xp/"><u>Easily Back Up Drivers Before a Fresh Install of Windows 10, 7, 8, 8.1or XP</u></a></li>
+<li><a href="https://solve-info.techidaily.com/effortless-conversion-of-vob-video-files-to-avi-for-windows-users/"><u>Effortless Conversion of VOB Video Files to AVI for Windows Users</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/expert-recommendations-the-ultimate-list-of-5-premium-video-editors-unveiled/"><u>Expert Recommendations: The Ultimate List of 5 Premium Video Editors Unveiled</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/is-fake-gps-location-spoofer-a-good-choice-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>Is Fake GPS Location Spoofer a Good Choice On Apple iPhone 11? | Dr.fone</u></a></li>
 </ul></div>
 

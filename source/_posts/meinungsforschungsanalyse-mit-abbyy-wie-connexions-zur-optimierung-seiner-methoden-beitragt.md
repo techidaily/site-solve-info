@@ -1,7 +1,7 @@
 ---
 title: "Meinungsforschungsanalyse Mit ABBYY: Wie Connexions Zur Optimierung Seiner Methoden Beiträgt"
-date: 2024-09-13T22:06:39.128Z
-updated: 2024-09-14T19:54:38.998Z
+date: 2024-09-15T22:41:05.356Z
+updated: 2024-09-18T17:04:08.354Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b7fdec82e5e2a50f89b07a18bb64e205705f93d7819f0fe370579d848f9daaea.jpg
@@ -30,10 +30,10 @@ Tag für Tag sehen sich Unternehmen und Organisationen weltweit der monumentalen
 Connexions Berkshire plante eine Umfrage mit dem Titel „Beteiligung an positiven Unternehmungen“ (Participation in Positive Activities, PIPA) unter ca. 9.500 Jugendlichen. Die Ergebnisse würden die Erfassung von ungefähr 13 Datenposten pro Person erfordern, und der gesamte Informationsrücklauf müsste dann in die Connexions Datenbank übernommen werden. Selbst bei einer geschätzten Beteiligung von nur 50 % wären dann über 60.000 Posten manuell durch das Team bei Connexions zu erfassen gewesen. Wie Connexions Knowledge Manager Steve Maddison es formulierte, „wäre die manuelle Erfassung ganz offensichtlich eine Mammut-Aufgabe gewesen, für die wir entweder vorübergehend zusätzliches Personal einstellen oder die jetzige Belegschaft in großem Umfang zusätzlich belasten hätten müssen.“ Die logische Schlussfolgerung war, nach einer Lösung für Formularverarbeitung und Data Capture zu suchen, mit der der gesamte Prozess automatisiert werden konnte.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115947/19272" target="_top" id="2115947">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115947" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Die Lösung
@@ -51,19 +51,6 @@ Nach der Installation und der Inbetriebnahme von FlexiCapture 8.0 Professional i
 
 In zehn Monaten der Nutzung von FlexiCapture konnte Connexions die Verarbeitungszeit seiner Umfrageergebnisse von mehreren Wochen auf nur zwei Tage verkürzen, die Einstellung von Zeitarbeitskräften ist somit nicht notwendig. In diesem Zeitraum wurden weit über 15.000 Formulare verarbeitet und Connexions schätzt, dass diese Zahl in den nächsten Monaten auf knapp 30.000 anwachsen wird. Zu diesem Zeitpunkt werden sich die Investitionskosten bereits amortisiert haben. „ABBYY FlexiCapture ermöglicht es uns, zusätzliche Aufgaben zu übernehmen, die wir vorher einfach nicht hätten bewältigen können. Überdies hat es den Ablauf unserer Umfragen effizienter gestaltet, so dass unsere Mitarbeiter weniger Zeit für Verwaltungsvorgänge aufwenden müssen und sich auf die Arbeit mit jungen Menschen konzentrieren können", erläutert Maddison.
 
-<!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Der Blick nach vorn
 
 Connexions Berkshire hat bereits entschieden, weitere Lizenzen der Software zu erwerben. Zudem urden die Funktionalitäten von ABBYY FlexiCapture und die Ergebnisse des Pilotprojekts in der Berkshire Niederlassung den anderen Connexions Organisationen in England präsentiert. Daraufhin haben sich viele weitere Organisationen ebenfalls für die Nutzung von FlexiCapture entschieden, und aufgrund des Erfolges des Pilotprojekts in Berkshire ist eine umfassende, nationale Befragung mit 600.000 Teilnehmern geplant. „Ich verstehe ehrlich gesagt nicht, wie wir bislang ohne diese Technologie auskommen konnten", erklärt Maddison. „Wir gehen davon aus, dass die Umfragen jedes Jahr in ihrem Umfang wachsen werden, und ohne ABBYY könnten wir den zusätzlichen Arbeitsaufwand gar nicht bewältigen."
@@ -77,6 +64,13 @@ Connexions Berkshire hat bereits entschieden, weitere Lizenzen der Software zu e
 [Kontakt ›](https://tools.techidaily.com/abbyy/products/)
 
 Teilen 
+
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Sind Sie bereit, mit einem Experten zu sprechen?
 
@@ -99,14 +93,13 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-from-frame-to-script-innovative-ways-of-integrating-text-in-images/"><u>[New] From Frame to Script Innovative Ways of Integrating Text in Images</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-unlocking-creative-edits-your-guide-to-snapchat-photos/"><u>[New] Unlocking Creative Edits Your Guide to Snapchat Photos</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-mastering-twitter-videos-adhere-to-aspect-ratio-rules/"><u>2024 Approved Mastering Twitter Videos Adhere to Aspect Ratio Rules</u></a></li>
-<li><a href="https://solve-info.techidaily.com/harnessing-the-power-of-cookiebot-for-superior-site-personalization-and-growth/"><u>Harnessing the Power of Cookiebot for Superior Site Personalization and Growth</u></a></li>
-<li><a href="https://solve-info.techidaily.com/how-process-intelligence-leads-to-success-understanding-the-top-five-advantages/"><u>How Process Intelligence Leads to Success: Understanding the Top Five Advantages</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-innovation-in-action-reviewing-vidmas-new-screen-recording-features/"><u>In 2024, Innovation in Action? Reviewing Vidma's New Screen Recording Features</u></a></li>
-<li><a href="https://solve-info.techidaily.com/integrating-compliance-protocols-with-exceptional-cx-strategies-in-banking-and-finance/"><u>Integrating Compliance Protocols with Exceptional CX Strategies in Banking & Finance</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/latest-nvidia-geforce-rtx-2070-super-graphics-card-driver-downloads-and-updates-for-windows-11/"><u>Latest NVIDIA GeForce RTX 2070 Super Graphics Card Driver Downloads & Updates for Windows 11</u></a></li>
-<li><a href="https://solve-helper.techidaily.com/ts2/"><u>TSファイルにおいて安全なクロスオーバー編成手順2種類</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-what-is-igtv-and-how-to-use-it-everything-you-need-to-know/"><u>[New] 2024 Approved What Is IGTV and How to Use It Everything You Need to Know</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-distinguishing-between-youtube-content-control-and-creative-commons-flexibility/"><u>[Updated] In 2024, Distinguishing Between YouTube Content Control and Creative Commons Flexibility</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-mastering-the-art-of-finding-influential-voices-in-your-space/"><u>[Updated] In 2024, Mastering the Art of Finding Influential Voices in Your Space</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726027929115-2/"><u>「ビデオ変換ガイド：2通りの動画ファイル作成手順を学ぶ」</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/caixuns-value-proposition-delving-into-its-75-inch-4k-capable-android-tv-for-cost-conscious-buyers/"><u>Caixun's Value Proposition: Delving Into Its 75-Inch, 4K Capable Android TV for Cost-Conscious Buyers</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/crafting-captivating-captions-elevate-your-pages-popularity-for-2024/"><u>Crafting Captivating Captions Elevate Your Page's Popularity for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726028779334-gopromp4/"><u>GoPro撮影したファイルに最適なMP4変換方法を学ぶ！</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726028345290-mp4/"><u>MP4ファイルの再コーディング手順とテクニック</u></a></li>
 </ul></div>
 

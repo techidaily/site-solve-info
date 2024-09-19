@@ -1,7 +1,7 @@
 ---
 title: "Cultivating Sharp Skills: Insights Into Intellectual Development From the ABBYY Blog"
-date: 2024-09-10T23:58:11.998Z
-updated: 2024-09-14T18:00:10.914Z
+date: 2024-09-18T02:42:58.937Z
+updated: 2024-09-19T02:29:27.412Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/969f33b117977e3c9183a386d2bdc9ab1274e9f63db8d891784a69dcdfd3c683.jpg
@@ -36,10 +36,10 @@ As artificial intelligence (AI) weaves itself into every aspect of production an
 **IY.** There are lots of factors that play a role. Generally, the higher the level of human expertise needed to tag certain dataset, the harder and more costly it is. If you have 1 Gb of cats and dogs photos and you want to tag manually, it should be relatively easy. If you have 1 Gb of Japanese manga and you want to tag all the pictures that have adjectives in the lines of the characters, that is way harder to pull off.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118318/7443" target="_top" id="2118318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118318" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Q. Is data classification (as in FlexiCapture) the same thing as "data-tagging" or "data-labelling"?
@@ -50,18 +50,18 @@ As artificial intelligence (AI) weaves itself into every aspect of production an
 
 **IY.** You have to have data to train a model from scratch, but it does not necessarily mean that you need a lot of data to use certain AI-powered product. For example, we have advanced NLP algorithms in ABBYY that could be used for extensive document analysis. To develop these algorithm, we had to work with huge corpora of texts in every language, so that now business can have access to this NLP system and apply it to their datasets. Each of our clients would have to use years of research and developments and tons of data to get the same NLP technology on their own. The good news is that they can use ours for a fraction of that cost.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Q. Which ABBYY technologies rely heavily on ML technology?
 
 **IY.** Every product, that we currently have, uses machine learning in some form, but that does not mean that you need a lot of data to start using such products. For example, FlexiCapture uses convolutional neural networks for document preprocessing and classification, but just several examples of the documents are usually enough to have the pipeline up and running. Our NLP technologies use a spectrum of machine learning methods and combine them with advanced ontologies for every language, but we can carry out a lot of tasks connected with natural language processing for you without extensive datasets provided to us. So, if you think of any document-related bottlenecks in your current business processes, ABBYY probably has a product for you to make your business faster and simpler, and your employees more effective and engaged.
 
 [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") 
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -126,16 +126,16 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-pro-mobile-techniques-for-snapchat-recording/"><u>[New] Pro Mobile Techniques for Snapchat Recording</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-the-gopro-hero5-black-journey-elevating-your-visual-storytelling-for-2024/"><u>[Updated] The GoPro Hero5 Black Journey Elevating Your Visual Storytelling for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-essential-webcam-methods-for-powerpoint-recordings/"><u>2024 Approved Essential Webcam Methods for PowerPoint Recordings</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-announces-appointment-of-weronika-niemczyk-as-senior-hr-director-and-people-strategy-head/"><u>ABBYY Announces Appointment of Weronika Niemczyk as Senior HR Director and People Strategy Head</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-launches-innovative-intelligent-automation-engineering-hub-in-lithuania/"><u>ABBYY Launches Innovative Intelligent Automation Engineering Hub in Lithuania</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-welcomes-ulf-persson-as-their-latest-chief-executive-officer/"><u>ABBYY Welcomes Ulf Persson as Their Latest Chief Executive Officer</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-chosen-as-the-premier-partner-of-everest-groups-idp-with-peak-matrix/"><u>ABBYY: Chosen as the Premier Partner of Everest Group's IDP with Peak Matrix</u></a></li>
-<li><a href="https://solve-info.techidaily.com/analysez-lefficacite-de-votre-processus-dadjudication-livre-electronique-abbyy-guide-complet/"><u>Analysez L'Efficacité De Votre Processus D'Adjudication : Livre Électronique ABBYY - Guide Complet</u></a></li>
-<li><a href="https://techidaily.com/complete-guide-to-hard-reset-your-infinix-gt-10-pro-drfone-by-drfone-reset-android-reset-android/"><u>Complete Guide to Hard Reset Your Infinix GT 10 Pro | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/effective-solutions-for-fixing-a-lost-or-hidden-launchdll-component/"><u>Effective Solutions for Fixing a Lost or Hidden Launch.dll Component</u></a></li>
-<li><a href="https://games-able.techidaily.com/enhancing-steam-deck-experience-with-epic-and-gog-titles/"><u>Enhancing Steam Deck Experience with Epic & GOG Titles</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-optimizing-vimeo-playback-speed/"><u>[New] Optimizing Vimeo Playback Speed</u></a></li>
+<li><a href="https://solve-info.techidaily.com/7n/"><u>「様々な形式でも、動画解像度を簡単に切り替えるための7つの自由提�n体ツール」</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-from-footage-to-feature-making-youtube-thumbnails-mobile/"><u>2024 Approved From Footage to Feature Making YouTube Thumbnails (Mobile)</u></a></li>
+<li><a href="https://solve-info.techidaily.com/ac3dtsdvd/"><u>AC3/DTSへのシンプルなDVD変換手順：ステップバイステップガイド</u></a></li>
+<li><a href="https://solve-info.techidaily.com/best-free-instagram-reel-sounds-top-4-downloading-tools/"><u>Best Free Instagram Reel Sounds: Top 4 Downloading Tools</u></a></li>
+<li><a href="https://solve-info.techidaily.com/comparing-ipod-video-converter-factory-vs-ipod-video-converter-factory-pro-features/"><u>Comparing iPod Video Converter Factory Vs. IPod Video Converter Factory Pro Features</u></a></li>
+<li><a href="https://solve-info.techidaily.com/complete-tutorial-mastering-the-art-of-cropping-avi-videos-both-on-and-off-the-web/"><u>Complete Tutorial: Mastering the Art of Cropping AVI Videos Both On and Off the Web</u></a></li>
+<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-itel-s23plus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Itel S23+ | Dr.fone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-your-free-focusrite-scarlett-2i2-windows-audio-interface-download/"><u>Get Your Free Focusrite Scarlett 2I2 Windows Audio Interface Download</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/ranking-dos-melhores-editores-de-montagem-de-videos-em-2024-visao-dentro-da-industria-pela-movavi/"><u>Ranking Dos Melhores Editores De Montagem De Vídeos Em 2024 - Visão Dentro Da Indústria Pela Movavi</u></a></li>
+<li><a href="https://win-able.techidaily.com/simple-tutorial-converting-your-au-files-to-mp3-format-quickly-and-easily/"><u>Simple Tutorial: Converting Your AU Files to MP3 Format Quickly and Easily</u></a></li>
 </ul></div>
 

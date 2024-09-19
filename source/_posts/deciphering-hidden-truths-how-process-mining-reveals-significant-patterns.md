@@ -1,7 +1,7 @@
 ---
 title: "Deciphering Hidden Truths: How Process Mining Reveals Significant Patterns"
-date: 2024-09-12T16:29:35.951Z
-updated: 2024-09-14T19:33:05.769Z
+date: 2024-09-15T03:24:01.699Z
+updated: 2024-09-18T19:43:55.529Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8a9761b8978fa146b9a567d40083be19a38cbff4b3b505bcb0e46f12fc854ef6.png
@@ -25,22 +25,15 @@ Senior Analyst and Operations Officer at **NelsonHall**
 
 ![Bruce Orcut 198X198](https://static2.abbyy.com/abbyycommedia/35353/bruce-orcut-198x198.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Bruce Orcutt
 
 Senior Vice President of Product Marketing at **ABBYY**
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Overview
@@ -59,6 +52,13 @@ ABBYY is proud to have been named a leader in the NelsonHall NEAT Evaluation for
 
 This is a great opportunity to hear from some of the top minds on process improvement. See how you can drive real business transformation.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Watch now
 
 ### Get in touch with us
@@ -70,14 +70,14 @@ All personal information collected via this method is under full scope of all pr
 
 [![20 Can You Dig It 643X363](https://static4.abbyy.com/abbyycommedia/35356/20-can-you-dig-it-643x363.jpg)](https://www.youtube.com/watch?v=k-LkEY7mMkg) 
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
@@ -144,19 +144,17 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/2024-approved-exploring-the-core-inside-apples-m1-innovation/"><u>2024 Approved Exploring the Core Inside Apple’s M1 Innovation</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-prime-line-up-the-best-9-free-youtube-logo-makers-reviewed/"><u>2024 Approved Prime Line-Up The Best 9 Free YouTube Logo Makers Reviewed</u></a></li>
-<li><a href="https://solve-info.techidaily.com/auf-dem-weg-zur-konsolidierung-von-buchhaltungsprozessen-wie-abbyy-und-sap-rochlings-rechnungswesen-vereinen/"><u>Auf Dem Weg Zur Konsolidierung Von Buchhaltungsprozessen – Wie ABBYY Und SAP Röchlings Rechnungswesen Vereinen</u></a></li>
-<li><a href="https://solve-info.techidaily.com/automated-ad-targeting-powered-with-cutting-edge-cookiebot-technology/"><u>Automated Ad Targeting: Powered with Cutting-Edge Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/automated-with-cookiebot-streamlined-data-collection-and-analytics/"><u>Automated with Cookiebot: Streamlined Data Collection and Analytics</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-your-traffic-with-advanced-cookiebot-technology/"><u>Boost Your Traffic with Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/bringing-anime-characters-to-life-jujutsu-kaisen-for-tiktok/"><u>Bringing Anime Characters to Life Jujutsu Kaisen for TikTok</u></a></li>
-<li><a href="https://solve-info.techidaily.com/como-navegar-por-la-directriz-de-privacidad-y-uso-de-cookies-de-abbyy-tips-e-instrucciones-detalladas/"><u>Cómo Navegar Por La Directriz De Privacidad Y Uso De Cookies De Abbyy: Tips E Instrucciones Detalladas</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/get-and-set-up-your-nvme-drive-with-the-newest-windows-compatible-drivers/"><u>Get & Set Up Your NVMe Drive with the Newest Windows Compatible Drivers</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-avoid-facebook-reels-habit/"><u>How to Avoid Facebook Reels Habit</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-without-backup-on-tecno-spark-10-4g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos from Android Gallery without backup on Tecno Spark 10 4G</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Google Pixel 8 Pro? | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/is-your-infinix-note-30i-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your Infinix Note 30i working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/live-streaming-mastery-enhance-your-broadcasts-with-manycam-top-virtual-camera-software/"><u>Live Streaming Mastery: Enhance Your Broadcasts with ManyCam - Top Virtual Camera Software</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-breaking-the-boundaries-vr-film-production-essentials-top-9/"><u>[New] 2024 Approved Breaking the Boundaries VR Film Production Essentials (Top 9)</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-how-to-rotate-a-video-on-vlc-media-player/"><u>[New] 2024 Approved How to Rotate A Video on VLC Media Player</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-skyrocket-your-youtube-rankings-with-these-insider-moves/"><u>[New] 2024 Approved Skyrocket Your YouTube Rankings with These Insider Moves</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-strategies-for-designing-youtube-video-flow/"><u>[New] 2024 Approved Strategies for Designing YouTube Video Flow</u></a></li>
+<li><a href="https://solve-info.techidaily.com/comprehensive-guide-how-to-easily-rip-burn-and-duplicate-your-dvdscds/"><u>Comprehensive Guide: How to Easily Rip, Burn, and Duplicate Your DVDs/CDs</u></a></li>
+<li><a href="https://solve-info.techidaily.com/discover-the-ultimate-list-of-no-cost-avi-video-editors-compatible-with-pc-and-mac-systems/"><u>Discover the Ultimate List of No-Cost AVI Video Editors Compatible with PC and Mac Systems</u></a></li>
+<li><a href="https://solve-info.techidaily.com/effective-techniques-for-transforming-hevc-videos-into-the-versatile-mkv-container/"><u>Effective Techniques for Transforming HEVC Videos Into the Versatile MKV Container</u></a></li>
+<li><a href="https://solve-info.techidaily.com/efficient-avi-file-conversion-to-h265-achieving-optimal-quality-with-reduced-file-size/"><u>Efficient AVI File Conversion to H.265: Achieving Optimal Quality with Reduced File Size</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-the-soft-bricked-nokia-xr21-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix the Soft Bricked Nokia XR21? | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/premier-8-safe-video-communication-programs-for-smbs/"><u>Premier 8 Safe Video Communication Programs for SMBs</u></a></li>
+<li><a href="https://os-tips.techidaily.com/update-before-upgrading-to-the-latest-iphone-tips-for-a-smooth-transition/"><u>Update Before Upgrading to the Latest iPhone - Tips for a Smooth Transition</u></a></li>
+<li><a href="https://network-issues.techidaily.com/windows-11-shrink-excessive-desktop-size/"><u>Windows 11: Shrink Excessive Desktop Size</u></a></li>
 </ul></div>
 

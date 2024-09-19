@@ -1,7 +1,7 @@
 ---
 title: Integrating Compliance Protocols with Exceptional CX Strategies in Banking & Finance
-date: 2024-09-10T22:31:18.167Z
-updated: 2024-09-14T23:10:48.795Z
+date: 2024-09-14T22:50:40.958Z
+updated: 2024-09-18T21:42:12.835Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/010139d6077f90333f3025af8c182332c9900266fd1f6067fe122889069013d2.jpg
@@ -25,11 +25,25 @@ Senior Director, Chief Compliance Officer, **Intercontinental Exchange**
 
 ![John Fick 88x88](https://static2.abbyy.com/abbyycommedia/34665/johnfick-88x88.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### John Fick
 
 Vice President & Manager, Fraud and Investigations, **Columbia Bank**  
 
 ![Evan Gordon 88x88](https://static1.abbyy.com/abbyycommedia/34664/evangordon-88x88.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Evan Gordon
 
@@ -37,27 +51,20 @@ Chief Compliance Officer, **APG**
 
 ![Cherylchiodi 99X99](https://static4.abbyy.com/abbyycommedia/31818/cherylchiodi-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Cheryl Chiodi
 
 Solutions Marketing Manager, Financial Services, **ABBYY**  
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Overview
 
 Optimizing customer experience is essential for financial institutions going into 2022\. Unfortunately, some of the actions that reduce friction for customers can increase risk for your business. Finding a balance between compliance, risk, and optimized CX is tricky. But it's one of the key challenges for financial institutions as they look to the future.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Watch it now!
 
@@ -69,10 +76,10 @@ At a recent virtual roundtable, panelists in the financial services space came t
 * Using automation to find key areas of vulnerability and process bottlenecks.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115944/19272" target="_top" id="2115944">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115944" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fill in the form to register for the webinar now
@@ -85,13 +92,6 @@ All personal information collected via this method is under full scope of all pr
 ## Thank you for registering!
 
 [![12 New World New Risks EN 643X363](https://static1.abbyy.com/abbyycommedia/34646/12-new-world-new-risks-643x363.jpg)](https://www.youtube.com/watch?v=oEnENwSM6Og) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Please check your inbox, we have sent you a confirmation email.
 
@@ -162,17 +162,14 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-final-cuts-ultimate-10-plug-in-essentials-list/"><u>[New] Final Cut's Ultimate 10 Plug-In Essentials List</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-hidden-gems-10-unique-facebook-meme-pages/"><u>[New] Hidden Gems 10 Unique Facebook Meme Pages</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-discovering-direct-conversations-on-snapchat-in-a-click-for-2024/"><u>[Updated] Discovering Direct Conversations on Snapchat in a Click for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-gaming-evolved-comparing-mavic-air-and-sparks-impact/"><u>2024 Approved Gaming Evolved Comparing Mavic Air and Spark's Impact</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-site-engagement-with-cookiebot-technology-integration/"><u>Boost Site Engagement with Cookiebot Technology Integration</u></a></li>
-<li><a href="https://solve-info.techidaily.com/celebrating-international-womens-day-2024-honoring-abbyys-leading-female-contributors/"><u>Celebrating International Women's Day 2024: Honoring ABBYY's Leading Female Contributors</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-performance-unlocking-website-personalization/"><u>Cookiebot-Driven Performance: Unlocking Website Personalization</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/expert-tips-manually-initiating-a-fresh-start-of-your-pc-with-windows-safe-mode-activation/"><u>Expert Tips: Manually Initiating a Fresh Start of Your PC with Windows Safe Mode Activation</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-any-samsung-galaxy-f14-5g-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Samsung Galaxy F14 5G Phone Password Using Emergency Call</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-infinix-smart-8-drfone-by-drfone-android/"><u>In 2024, How To Use Allshare Cast To Turn On Screen Mirroring On Infinix Smart 8 | Dr.fone</u></a></li>
-<li><a href="https://common-error.techidaily.com/resolve-typing-issues-in-windows-11-with-these-simple-steps-for-malfunctioning-keyboard-buttons/"><u>Resolve Typing Issues in Windows 11 with These Simple Steps for Malfunctioning Keyboard Buttons</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/top-7-phone-number-locators-to-track-apple-iphone-x-location-drfone-by-drfone-virtual-ios/"><u>Top 7 Phone Number Locators To Track Apple iPhone X Location | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unveiling-professional-techniques-for-aps-hdr-creation/"><u>[New] Unveiling Professional Techniques for APS HDR Creation</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/enhancing-digital-footprints-using-cookiebot-solutions-skyrocket-your-web-visibility/"><u>Enhancing Digital Footprints Using Cookiebot Solutions: Skyrocket Your Web Visibility</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On OnePlus Nord 3 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-nokia-xr21-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Nokia XR21 | Dr.fone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/simple-steps-transforming-dv-videos-into-avi-format-on-your-pc/"><u>Simple Steps: Transforming DV Videos Into AVI Format on Your PC</u></a></li>
+<li><a href="https://solve-info.techidaily.com/step-by-step-guide-to-transforming-windows-media-files-into-mp4-players/"><u>Step-by-Step Guide to Transforming Windows Media Files Into MP4 Players</u></a></li>
+<li><a href="https://solve-info.techidaily.com/step-by-step-guide-adding-and-extracting-subtitles-in-m2ts-video-format/"><u>Step-by-Step Guide: Adding and Extracting Subtitles in M2TS Video Format</u></a></li>
+<li><a href="https://solve-info.techidaily.com/step-by-step-guide-converting-mkv-video-track-into-mp4m4a-audio-file/"><u>Step-by-Step Guide: Converting MKV Video Track Into MP4/M4A Audio File</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/ultimate-guide-mastering-the-measure-app-on-your-android-smartphone/"><u>Ultimate Guide: Mastering the Measure App on Your Android Smartphone</u></a></li>
 </ul></div>
 

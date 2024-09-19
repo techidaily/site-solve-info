@@ -1,7 +1,7 @@
 ---
 title: ABBYY's Innovative Approach to Building a Secure Future via Advanced Automated Solutions
-date: 2024-09-12T18:22:28.914Z
-updated: 2024-09-14T17:26:09.747Z
+date: 2024-09-16T03:08:52.231Z
+updated: 2024-09-18T16:13:17.746Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/acc116e7f31959c80ee46ff620abee605b240216ab77712435cda97b5c53cabd.jpg
@@ -34,13 +34,6 @@ According to the National Highway Traffic Safety Administration, [traffic crashe
 
 In an effort to prevent future fatalities and promote safer conditions for all drivers, **auto insurance companies are turning to intelligent automation**. Previously, insurers relied on past driving records—frequency and severity of tickets and accidents—to assess the safety of an individual’s driving habits. [Today they can use telematics to collect real-time data while the person is driving](https://www.usnews.com/insurance/auto/how-do-those-car-insurance-tracking-devices-work), either through a physical device plugged into the vehicle or via a smartphone app. Both methods use AI to detect behaviors such as sudden acceleration and hard braking, and smartphone apps can also flag [phone use while driving, a proven risk factor in traffic fatalities](https://www.nhtsa.gov/risky-driving/distracted-driving#the-issue-consequences). Auto insurance companies then **use this data to reward safe drivers** with discounts and to encourage those with less-than-stellar habits to be more careful.
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Coaching truck drivers in real time
 
 On the commercial side, truck fleets are using **AI-driven coaching apps to leverage positive reinforcement** in helping drivers improve their safety practices. [Netradyne’s Driver-i application, for example](https://www.ccjdigital.com/technology/driver-coaching-and-scorecarding/article/15304064/survey-shows-safety-finances-top-concerns-for-some-fleets), analyzes 100 percent of a driver’s practices (not just “triggered events” such as speeding, in contrast with consumer insurance tracking apps) via computer vision using data from the rig’s dashcam. Through in-cab alerts and automated virtual coaching, drivers receive real-time feedback on what they’re doing as well as what they could be doing better.
@@ -48,10 +41,10 @@ On the commercial side, truck fleets are using **AI-driven coaching apps to leve
 Netradyne’s senior vice president of marketing, Barrett Young, recently shared his views on positive reinforcement as vital to improving the safety practices of commercial drivers. “If you think about the psychology of truck drivers,” [he told Commercial Carrier Journal](https://www.ccjdigital.com/technology/driver-coaching-and-scorecarding/article/15304064/survey-shows-safety-finances-top-concerns-for-some-fleets), “they're proud people. They're proud of their jobs. They work hard at their jobs—arguably some of the hardest workers in our entire economy. And so the last thing they want is to constantly be told that they're doing the job bad, especially when the majority of the time they're not.”
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Making construction sites safer
@@ -62,21 +55,22 @@ In 2020, [more than one in five workplace deaths occurred within the constructio
 
 Construction companies are getting ahead of safety risks by **increasing visibility with smart technology, particularly AI-supported cameras**. Through photo recognition and 3-dimensional scanning, these cameras can recognize objects and people then use this data to identify hazards such as workers without hardhats, exposure to hazardous materials, and activities being performed unsafely or without the required safety gear.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Putting “smart” equipment to work
 
 AI-powered “smart” construction equipment systems help construction operators increase transparency and accountability through consistent monitoring and reporting. [Caterpillar’s VisionLink system](https://www.cat.com/en%5FUS/support/technology/equipment-management/visionlink.html), for example, delivers a dashboard that conveys the exact location of every piece of heavy equipment and tracks machine health, enabling proactive maintenance to prevent potential safety hazards due to malfunctioning machinery.
 
 <!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Enabling remote robotic construction
@@ -93,13 +87,6 @@ eBook
 
 [Download eBook](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120863/26400?prodsku=Mercury" target="_top" id="2120863">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120863" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120863/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### A complex reporting system
 
 The U.S. Food and Drug Administration (FDA) tracks ADEs through two systems: the [MedWatch Voluntary Reporting System](https://www.accessdata.fda.gov/scripts/medwatch/index.cfm?action=reporting.home) for medical products and the [Vaccine Adverse Event Reporting System (VAERS)](https://vaers.hhs.gov/reportevent.html) for clinical vaccines. **Manufacturers and healthcare providers are required by law to report every adverse drug event** (patients may also submit reports but are not obligated). In a recent interview, Justin Scott, senior business informatics officer at the FDA Office of Business Informatics, revealed that the administration receives an average of [40,000 safety reports a year before a drug goes on the market and 2 million a year after it is released](https://gcn.com/data-analytics/2021/03/ai-analysis-speeds-fda-drug-reviews/315989/).
@@ -113,6 +100,13 @@ The FDA turned to intelligent automation to tackle an immense challenge: digitiz
 In that same interview, Scott explained that today, “\[analysts\] can basically go to a series of reports, take a glance at it, and understand, ‘All right, this is how many people took this product and were hospitalized, this is how many of them were hospitalized and subsequently died’ … Before, where they might get fatigued from reading all these PDFs and notes, now they have the data just presented right in front of them.”
 
 By speeding up adverse event report processing and dramatically reducing the risk of human error, the FDA is helping **ensure that problems with medications can be addressed quickly and effectively**. Healthcare providers can prescribe drugs with greater confidence in their safety and effectiveness, and patients ultimately benefit from the prevention of future adverse reactions.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Intelligence for a safer future
 
@@ -130,18 +124,18 @@ With a decade of experience in product and technology, Maxime Vermeir is an entr
 
 Connect with Max on [LinkedIn](https://www.linkedin.com/in/maximevermeir/).
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Additional Insights:
 
 1 / 3 
 
 [![Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them](https://static1.abbyy.com/abbyycommedia/37015/onboarding_875247286_848x444.jpg) **Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them** Read more](https://tools.techidaily.com/abbyy/products/) [![How AI Can Help Government Agencies Win at Total Experience (TX)](https://static5.abbyy.com/abbyycommedia/37014/government_1214434168_848x444.jpg) **How AI Can Help Government Agencies Win at Total Experience (TX)** Read more](https://tools.techidaily.com/abbyy/products/) [![Creating an Intelligent Automation Symphony](https://static1.abbyy.com/abbyycommedia/36940/tlp_ia_orchestra_485765348_848x444.jpg) **Creating an Intelligent Automation Symphony** Read more](https://tools.techidaily.com/abbyy/products/) [![Customer Point of View: Approach Automation Step by Step](https://static4.abbyy.com/abbyycommedia/37013/fte_613347676_848x444.jpg) **Customer Point of View: Approach Automation Step by Step** Read more](https://tools.techidaily.com/abbyy/products/) [![The Changing Role of the Finance Leader](https://static5.abbyy.com/abbyycommedia/37012/finance_1134322021_848x444.jpg) **The Changing Role of the Finance Leader** Read more](https://tools.techidaily.com/abbyy/products/) [![Three Ways AI Is Making Employees Happier](https://static2.abbyy.com/abbyycommedia/36944/ai_happier_employees_1160730188_848x444.jpg) **Three Ways AI Is Making Employees Happier** Read more](https://tools.techidaily.com/abbyy/products/) [![Welcome to The Intelligent Enterprise](https://static5.abbyy.com/abbyycommedia/37545/ulf-848x444-slate.png) **Welcome to The Intelligent Enterprise** Read more](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Subscribe for updates
 
@@ -200,12 +194,16 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-top-7-inexpensive-pc-screen-recorders-ranked-for-2024/"><u>[New] Top 7 Inexpensive PC Screen Recorders Ranked for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/begin-animation-ease-in-transition/"><u>Begin Animation Ease-In Transition</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-efficiency-through-customized-artificial-intelligence-frameworks/"><u>Boost Efficiency Through Customized Artificial Intelligence Frameworks</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-your-site-with-cookiebot-technology-tailored-visitor-insights-and-personalization/"><u>Boost Your Site with Cookiebot Technology: Tailored Visitor Insights and Personalization</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-your-sites-traffic-with-advanced-cookiebot-technology/"><u>Boost Your Site's Traffic with Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://common-error.techidaily.com/geforce-experience-wont-launch-heres-how-you-can-get-it-working-again/"><u>GeForce Experience Won't Launch? Here’s How You Can Get It Working Again!</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-vivo-v29e-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Vivo V29e</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-smooth-transition-wonders-in-4-minutes-or-less/"><u>[New] In 2024, Smooth Transition Wonders in 4 Minutes or Less</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-masterful-motorsports-discover-the-5-leading-racers-simulators-for-2024/"><u>[Updated] Masterful Motorsports Discover the 5 Leading Racers Simulators for 2024</u></a></li>
+<li><a href="https://techidaily.com/best-fixes-for-realme-c51-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Best Fixes For Realme C51 Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Apple iPhone 13 mini | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-xiaomi-mix-fold-3-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Xiaomi Mix Fold 3 Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/navigating-technology-trends-on-toms-hardware-platform/"><u>Navigating Technology Trends on Tom's Hardware Platform</u></a></li>
+<li><a href="https://solve-info.techidaily.com/obstop-5/"><u>OBSと連携し、最高の動画編集ソフトウェアをご紹介！Top 5リスト</u></a></li>
+<li><a href="https://solve-info.techidaily.com/protecting-private-viewing-how-to-enable-password-security-on-kodi-platform/"><u>Protecting Private Viewing: How To Enable Password Security on Kodi Platform</u></a></li>
+<li><a href="https://solve-info.techidaily.com/simple-steps-transforming-dv-videos-into-avi-format-on-your-pc/"><u>Simple Steps: Transforming DV Videos Into AVI Format on Your PC</u></a></li>
+<li><a href="https://win-answers.techidaily.com/step-by-step-guide-on-quick-and-effective-mp2-to-mp3-file-transformation/"><u>Step-by-Step Guide on Quick and Effective MP2 to MP3 File Transformation</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-when-vivo-y100a-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Vivo Y100A Has Black Screen of Death? | Dr.fone</u></a></li>
 </ul></div>
 
