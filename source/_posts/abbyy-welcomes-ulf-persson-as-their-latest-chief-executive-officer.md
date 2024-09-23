@@ -1,7 +1,7 @@
 ---
 title: ABBYY Welcomes Ulf Persson as Their Latest Chief Executive Officer
-date: 2024-09-13T19:08:56.150Z
-updated: 2024-09-18T19:16:01.687Z
+date: 2024-09-20T16:27:50.402Z
+updated: 2024-09-23T17:44:14.749Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c80fad792e3cb229a3e653969139437b39335328a63ecf71a877586d96fe497a.jpg
@@ -56,25 +56,26 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-elevate-your-instagram-feed-vertical-video-edits-in-fcpx/"><u>[Updated] 2024 Approved Elevate Your Instagram Feed Vertical Video Edits in FCPX</u></a></li>
-<li><a href="https://solve-info.techidaily.com/44cm44k144og44oq44gu55s76z2i6yyy55s75oml6acg44ks6kmz44gx44gp6kej6kqs77yb44cn/"><u>「サムバの画面録画手順を詳しく解説！」</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-crafting-captivating-edu-videos-essential-techniques-and-tips-for-youtube-success/"><u>2024 Approved Crafting Captivating Edu-Videos Essential Techniques and Tips for YouTube Success</u></a></li>
-<li><a href="https://solve-info.techidaily.com/3-effective-methods-for-downloading-blob-videos-a-step-by-step-guide/"><u>3 Effective Methods for Downloading Blob Videos: A Step-by-Step Guide</u></a></li>
-<li><a href="https://solve-info.techidaily.com/4-effective-methods-to-eliminate-audio-from-your-iphone-recorded-videos/"><u>4 Effective Methods to Eliminate Audio From Your iPhone Recorded Videos</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-data-from-iphone-xs-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover Data from iPhone XS? | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-exemplary-video-capture-top-5-slow-motion-cams/"><u>In 2024, Exemplary Video Capture Top 5 Slow Motion Cams</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-mastering-the-art-of-swapping-gender-representation-in-snapchatfacebook-photos-for-2024/"><u>[New] Mastering the Art of Swapping Gender Representation in Snapchat/Facebook Photos for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-top-10-best-screen-recorders-for-computer/"><u>[New] Top 10 Best Screen Recorders for Computer</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-global-content-makers-conference/"><u>[Updated] 2024 Approved Global Content Makers' Conference</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-the-top-7-list-of-mobile-apps-to-change-how-you-speak/"><u>[Updated] In 2024, The Top 7 List of Mobile Apps to Change How You Speak</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/comparing-ai-mastery-chatgpt-vs-gemini-in-programming-prowess/"><u>Comparing AI Mastery: ChatGPT Vs. Gemini in Programming Prowess</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/elevate-your-overclocking-game-with-arctic-freezer-36-coolers-specially-designed-for-intels-newest-processors-and-sockets/"><u>Elevate Your Overclocking Game with Arctic Freezer 36 Coolers – Specially Designed for Intel's Newest Processors and Sockets</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-reviving-dull-images-the-most-effective-10-web-editing-aids/"><u>In 2024, Reviving Dull Images The Most Effective 10 Web Editing Aids</u></a></li>
+<li><a href="https://solve-info.techidaily.com/missing-page-alert-retrieved-with-ease-using-wonderfoxs-solutions/"><u>Missing Page Alert! Retrieved with Ease Using WonderFox's Solutions</u></a></li>
+<li><a href="https://solve-info.techidaily.com/obstop-5/"><u>OBSと連携し、最高の動画編集ソフトウェアをご紹介！Top 5リスト</u></a></li>
+<li><a href="https://solve-info.techidaily.com/protecting-private-viewing-how-to-enable-password-security-on-kodi-platform/"><u>Protecting Private Viewing: How To Enable Password Security on Kodi Platform</u></a></li>
+<li><a href="https://discover-docs.techidaily.com/quick-solutions-for-when-your-tv-wont-show-dvd-subtitles-step-by-step-instructions/"><u>Quick Solutions for When Your TV Won't Show DVD Subtitles - Step-by-Step Instructions</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/recommended-best-applications-for-mirroring-your-realme-note-50-screen-drfone-by-drfone-android/"><u>Recommended Best Applications for Mirroring Your Realme Note 50 Screen | Dr.fone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/simple-steps-transforming-dv-videos-into-avi-format-on-your-pc/"><u>Simple Steps: Transforming DV Videos Into AVI Format on Your PC</u></a></li>
+<li><a href="https://solve-info.techidaily.com/step-by-step-guide-adding-and-extracting-subtitles-in-m2ts-video-format/"><u>Step-by-Step Guide: Adding and Extracting Subtitles in M2TS Video Format</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

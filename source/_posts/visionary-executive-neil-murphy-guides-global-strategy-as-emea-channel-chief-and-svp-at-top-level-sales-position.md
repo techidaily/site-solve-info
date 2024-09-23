@@ -1,7 +1,7 @@
 ---
 title: Visionary Executive Neil Murphy Guides Global Strategy as EMEA Channel Chief and SVP at Top-Level Sales Position
-date: 2024-09-16T03:35:27.117Z
-updated: 2024-09-18T23:54:46.705Z
+date: 2024-09-16T17:20:14.820Z
+updated: 2024-09-23T17:16:35.004Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/122fad585a96b844750a62c04c4dce3455583d7dfd3b684b7339ff82c163bd28.jpg
@@ -27,6 +27,13 @@ I joined ABBYY back in 2016 but had known of the company for many years. At that
 
 Being given a high degree of autonomy to drive success is also very important to me and the leadership team at ABBYY was very enthusiastic and supportive of this. I was leaving a good job where I was successful but, looking back, it was a fantastic decision.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Tell us your title and a bit about your role and journey at ABBYY so far
 
 I’ll start with the journey. It’s been a great six years with personal progression and meeting some fantastic people. I started as Sales Director for the UK & Ireland and helped lead the team to over achievement in my first full year. While I was building the UK business and closing deals in that first year, I was also planning for the longer term by generating new strategic alliances that would transpire to accelerate ABBYY’s brand and growth on a global basis. One of these relationships helped bring ABBYY into the Intelligent Automation market at a very early stage as a highly complementary technology to [give robotic process automation (RPA) bots the ability to understand and extract content from documents](https://tools.techidaily.com/abbyy/products/), giving us a leading position in what is now called Intelligent Document Processing.
@@ -45,13 +52,6 @@ The team I get to work with is what keeps me going. COVID really impacted the am
 
 I have spent all my career working within the automation market, particularly document and [process automation](https://tools.techidaily.com/abbyy/products/), and previous to ABBYY worked as EMEA Solutions Director for Kodak Alaris, who are a leader in the document digitisation market. My most formative role, however, was for one of their competitors, Bell & Howell, where I was the only employee covering the UK, Ireland, Benelux, and Eastern Europe (all other resources were based out of the US, so no local support, marketing etc). All the business was dependent on me, so it quickly taught me the importance of resilience and self-reliance for my success. I also had a fantastic boss who believed in me and gave me all the autonomy I needed.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Your top advice to someone joining ABBYY in your function?
 
 Be responsible for your own success. ABBYY will look to help and support you, but you are the one that really makes it happen. And most of all, have fun doing it! If this sounds interesting, then check out our [open positions.](https://tools.techidaily.com/abbyy/products/)
@@ -67,17 +67,10 @@ I also have a very lovely wife who I don’t deserve, so we love to spend some t
 ![Neil Murphy ABBYY](https://static1.abbyy.com/abbyycommedia/36482/neil_collage_2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### If you could have one wish come true, what would it be?
@@ -85,19 +78,39 @@ I also have a very lovely wife who I don’t deserve, so we love to spend some t
 Since I am from Ireland, I wish my team was in the World Cup that's going on right now. It's been 20 years since we were last there, I can't believe it! My kids have been supporting England, so there were some gloomy faces at home on Saturday when they were knocked out against France.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
-  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### What’s your pet peeve?
 
 Zoom calls. Clearly, they were a necessity over lock-down, but I think we miss too much of the human aspect when we don't connect in person.
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Name any inspirational book/movie/music you have recently discovered or are enjoying at the moment
 
 Hard to pick one in particular recently, but my favourite book is Birdsong by Sebastian Faulks. I first read it over 20 years ago.
+
+<!-- affiliate ads begin -->
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Interested in joining the ABBYY team? Please check the vacancies below and apply!
 
@@ -168,12 +181,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-cosmetics-confidentials-building-a-beauty-channel-on-youtube/"><u>[New] 2024 Approved Cosmetics Confidentials Building a Beauty Channel on YouTube</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-ideal-screen-recorder-software-for-google-meet-participants/"><u>[New] 2024 Approved Ideal Screen Recorder Software for Google Meet Participants</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-ultimate-guide-to-free-pptp-vpn-for-beginners-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Ultimate Guide to Free PPTP VPN For Beginners On Apple iPhone 11 Pro | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/seamless-conversion-techniques-transforming-flv-files-into-mov-format/"><u>Seamless Conversion Techniques: Transforming FLV Files Into MOV Format</u></a></li>
-<li><a href="https://solve-info.techidaily.com/sending-big-videos-via-messenger-made-simple-4-quick-methods/"><u>Sending Big Videos via Messenger Made Simple - 4 Quick Methods</u></a></li>
-<li><a href="https://solve-info.techidaily.com/simple-methods-for-streaming-avi-files-on-your-iphone/"><u>Simple Methods for Streaming AVI Files on Your iPhone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/winning-over-chrome-plugin-loading-problems-on-windows-10-a-comprehensive-guide/"><u>Winning Over Chrome Plugin Loading Problems on Windows 10 - A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-brief-beatcasts-role-of-the-melody/"><u>[New] 2024 Approved Brief Beatcasts Role of the Melody</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-facebooks-viewing-wave-the-hottest-videos-this-year/"><u>[Updated] Facebook’s Viewing Wave The Hottest Videos This Year</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-the-ultimate-guide-to-youtube-thumbnail-sizes/"><u>[Updated] The Ultimate Guide to YouTube Thumbnail Sizes</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-quick-start-guide-easy-steps-for-effective-video-calling-on-zoom/"><u>2024 Approved Quick Start Guide Easy Steps for Effective Video Calling on Zoom</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726030389423-pctwitch/"><u>安全かつ簡単に！PC・スマホでTwitchコンテンツを保存する最新方法【詳しく解説】</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726028825250-android/"><u>安心かつ効率的なAndroidディスク再生 - 最高のアプリ検討</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726029357749-avidemux/"><u>動画圧縮のためのAvidemux代替方法とヒント</u></a></li>
+<li><a href="https://solve-info.techidaily.com/best-top-5-replacements-for-soundcloud-discover-new-music-platforms/"><u>Best Top 5 Replacements for SoundCloud: Discover New Music Platforms</u></a></li>
+<li><a href="https://solve-info.techidaily.com/bypassing-powerpoints-video-not-included-error-simple-no-cost-fixes-revealed/"><u>Bypassing PowerPoint’s 'Video Not Included Error: Simple, No-Cost Fixes Revealed!</u></a></li>
+<li><a href="https://solve-info.techidaily.com/comprehensive-guide-to-upcoming-anime-releases-top-picks-and-previews/"><u>Comprehensive Guide to Upcoming Anime Releases: Top Picks and Previews</u></a></li>
+<li><a href="https://solve-info.techidaily.com/converting-audio-files-understanding-the-distinct-features-of-m4a-and-m4b-a-comprehensive-guide/"><u>Converting Audio Files: Understanding the Distinct Features of M4A & M4B - A Comprehensive Guide</u></a></li>
+<li><a href="https://win-dash.techidaily.com/easy-update-and-installation-guide-for-mpow-bluetooth-on-win-10-8-7/"><u>Easy Update & Installation Guide for MPOW Bluetooth on Win 10, 8, 7</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-xiaomi-redmi-13c-phone-without-any-data-loss-by-drfone-android/"><u>In 2024, How to Unlock Xiaomi Redmi 13C Phone without Any Data Loss</u></a></li>
+<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/stellar-announces-launch-of-phoenix-jpeg-repair-for-mac-news-of-stellar/"><u>Stellar Announces Launch of Phoenix JPEG Repair for Mac - News of Stellar</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/step-by-step-guide-to-iphones-dynamic-images-for-2024/"><u>Step-by-Step Guide to iPhone's Dynamic Images for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726029193724-pc/"><u>アニメ動画サブタイトル配信「アニメ放題」PC画面キャプチャ方法</u></a></li>
 </ul></div>
 

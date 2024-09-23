@@ -1,7 +1,7 @@
 ---
 title: Unleash the Potential of Clever Automation This September – Join ABBYY's Enlightening Journey
-date: 2024-09-18T03:25:19.076Z
-updated: 2024-09-18T18:49:14.427Z
+date: 2024-09-16T16:10:29.988Z
+updated: 2024-09-23T16:34:22.608Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/300ab8d5976ccf31b0d2970939ae583f50bd954e838c66ca43450f63be8d3d0c.jpg
@@ -25,11 +25,31 @@ There’s fear of being left behind, worries about jumping in too quickly, and c
 
 ABBYY is here to help. We’ve decided to dedicate the entire month of September to explaining how AI is being used to automate business processes and guide successful intelligent automation.
 
+<!-- affiliate ads begin -->
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Welcome to Intelligent Automation Month
 
 We’ve joined forces with other industry influencers and advocates to highlight how AI solutions such as intelligent document processing (IDP), robotic process automation (RPA), process intelligence, and generative AI are putting your information to work, so you can achieve operational excellence and accelerate business outcomes.
 
 You’ll gain market insights that will help you focus your digital transformation initiatives, learn how to make a business case for C-suite buy-in, and get tips for championing workforce adoption. Additionally, innovation leaders who are currently spearheading transformation within their companies will candidly share their best practices and lessons learned. These are online sessions that you won’t want to miss.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### September is Intelligent Automation Month
 
@@ -49,6 +69,13 @@ We hope you’ll join us at these upcoming industry-wide online events. Register
 
 ![Bruce Orcutt ABBYY](https://static5.abbyy.com/abbyycommedia/25719/bruceorcutt-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Bruce Orcutt
 
 Senior Vice President of Product Marketing at ABBYY
@@ -58,10 +85,10 @@ Bruce Orcutt is a veteran Product Marketing and Product Management professional 
 Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -127,12 +154,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-seamless-transfer-of-high-definition-fb-media/"><u>[Updated] 2024 Approved Seamless Transfer of High Definition FB Media</u></a></li>
-<li><a href="https://solve-info.techidaily.com/best-free-instagram-reel-sounds-top-4-downloading-tools/"><u>Best Free Instagram Reel Sounds: Top 4 Downloading Tools</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/chatgpt-or-google-translate-an-in-depth-comparison-of-translation-capabilities/"><u>ChatGPT or Google Translate? An In-Depth Comparison of Translation Capabilities</u></a></li>
-<li><a href="https://solve-info.techidaily.com/comparing-ipod-video-converter-factory-vs-ipod-video-converter-factory-pro-features/"><u>Comparing iPod Video Converter Factory Vs. IPod Video Converter Factory Pro Features</u></a></li>
-<li><a href="https://solve-info.techidaily.com/complete-tutorial-mastering-the-art-of-cropping-avi-videos-both-on-and-off-the-web/"><u>Complete Tutorial: Mastering the Art of Cropping AVI Videos Both On and Off the Web</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/from-script-to-screen-building-a-youtube-trailer-in-filmora-for-2024/"><u>From Script to Screen Building a YouTube Trailer in Filmora for 2024</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/top-rated-samsung-galaxy-s22-ultra-phone-covers-2023-edition/"><u>Top-Rated Samsung Galaxy S22 Ultra Phone Covers - 2023 Edition</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-maximizing-your-dslr-footage-with-pc-or-mac-for-social-media-for-2024/"><u>[Updated] Maximizing Your DSLR Footage with PC or Mac for Social Media for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-lava-yuva-2-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your Lava Yuva 2 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-test-of-the-kootek-notebook-cooler-superior-in-every-aspect/"><u>Comprehensive Test of the Kootek Notebook Cooler: Superior in Every Aspect</u></a></li>
+<li><a href="https://windows11.techidaily.com/fixes-for-application-flood-conquering-0x80860010/"><u>Fixes for Application Flood: Conquering 0X80860010</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-motorola-razr-40-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your Motorola Razr 40 Ultra | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-forgot-your-apple-id-password-and-email-from-apple-iphone-se-heres-the-best-fixes-by-drfone-ios/"><u>In 2024, Forgot Your Apple ID Password and Email From Apple iPhone SE? Heres the Best Fixes</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-ultimate-headgear-selection-for-your-virtual-exploration/"><u>In 2024, Ultimate Headgear Selection for Your Virtual Exploration</u></a></li>
+<li><a href="https://review-topics.techidaily.com/reinstall-your-drivers-with-device-manager-on-windows-11107-by-drivereasy-guide/"><u>Reinstall your drivers with Device Manager on Windows 11/10/7</u></a></li>
+<li><a href="https://solve-info.techidaily.com/step-by-step-guide-to-transforming-windows-media-files-into-mp4-players/"><u>Step-by-Step Guide to Transforming Windows Media Files Into MP4 Players</u></a></li>
+<li><a href="https://solve-info.techidaily.com/step-by-step-guide-adding-and-extracting-subtitles-in-m2ts-video-format/"><u>Step-by-Step Guide: Adding and Extracting Subtitles in M2TS Video Format</u></a></li>
+<li><a href="https://solve-info.techidaily.com/step-by-step-guide-converting-mkv-video-track-into-mp4m4a-audio-file/"><u>Step-by-Step Guide: Converting MKV Video Track Into MP4/M4A Audio File</u></a></li>
+<li><a href="https://solve-info.techidaily.com/step-by-step-tutorial-on-recording-google-duo-sessions-including-sound/"><u>Step-by-Step Tutorial on Recording Google Duo Sessions Including Sound</u></a></li>
+<li><a href="https://solve-info.techidaily.com/stream-recording-guide-efficiently-archiving-twitch-broadcasts-from-your-desktop-computer/"><u>Stream Recording Guide: Efficiently Archiving Twitch Broadcasts From Your Desktop Computer</u></a></li>
+<li><a href="https://solve-info.techidaily.com/successful-solutions-for-pro-aax-to-mp3-audio-converter-apps/"><u>Successful Solutions for Pro AAX to MP3 Audio Converter Apps</u></a></li>
+<li><a href="https://solve-info.techidaily.com/ultimate-guide-to-the-most-efficient-dvd-to-mp4-converters-on-windows-11-2024-edition/"><u>Ultimate Guide to the Most Efficient DVD to MP4 Converters on Windows 11 - 2024 Edition!</u></a></li>
+<li><a href="https://solve-info.techidaily.com/ultimate-guide-setting-up-adultflix-plugin-for-kodi-leia-and-krypton-edition/"><u>Ultimate Guide: Setting Up AdultFlix Plugin for Kodi - Leia & Krypton Edition</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-in-2024-the-guide-to-blending-music-and-movement-on-screen/"><u>Updated In 2024, The Guide to Blending Music and Movement on Screen</u></a></li>
 </ul></div>
 

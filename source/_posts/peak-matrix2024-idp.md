@@ -1,7 +1,7 @@
 ---
 title: アバビイ調査で優勝者を決める：エベレスト・コンソーシアムのPEAK Matrixリーダー指数2024 - IDP
-date: 2024-09-14T03:07:39.294Z
-updated: 2024-09-18T19:14:13.280Z
+date: 2024-09-19T16:44:47.361Z
+updated: 2024-09-23T16:27:21.024Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ac7b7d7eb1b61e878d4715837135fe97081096b41d9601e6ca5eb36f744ec4b7.jpg
@@ -13,9 +13,23 @@ thumbnail: https://thmb.techidaily.com/ac7b7d7eb1b61e878d4715837135fe97081096b41
 
 ## 6年連続6回目： エベレストグループ、PEAK Matrix®評価でABBYYをインテリジェント文書処理（IDP）製品のリーダーに選出
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### ABBYYは、エベレストグループの2024年度PEAK Matrix®評価で再びインテリジェント文書処理（IDP）製品 のリーダーに選ばれました。 
 
 ![PEAK_Matrix_2024_-_Intelligent_Document_Processing__IDP__-_ABBYY](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/resource-center/content-images/peak_matrix_2024_-_intelligent_document_processing__idp__-_abbyy.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 あらゆるインテリジェントオートメーションプラットフォームに統合可能な、業界唯一のローコード/ノーコードIDPプラットフォームであるABBYY Vantageを擁するABBYYは、その卓越したビジョンと能力、さらに市場への影響力が高く評価されています。Vantageは、ABBYY Marketplaceで提供される、ものの数分で使い始めることのできる事前構築済みのAIモデルを使用して、定型および非定型文書を処理する機能を備えています。 
 
@@ -26,6 +40,13 @@ ABBYYは、エベレストグループのインテリジェント文書処理（
 目的に特化したAIというABBYYのビジョンにより、企業は最善のAIモデルを活用し、最適化された信頼性の高い成果を得ることができます。OCRの効率向上に継続的に注力し、構築済みモデルやパッケージソリューションの市場を拡大することで、市場での地位をさらに強固なものにしています。モデルトレーニングのしやすさ、市場の幅広さ、クラウドサービスは、ABBYYの顧客が特に評価する主要な長所の一部です。 
 
 _**Vaibhav Bansal, Vice President, Everest Group**_
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## ABBYYにご関心をお寄せいただき、誠にありがとうございます。 
 
@@ -98,32 +119,21 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/ow-to-play-youtube-in-background-on-iphone-and-android/"><u>[New] How to Play YouTube in Background on iPhone and Android</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-multi-lens-modifiers-for-creative-video-effects-for-2024/"><u>[New] Multi-Lens Modifiers for Creative Video Effects for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-is-image-stabilization-a-feature-worth-your-time/"><u>[Updated] Is Image Stabilization a Feature Worth Your Time?</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/dive-into-hardware-with-toms-technology-corner/"><u>Dive Into Hardware with Tom's Technology Corner</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/government-allocates-2-billion-in-funding-boost-for-chinese-memory-technology-firm/"><u>Government Allocates $2 Billion in Funding Boost for Chinese Memory Technology Firm</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/improve-notification-for-full-batteries-on-windows/"><u>Improve Notification for Full Batteries on Windows</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-from-nokia-xr21-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock from Nokia XR21 Phones with/without a PC</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-the-quintessential-list-of-top-15-masterpieces-in-stop-motion/"><u>In 2024, The Quintessential List of Top 15 Masterpieces in Stop Motion</u></a></li>
-<li><a href="https://solve-info.techidaily.com/simple-methods-for-streaming-avi-files-on-your-iphone/"><u>Simple Methods for Streaming AVI Files on Your iPhone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/step-by-step-guide-recording-crystal-clear-hd-footage-on-your-ps5/"><u>Step-by-Step Guide: Recording Crystal Clear HD Footage on Your PS5</u></a></li>
-<li><a href="https://solve-info.techidaily.com/step-by-step-tutorial-on-converting-your-apple-lossless-tracks-alac-to-the-superior-flac-codec/"><u>Step-by-Step Tutorial on Converting Your Apple Lossless Tracks (ALAC) to the Superior FLAC Codec</u></a></li>
-<li><a href="https://solve-info.techidaily.com/the-advantages-of-being-flexible-with-your-dates-for-better-rates/"><u>The Advantages of Being Flexible with Your Dates for Better Rates.</u></a></li>
-<li><a href="https://solve-info.techidaily.com/the-ultimate-guide-to-effortlessly-convert-your-dvds-to-android-top-tools-reviewed/"><u>The Ultimate Guide to Effortlessly Convert Your DVDs to Android: Top Tools Reviewed!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/the-ultimate-tutorial-for-streaming-ustvnow-via-kodi-using-the-setup-wizard/"><u>The Ultimate Tutorial for Streaming USTVNow via Kodi Using The Setup Wizard</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-tips-for-integrating-supplemental-film-content/"><u>[New] 2024 Approved Tips for Integrating Supplemental Film Content</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-unleash-photo-dynamics-mastering-adobe-illustrator-blurs/"><u>[New] Unleash Photo Dynamics Mastering Adobe Illustrator Blurs</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-innovative-hd-technology-showcased-by-best-screen-recorders/"><u>[Updated] 2024 Approved Innovative HD Technology Showcased by Best Screen Recorders</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-elevate-your-online-presence-mastering-youtube-edits-in-premiere/"><u>[Updated] Elevate Your Online Presence Mastering YouTube Edits in Premiere</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726026473894-bilibili/"><u>Bilibiliビデオでロゴを取り除くためのステップバイステップマニュアル</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/easy-steps-to-set-up-adb-driver-on-windows/"><u>Easy Steps to Set Up ADB Driver on Windows</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-to-increase-fps-in-csgo-ultimate-optimization-guide/"><u>How to Increase FPS in CS:GO – Ultimate Optimization Guide</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-to-resolve-iphone-not-receiving-texts-a-step-by-step-guide/"><u>How To Resolve 'iPhone Not Receiving Texts': A Step-by-Step Guide</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/next-level-speed-boosts-for-microsoft-edge-on-the-horizon/"><u>Next-Level Speed Boosts for Microsoft Edge on the Horizon</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/the-ultimate-selection-of-premium-oled-tvs-for-the-year-2024/"><u>The Ultimate Selection of Premium OLED TVs for the Year 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/troubleshooting-downloads-how-to-successfully-retrieve-abema-previously-abematv-streaming-content/"><u>Troubleshooting Downloads: How to Successfully Retrieve ABEMA (Previously AbemaTV) Streaming Content</u></a></li>
+<li><a href="https://solve-info.techidaily.com/ultimate-guide-to-downloading-movies-from-dvds-onto-your-pc-step-by-step-process/"><u>Ultimate Guide to Downloading Movies From DVDs Onto Your PC - Step by Step Process</u></a></li>
+<li><a href="https://solve-info.techidaily.com/ultimate-guide-mastering-video-compression-with-adobe-media-encoder/"><u>Ultimate Guide: Mastering Video Compression with Adobe Media Encoder</u></a></li>
+<li><a href="https://solve-info.techidaily.com/understanding-handbrakes-capabilities-for-merging-multiple-video-streams-insights-and-solutions/"><u>Understanding Handbrake's Capabilities for Merging Multiple Video Streams: Insights & Solutions</u></a></li>
+<li><a href="https://solve-info.techidaily.com/understanding-resolution-upgrades-does-true-4k-offer-significant-advantages-over-1080p/"><u>Understanding Resolution Upgrades: Does True 4K Offer Significant Advantages Over 1080P?</u></a></li>
+<li><a href="https://solve-info.techidaily.com/windows-11youtubesd/"><u>Windows 11でパソコンからYouTube音楽をSDカードへ転送するための完全ガイド</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

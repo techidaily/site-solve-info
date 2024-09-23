@@ -1,7 +1,7 @@
 ---
 title: ABBYY's Innovative Approach to Building a Secure Future via Advanced Automated Solutions
-date: 2024-09-16T03:08:52.231Z
-updated: 2024-09-18T16:13:17.746Z
+date: 2024-09-17T16:45:51.917Z
+updated: 2024-09-23T16:21:42.210Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/acc116e7f31959c80ee46ff620abee605b240216ab77712435cda97b5c53cabd.jpg
@@ -26,9 +26,29 @@ Alongside these business-focused, bottom-line-boosting benefits of adopting AI, 
 
 These innovations are emerging at a time when many are expressing concerns about artificial intelligence, viewing it as a threat to personal freedoms rather than a force for good. At its core, however, AI is a tool like any other, and its impact depends on how it is used. One of the most significant humanitarian contributions of AI is that **it’s helping create a safer world**, whether that takes the form of improving driver safety, detecting safety hazards at construction sites, or helping the United States Food and Drug Administration (FDA) identify adverse reactions to drugs more quickly.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Improving driver safety
 
 According to the National Highway Traffic Safety Administration, [traffic crashes in 2020 were responsible for more than 38,000 fatalities](https://www.nhtsa.gov/press-releases/2020-traffic-crash-data-fatalities)—the highest number since 2007\. The office further reports that in 45 percent of those fatal crashes, drivers of passenger vehicles were engaged in risky behaviors such as speeding.
+
+<!-- affiliate ads begin -->
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Using telematics to reward safe drivers
 
@@ -40,13 +60,6 @@ On the commercial side, truck fleets are using **AI-driven coaching apps to leve
 
 Netradyne’s senior vice president of marketing, Barrett Young, recently shared his views on positive reinforcement as vital to improving the safety practices of commercial drivers. “If you think about the psychology of truck drivers,” [he told Commercial Carrier Journal](https://www.ccjdigital.com/technology/driver-coaching-and-scorecarding/article/15304064/survey-shows-safety-finances-top-concerns-for-some-fleets), “they're proud people. They're proud of their jobs. They work hard at their jobs—arguably some of the hardest workers in our entire economy. And so the last thing they want is to constantly be told that they're doing the job bad, especially when the majority of the time they're not.”
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Making construction sites safer
 
 In 2020, [more than one in five workplace deaths occurred within the construction industry](https://www.bls.gov/opub/ted/2022/a-look-at-falls-slips-and-trips-in-the-construction-industry.htm), and more than one-third of those fatalities resulted from falls, slips, and trips. In addition to saving lives, enhancing construction site safety also helps businesses avoid financial hardships. [Each Occupational Safety and Health Administration (OSHA) violation incurs a penalty of up to $15,625](https://www.osha.gov/penalties), and OSHA estimates that [U.S. employers pay nearly $1 billion per week](https://www.osha.gov/businesscase/costs) for direct workers' compensation costs.
@@ -55,23 +68,9 @@ In 2020, [more than one in five workplace deaths occurred within the constructio
 
 Construction companies are getting ahead of safety risks by **increasing visibility with smart technology, particularly AI-supported cameras**. Through photo recognition and 3-dimensional scanning, these cameras can recognize objects and people then use this data to identify hazards such as workers without hardhats, exposure to hazardous materials, and activities being performed unsafely or without the required safety gear.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Putting “smart” equipment to work
 
 AI-powered “smart” construction equipment systems help construction operators increase transparency and accountability through consistent monitoring and reporting. [Caterpillar’s VisionLink system](https://www.cat.com/en%5FUS/support/technology/equipment-management/visionlink.html), for example, delivers a dashboard that conveys the exact location of every piece of heavy equipment and tracks machine health, enabling proactive maintenance to prevent potential safety hazards due to malfunctioning machinery.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Enabling remote robotic construction
 
@@ -80,6 +79,13 @@ AI adds another dimension of safety by **enabling some building elements to be p
 ### Improving drug safety reporting
 
 Tracking adverse drug events (ADEs)—harms resulting from medication that include allergic reactions, side effects, and human error—is a key component in making drugs safer. Every year, adverse drug events (ADEs) cause about [1.3 million visits to the emergency room and 350,000 hospitalizations, costing about $3.5 billion a year](https://www.cdc.gov/medicationsafety/basics.html).
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How AI Identity Proofing Is Transforming Government Services
 
@@ -102,10 +108,10 @@ In that same interview, Scott explained that today, “\[analysts\] can basicall
 By speeding up adverse event report processing and dramatically reducing the risk of human error, the FDA is helping **ensure that problems with medications can be addressed quickly and effectively**. Healthcare providers can prescribe drugs with greater confidence in their safety and effectiveness, and patients ultimately benefit from the prevention of future adverse reactions.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Intelligence for a safer future
@@ -116,6 +122,13 @@ Whether they are delivering feedback that helps drivers operate more safely, tra
 
 ![Maxime Vermeir 110X110 (1)](https://static3.abbyy.com/abbyycommedia/37004/maxime-vermeir_110x110-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Maxime Vermeir
 
 Senior Director of AI Strategy
@@ -123,13 +136,6 @@ Senior Director of AI Strategy
 With a decade of experience in product and technology, Maxime Vermeir is an entrepreneurial professional with a passion for creating exceptional customer experiences. As a leader, he has managed global teams of innovation consultants and led large enterprises' transformation initiatives. Creating insights into new technologies and how they can drive higher customer value is a key point in Maxime’s array of Subject Matter Expertise. He is a trusted advisor and thought leader in his field, guiding market awareness for ABBYY's technologies.
 
 Connect with Max on [LinkedIn](https://www.linkedin.com/in/maximevermeir/).
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Additional Insights:
 
@@ -194,16 +200,21 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-smooth-transition-wonders-in-4-minutes-or-less/"><u>[New] In 2024, Smooth Transition Wonders in 4 Minutes or Less</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-masterful-motorsports-discover-the-5-leading-racers-simulators-for-2024/"><u>[Updated] Masterful Motorsports Discover the 5 Leading Racers Simulators for 2024</u></a></li>
-<li><a href="https://techidaily.com/best-fixes-for-realme-c51-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Best Fixes For Realme C51 Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Apple iPhone 13 mini | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-xiaomi-mix-fold-3-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Xiaomi Mix Fold 3 Location By Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/navigating-technology-trends-on-toms-hardware-platform/"><u>Navigating Technology Trends on Tom's Hardware Platform</u></a></li>
-<li><a href="https://solve-info.techidaily.com/obstop-5/"><u>OBSと連携し、最高の動画編集ソフトウェアをご紹介！Top 5リスト</u></a></li>
-<li><a href="https://solve-info.techidaily.com/protecting-private-viewing-how-to-enable-password-security-on-kodi-platform/"><u>Protecting Private Viewing: How To Enable Password Security on Kodi Platform</u></a></li>
-<li><a href="https://solve-info.techidaily.com/simple-steps-transforming-dv-videos-into-avi-format-on-your-pc/"><u>Simple Steps: Transforming DV Videos Into AVI Format on Your PC</u></a></li>
-<li><a href="https://win-answers.techidaily.com/step-by-step-guide-on-quick-and-effective-mp2-to-mp3-file-transformation/"><u>Step-by-Step Guide on Quick and Effective MP2 to MP3 File Transformation</u></a></li>
-<li><a href="https://howto.techidaily.com/what-to-do-when-vivo-y100a-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Vivo Y100A Has Black Screen of Death? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-unlocking-the-secret-strategies-of-instagram-influencers/"><u>[New] In 2024, Unlocking the Secret Strategies of Instagram Influencers</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-mastering-social-media-marketing-2024s-top-fb-strategies/"><u>[New] Mastering Social Media Marketing 2024'S Top FB Strategies</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-elevating-ad-effectiveness-for-youtube/"><u>[Updated] 2024 Approved Elevating Ad Effectiveness for YouTube</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-tilling-through-time-top-farmer-games-evolutions/"><u>[Updated] In 2024, Tilling Through Time Top Farmer Games Evolutions</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726028846182-8/"><u>【無料】動画にメロディを付けるためのトップ8ソフトウェア選び方：専門家から学ぶ！</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-mining-marvels-5-best-map-locations-in-terraria/"><u>2024 Approved Mining Marvels 5 Best Map Locations in Terraria</u></a></li>
+<li><a href="https://solve-info.techidaily.com/3-effective-methods-for-downloading-blob-videos-a-step-by-step-guide/"><u>3 Effective Methods for Downloading Blob Videos: A Step-by-Step Guide</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/3-ways-to-unlock-your-apple-iphone-se-for-free-by-drfone-ios/"><u>3 Ways to Unlock Your Apple iPhone SE for Free</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726030243059-dvdmp4/"><u>無料DVDパス解除とMP4変換ガイド - ディスクからダウンロード</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726026473894-bilibili/"><u>Bilibiliビデオでロゴを取り除くためのステップバイステップマニュアル</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/explore-our-selection-of-premier-lgbt-movies-featured-on-netflix-for-july-2n4/"><u>Explore Our Selection of Premier LGBT Movies Featured on Netflix for July 2N4</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726027651761-hp/"><u>HPラップトップマシンで効率的な動画編集テクニック</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-non-functioning-discord-overlays-step-by-step-guide/"><u>Troubleshooting Non-Functioning Discord Overlays: Step by Step Guide</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/unlocking-smooth-ocean-footage-proven-film-makers-methods-for-2024/"><u>Unlocking Smooth Ocean Footage Proven Film-Maker's Methods for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726027258055-windows-and-mac/"><u>Windows & Macで動画の鏡像作成手順３つ</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726026566647-3/"><u>ダウンロード無しで音声抽出: ムービーからのトラック3方法紹介</u></a></li>
 </ul></div>
 

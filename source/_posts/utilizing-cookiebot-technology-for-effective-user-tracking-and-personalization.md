@@ -1,7 +1,7 @@
 ---
 title: Utilizing Cookiebot Technology for Effective User Tracking and Personalization
-date: 2024-09-12T23:56:05.028Z
-updated: 2024-09-18T23:35:33.243Z
+date: 2024-09-17T17:41:38.074Z
+updated: 2024-09-23T18:29:08.597Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0ee1c1c5a9be407cbf065c21cefa3d097b024c8bd5c0bbace26a3b7cf94a12be.jpg
@@ -19,6 +19,13 @@ Social Work
 
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## ABBYY hilft, den Zugang zu historischen Aufzeichnungen zu verbessern und das Geschichtsbewusstsein zu schärfen
 
 [Druckversion des Artikels anzeigen oder herunterladen (PDF 381 kb)](https://static4.abbyy.com/abbyycommedia/6161/cs-dis-norge-fr-d-email.pdf) 
@@ -34,16 +41,17 @@ Der freie Zugriff auf Datenbanken mit persönlichen Daten hat in Norwegen eine l
 
 Da die meisten Dokumente mit den relevanten Daten in Maschinenschrift oder in gedruckter![Dokumente mit einer OCR-software bearbeiten. Vergleich zwischen original Papierdokument und OCR-Ergebnisse](https://static1.abbyy.com/abbyycommedia/6045/dis-hordaland.png "Dokumente mit einer OCR-software bearbeiten. Vergleich zwischen original Papierdokument und OCR-Ergebnisse")  
 Version vorlagen, stellte DIS-Hordaland fest, dass durch den Einsatz einer Texterkennungs-  
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 software (OCR) zur Umwandlung der Dokumente in editierbaren Text die ehren amtlichen Mitarbeiter viel Zeit und Ressourcen ein sparen würden. Wie Tore J. Mehl, Mitglied der DISHordaland- Geschäftsleitung erklärt: „Was, wenn wir die Daten mit Hilfe moderner Werkzeuge wie einem OCR-Programm konvertieren könnten? Wir könnten dann ganze Akten von Quelldokumenten mit weit weniger Mühe und in kürzerer Zeit als durch manuelle Verarbeitung veröffentlichen."
 
 Die Organisation formulierte einige Anforderungen: Zunächst sollte die Software komplexe Layouts in der digitalen Version beibehalten, wie bei farbigen, gescannten Schreibmaschinenseiten in DIN A4-Format mit unterschiedlichen Schriftarten. Weiter war es wichtig, dass das Programm Tabellen erkennen würde, da zahlreiche Quellinformationen in dieser Form vorlagen. Schließlich sollte die gesuchte Software editierbare Tabellenseiten erstellen, als CSV-Dateien ausgeben und direkt in die Datenbank übertragen können.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Lösung
 
@@ -58,6 +66,19 @@ Dank ABBYY FineReader sparte DIS-Hordaland signifikant Zeit und Ressourcen ein. 
 
 ---
 
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Über ABBYY und Kontaktmöglichkeiten
 
 [Zur ABBYY Unternehmensübersicht ›](https://tools.techidaily.com/abbyy/products/)
@@ -67,10 +88,16 @@ Dank ABBYY FineReader sparte DIS-Hordaland signifikant Zeit und Ressourcen ein. 
 Teilen 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Sind Sie bereit, mit einem Experten zu sprechen?
@@ -94,20 +121,18 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-broadcast-showdown-the-faceoff-between-obs-and-shadowtoolkit/"><u>[New] In 2024, Broadcast Showdown The Faceoff Between OBS & ShadowToolKit</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/traight-from-the-studio-simple-steps-to-sizzling-mac-vids-on-youtube-for-2024/"><u>[New] Straight From the Studio Simple Steps to Sizzling Mac Vids on YouTube for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-covert-capture-strategies-for-shrouding-personal-info/"><u>[Updated] In 2024, Covert Capture Strategies for Shrouding Personal Info</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-examining-the-usefulness-of-instagrams-selfie-validation/"><u>2024 Approved Examining the Usefulness of Instagram's Selfie Validation</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/creer-des-diaporamas-en-un-clic-logiciels-gratuits-et-performants-pour-les-presentations-en-202/"><u>Créer Des Diaporamas en Un Clic: Logiciels Gratuits Et Performants Pour Les Présentations en 202#!/</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/from-memory-to-moments-securely-uploading-photos-to-snapchat-for-2024/"><u>From Memory to Moments Securely Uploading Photos to Snapchat for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/grublpc/"><u>GRUBLゲーム画面をPCで高解像度に記録するガイド</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-best-3-software-to-transfer-files-tofrom-your-tecno-camon-30-pro-5g-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Best 3 Software to Transfer Files to/from Your Tecno Camon 30 Pro 5G via a USB Cable | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/master-the-shift-from-dvd-to-digital-expert-tips-for-watching-movies-on-your-kindle-fire-devices/"><u>Master the Shift From DVD to Digital: Expert Tips for Watching Movies on Your Kindle Fire Devices</u></a></li>
-<li><a href="https://solve-info.techidaily.com/mastering-format-transformation-seamless-techniques-for-switching-videoaudio-files/"><u>Mastering Format Transformation: Seamless Techniques for Switching Video/Audio Files</u></a></li>
-<li><a href="https://solve-info.techidaily.com/mkvyoutube-youtubemkv/"><u>MKV形式でYouTube動画を安全にダウンロードする簡単方法 - YouTubeからMKVへの変換テクニック</u></a></li>
-<li><a href="https://solve-info.techidaily.com/pcvimeo/"><u>PCで効率よく編集し直せるVimeo動画のトリミングガイド</u></a></li>
-<li><a href="https://fox-that.techidaily.com/1721474710283-stuck-with-late-imessages-on-iphone-try-these-effective-methods-for-swift-communication/"><u>Stuck with Late iMessages on iPhone? Try These Effective Methods for Swift Communication.</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/translated-subtitles-for-global-igtv-audience-for-2024/"><u>Translated Subtitles for Global IGTV Audience for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/myspace/"><u>マストから MySpace 音楽をダウンロード・セーブする独自のテクニック</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/aximizing-revenue-with-youtubes-2024-partner-program/"><u>[New] Maximizing Revenue with YouTube's 2024 Partner Program</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-recording-made-simple-your-phone-cookbook-for-snapping-stories/"><u>[Updated] In 2024, Recording Made Simple Your Phone' Cookbook for Snapping Stories</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726027929115-2/"><u>「ビデオ変換ガイド：2通りの動画ファイル作成手順を学ぶ」</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-logitechs-4k-webcam-masterclass-a-complete-review/"><u>2024 Approved Logitech’s 4K Webcam Masterclass - A Complete Review</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-top-30-cameras-frontal-screen-for-convenience/"><u>2024 Approved Top 30 Cameras Frontal Screen for Convenience</u></a></li>
+<li><a href="https://article-files.techidaily.com/compre-written-in-clear-language-this-ultimate-guide-explores-all-facets-of-using-the-iphone-xs-animoji-feature/"><u>Compre Written in Clear Language, This Ultimate Guide Explores All Facets of Using the iPhone X's Animoji Feature</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726028779334-gopromp4/"><u>GoPro撮影したファイルに最適なMP4変換方法を学ぶ！</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-oppowithwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Oppowith/without a PC</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-a-filmmakers-guide-to-quick-and-clear-marine-video/"><u>In 2024, A Filmmaker’s Guide to Quick and Clear Marine Video</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-can-life360-track-you-when-your-honor-100-is-off-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track You When Your Honor 100 is off? | Dr.fone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726028345290-mp4/"><u>MP4ファイルの再コーディング手順とテクニック</u></a></li>
+<li><a href="https://games-able.techidaily.com/pc-gaming-keyboard-trials-best-of-24/"><u>PC Gaming Keyboard Trials: Best of '24</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726027361613-windows-10/"><u>Windows 10ビデオ明るさ設定 - シンプルガイド</u></a></li>
 </ul></div>
 

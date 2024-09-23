@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Driven Data Collection: Optimizing User Experience"
-date: 2024-09-17T02:30:15.141Z
-updated: 2024-09-18T21:22:34.995Z
+date: 2024-09-18T17:13:05.537Z
+updated: 2024-09-23T17:10:39.975Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/fdc25fa9e7d76ca87920564362f13d91c2db273783ec5bcb39c2377739cf581a.jpg
@@ -22,6 +22,20 @@ Enabling Pega BPM and RPA to transform documents and unstructured content automa
 As a Pega technology partner, ABBYY provides Intelligent Document Processing solutions that enable Pega customers to add a new level of automation to their handling of documents and unstructured content. ABBYY’s technology automatically classifies and extracts document data, turning content into structured, actionable information that makes Pega processes smarter—dramatically improving the customer experience and increasing operational efficiency.
 
 ![overview image](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/digital-onboarding/overview-image.jpg?h=716&iar=0&w=1272)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Integration benefits
 
@@ -46,10 +60,10 @@ ABBYY FlexiCapture Connector for Pega enables Pega BPM and RPA to transform docu
 ![](https://content.abbyy.com/-/media/feature/basecomponents/clients/pegasystems_logo_rev_120px.png?h=26&iar=0&w=120)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Selected use cases
@@ -75,16 +89,10 @@ Adding FlexiCapture to Pega’s Accounts Payable processes easily manages this c
 ![](https://content.abbyy.com/-/media/feature/basecomponents/assets-thumbnails/abbyy_microscopic_web_photos_2_1486--836.jpg?h=836&iar=0&w=1486)
 
 <!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Ready to speak with an expert?
@@ -106,16 +114,17 @@ Adding FlexiCapture to Pega’s Accounts Payable processes easily manages this c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/updated-vimeo-recorder-tips-effective-screen-and-camera-capturing-techniques/"><u>[Updated] Vimeo Recorder Tips Effective Screen & Camera Capturing Techniques</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-weaving-wondrous-worlds-a-guide-to-the-best-storytelling-halls-1-8/"><u>[Updated] Weaving Wondrous Worlds A Guide to the Best Storytelling Halls (#1-#8)</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-instructions-on-capturing-streamed-dialogues/"><u>2024 Approved Instructions on Capturing Streamed Dialogues</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/how-to-start-fresh-erasing-previous-gpt-talks/"><u>How to Start Fresh: Erasing Previous GPT Talks</u></a></li>
-<li><a href="https://solve-info.techidaily.com/simple-steps-free-techniques-to-convert-and-rotate-your-avi-files/"><u>Simple Steps: Free Techniques to Convert and Rotate Your AVI Files!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/step-by-step-guide-converting-video-from-mpg-to-mp4-for-windows-11-users/"><u>Step-by-Step Guide: Converting Video From MPG to MP4 for Windows 11 Users</u></a></li>
-<li><a href="https://solve-info.techidaily.com/step-by-step-guide-transforming-movies-into-high-quality-flac-audio/"><u>Step-by-Step Guide: Transforming Movies Into High-Quality Flac Audio</u></a></li>
-<li><a href="https://solve-info.techidaily.com/top-9-clippers-for-gamers-ultimate-list-of-gameplay-editing-tools/"><u>Top 9 Clippers for Gamers: Ultimate List of Gameplay Editing Tools</u></a></li>
-<li><a href="https://solve-info.techidaily.com/top-rated-batch-processing-video-compression-tools-best-options-available/"><u>Top-Rated Batch Processing Video Compression Tools: Best Options Available</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unlocking-elusive-footage-the-systematic-guide-to-youtube-secrets/"><u>Unlocking Elusive Footage The Systematic Guide to YouTube Secrets</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/1726026739742-dailymotion/"><u>ブラウザでDailymotion動画を安全に保存するためのテクニック</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-virtual-clarity-streamlining-backgrounds-for-smooth-screenshots/"><u>[New] 2024 Approved Virtual Clarity Streamlining Backgrounds for Smooth Screenshots</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-mastering-funimate-easy-video-download-tutorial/"><u>[Updated] 2024 Approved Mastering Funimate Easy Video Download Tutorial</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-guide-incorporating-youtube-videos-in-google-slides-for-2024/"><u>[Updated] Guide Incorporating YouTube Videos in Google Slides for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-how-to-have-a-products-sponsorship-in-youtube/"><u>[Updated] How to Have a Products Sponsorship in Youtube</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-vivo-y27-5g-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Vivo Y27 5G FRP In 3 Different Ways</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-8-solutions-to-fix-find-my-friends-location-not-available-on-vivo-v27-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 8 Solutions to Fix Find My Friends Location Not Available On Vivo V27 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/insiders-guide-maximizing-windows-11-efficiency-for-2024/"><u>Insider's Guide Maximizing Windows 11 Efficiency for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/mp33gp/"><u>MP3形式への3GPファイル変換手順集</u></a></li>
+<li><a href="https://solve-info.techidaily.com/mp35/"><u>MP3音量変更手順：5秘技を解明する</u></a></li>
+<li><a href="https://solve-info.techidaily.com/podcast-conversion-mastery-discover-the-three-most-efficient-techniques-for-mp3-creation/"><u>Podcast Conversion Mastery: Discover the Three Most Efficient Techniques for MP3 Creation</u></a></li>
+<li><a href="https://solve-info.techidaily.com/repeat-your-success-top-3-methods-for-looping-videos-on-youtube/"><u>Repeat Your Success: Top 3 Methods for Looping Videos on YouTube</u></a></li>
+<li><a href="https://solve-info.techidaily.com/simple-steps-adding-black-stripes-or-bars-to-your-videos-on-windows/"><u>Simple Steps: Adding Black Stripes or Bars to Your Videos on Windows</u></a></li>
 </ul></div>
 

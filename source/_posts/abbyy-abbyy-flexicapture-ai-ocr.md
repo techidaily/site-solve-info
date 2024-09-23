@@ -1,7 +1,7 @@
 ---
 title: "ABBYYブログで解析: 効果的な帳票処理を可能にするABBYY FlexiCapture - AI OCRプラットフォームの革新"
-date: 2024-09-16T01:31:26.721Z
-updated: 2024-09-19T03:04:06.154Z
+date: 2024-09-19T16:01:18.449Z
+updated: 2024-09-23T18:18:07.596Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ae6df8d795ccb00d61125315956262434c01d350a9cd0692f6268b3c3a74de3f.jpg
@@ -32,6 +32,13 @@ thumbnail: https://thmb.techidaily.com/ae6df8d795ccb00d61125315956262434c01d350a
 #### 3\. 様々なワークフローへの対応
 
 #### 4\. 外部接続・連携
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. スケーラビリティ・アベイラビリティ
 
@@ -73,13 +80,6 @@ ABBYY FlexiCaptureは、エンタープライズ利用にとって必須要件�
 
 ![FlexiCapture ユーザーロール管理](https://static1.abbyy.com/abbyycommedia/29917/image-5.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. 様々なワークフローへの対応
 
 ABBYY FlexiCaptureは、ビジネスにおける様々な業務フローに合わせ、柔軟にワークフローを設定する事が可能です。
@@ -91,10 +91,17 @@ ABBYY FlexiCaptureは、ビジネスにおける様々な業務フローに合�
 ![FlexiCapture Sample Invoice ブロパティ](https://static1.abbyy.com/abbyycommedia/29919/image-7.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
+  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. 外部接続・連携
@@ -106,6 +113,13 @@ ABBYY FlexiCaptureは、コネクタやAPIを介して様々な外部システ�
 代表的なRPA製品（BluePrism, UiPath, WinActor, Pega, 等）に対し、専用コネクタの他、APIやファイル連携等様々な方法によるスムーズな連携が可能です。
 
 ![RPA FlexiCapture](https://static1.abbyy.com/abbyycommedia/29926/flexicapture-rpa-scheme-jp-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 各種事例については、以下リンクをご参照ください。
 
@@ -119,6 +133,13 @@ ABBYY FlexiCaptureは日本語の手書き文字認識はサポートしてお�
 
 ![他社エンジンとの連携 FlexiCapture](https://static1.abbyy.com/abbyycommedia/29920/image-9.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 以上、今回はABBYY FlexiCaptureのAI-OCRプラットフォーム（基盤）としての特長についてご紹介いたしました。
 
 ABBYY FlexiCaptureについての概要、デモの依頼、お問い合わせは[こちら](https://tools.techidaily.com/abbyy/products/)から承ります。
@@ -126,13 +147,6 @@ ABBYY FlexiCaptureについての概要、デモの依頼、お問い合わせ�
 [RPA](https://tools.techidaily.com/abbyy/products/) [DX（デジタルトランスフォーメーション）](https://tools.techidaily.com/abbyy/products/) [データプライバシー](https://tools.techidaily.com/abbyy/products/) [AI OCR](https://tools.techidaily.com/abbyy/products/) [エンタープライズ](https://tools.techidaily.com/abbyy/products/) 
 
 ![ABBYY logo circle](https://static5.abbyy.com/abbyycommedia/29971/abbyy-logo-2021-blog-99x99.png)
-
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ABBYY Japan エンジニアリングチーム
 
@@ -199,13 +213,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-innovation-in-minimization-the-finest-selection-of-43-mobile-video-trimming-apps/"><u>2024 Approved Innovation in Minimization The Finest Selection of 43 Mobile Video Trimming Apps</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/dive-into-literature-like-never-before-with-the-newly-improved-kindle-paperwhite-2018-our-expert-review-inside/"><u>Dive Into Literature Like Never Before with the Newly Improved Kindle Paperwhite (2018) - Our Expert Review Inside</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-upgrade-or-downgrade-iphone-xs-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Upgrade or Downgrade iPhone XS Without Data Loss? | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-the-art-of-degrees-elevating-your-youtube-videos/"><u>In 2024, The Art of Degrees Elevating Your YouTube Videos</u></a></li>
-<li><a href="https://solve-info.techidaily.com/step-by-step-guide-recording-crystal-clear-hd-footage-on-your-ps5/"><u>Step-by-Step Guide: Recording Crystal Clear HD Footage on Your PS5</u></a></li>
-<li><a href="https://solve-info.techidaily.com/step-by-step-tutorial-on-converting-your-apple-lossless-tracks-alac-to-the-superior-flac-codec/"><u>Step-by-Step Tutorial on Converting Your Apple Lossless Tracks (ALAC) to the Superior FLAC Codec</u></a></li>
-<li><a href="https://solve-info.techidaily.com/the-advantages-of-being-flexible-with-your-dates-for-better-rates/"><u>The Advantages of Being Flexible with Your Dates for Better Rates.</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/why-roborocks-s8-maxv-ultra-reigns-supreme-an-in-depth-review-of-the-elite-vacuum-robot-market/"><u>Why Roborock's S8 MaxV Ultra Reigns Supreme: An In-Depth Review of the Elite Vacuum Robot Market</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/1716069446922-new-your-comprehensive-manual-for-creating-an-accessible-and-effective-chat-room-within-skype-compatible-with-both-windows-and-macos-platforms-for-2024/"><u>[New] Your Comprehensive Manual for Creating an Accessible and Effective Chat Room Within Skype, Compatible with Both Windows & MacOS Platforms. For 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-how-tos-selecting-free-powerful-iphoneipad-edits/"><u>2024 Approved How-To's Selecting Free, Powerful iPhone/iPad Edits</u></a></li>
+<li><a href="https://solve-info.techidaily.com/gifwindowsand/"><u>美しいGIFをWindowsで制作するための完全説明:優秀ツール紹介&基本編集手法</u></a></li>
+<li><a href="https://solve-info.techidaily.com/discover-the-best-places-to-legally-get-your-favorite-cartoon-movies-now-download-and-enjoy-anywhere/"><u>Discover the Best Places to Legally Get Your Favorite Cartoon Movies - Now, Download & Enjoy Anywhere!</u></a></li>
+<li><a href="https://solve-info.techidaily.com/dsdflacwavmp3/"><u>DSD形式の高解像度オーディオをFLAC/WAV/MP3に簡単に変換するソフトウェアガイド</u></a></li>
+<li><a href="https://solve-info.techidaily.com/easier-methods-to-shrink-video-files-using-avidemux-a-step-by-step-guide/"><u>Easier Methods to Shrink Video Files Using Avidemux: A Step-by-Step Guide</u></a></li>
+<li><a href="https://solve-info.techidaily.com/easy-steps-to-capture-youtube-audio-streams-without-hassle/"><u>Easy Steps to Capture YouTube Audio Streams Without Hassle</u></a></li>
+<li><a href="https://solve-info.techidaily.com/edit-your-mkv-videos-on-windows-using-top-rated-editors/"><u>Edit Your MKV Videos on Windows Using Top-Rated Editors</u></a></li>
+<li><a href="https://solve-info.techidaily.com/effortlessly-exchange-files-unveiling-the-art-of-free-xvid-to-divx-conversions/"><u>Effortlessly Exchange Files: Unveiling the Art of FREE Xvid to DivX Conversions</u></a></li>
+<li><a href="https://solve-info.techidaily.com/expert-advice-navigating-through-title-the-ultimate-series-full-set-for-optimal-dvd-titling-choices/"><u>Expert Advice: Navigating Through TITLE - The Ultimate Series (Full Set) for Optimal DVD Titling Choices</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/fallout-76-performance-issues-fixing-the-games-frame-rate-drops/"><u>Fallout 76 Performance Issues: Fixing the Game's Frame Rate Drops</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/fixing-non-functional-read-aloud-in-office-suite-word/"><u>Fixing Non-Functional Read Aloud in Office Suite (Word)</u></a></li>
+<li><a href="https://solve-info.techidaily.com/guide-to-seamlessly-transform-img-images-into-smooth-playing-mp4-videos-compatible-with-every-device/"><u>Guide to Seamlessly Transform IMG Images Into Smooth-Playing MP4 Videos Compatible with Every Device</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/how-to-permanently-delete-files-discover-these-7-algorithm-secrets/"><u>How To Permanently Delete Files? Discover These 7 Algorithm Secrets</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-forgot-apple-iphone-6s-plus-backup-password-heres-what-to-do-by-drfone-ios/"><u>In 2024, Forgot Apple iPhone 6s Plus Backup Password? Heres What to Do</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-tecno-spark-20-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Tecno Spark 20 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://app-tips.techidaily.com/instagrams-reliability-questioned-insights-from-a-zdnet-investigation/"><u>Instagram's Reliability Questioned: Insights From a ZDNet Investigation</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/inizing-how-content-makers-get-paid-from-youtube-shorts-videos/"><u>Scrutinizing How Content Makers Get Paid From YouTube Shorts Videos</u></a></li>
+<li><a href="https://article-posts.techidaily.com/what-does-virtual-mean-in-a-world-of-reality-in-2024/"><u>What Does 'Virtual' Mean in a World of Reality, In 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Scott Opitz Transitions to Key Leadership Roles as CTO and CPO at D'Abbyy
-date: 2024-09-14T17:20:02.932Z
-updated: 2024-09-19T03:30:24.347Z
+date: 2024-09-16T16:07:40.140Z
+updated: 2024-09-23T17:35:06.516Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5c41e214e42161b19b3ba596b247b1528c5c85cbd29aaa92283a320b0b166cc8.jpg
@@ -31,15 +31,36 @@ Scott Opitz a rejoint ABBYY en 2019, lors de l’[acquisition de TimelinePI](htt
 
 Scott a également occupé plusieurs fonctions de direction au sein d’entreprises publiques et privées. Il est inventeur et détient 13 brevets et demandes de brevets relatifs aux technologies de Process Intelligence.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### À propos d’ABBYY
 
 ABBYY est un acteur référent de l’Intelligent Process Automation. L’entreprise ambitionne de réinventer la manière dont ses clients et leurs équipes se développent en leur apportant la connaissance nécessaire au bon fonctionnement des plateformes d’automatisation. Les solutions d’ABBYY transforment les données d’entreprise dans le but de permettre un gain en agilité et en rapidité. ABBYY aide plus de 5 000 clients dans le monde, dont bon nombre des entreprises du Fortune 500, à obtenir un impact positif dans des domaines majeurs tels que l’expérience client, la rentabilité et la compétitivité.
 
 ABBYY est une multinationale basée aux États-Unis, et dont les bureaux sont répartis au sein de 15 pays. Pour plus d’informations, veuillez consulter le site[https://www.abbyy.com/fr/](https://tools.techidaily.com/abbyy/products/).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884017/19272" target="_top" id="1884017">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884017" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884017/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Contact presse
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Bianca Stupp
 
@@ -64,27 +85,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-adoption-trends-for-arvr-shopping/"><u>[New] 2024 Approved Adoption Trends for AR/VR Shopping</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/asy-sound-transformation-ios-tools-to-convert-youtube-songs-to-mp3-files/"><u>[New] Easy Sound Transformation IOS Tools to Convert YouTube Songs to MP3 Files</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-essential-techniques-for-yt-video-tweaking-with-wm-maker-for-2024/"><u>[New] Essential Techniques for YT Video Tweaking with WM Maker for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-perfecting-the-art-of-photo-mosaic-creation/"><u>[New] Perfecting the Art of Photo Mosaic Creation</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-innovating-quickly-2-approaches-to-making-snapchat-filters/"><u>2024 Approved Innovating Quickly 2 Approaches to Making Snapchat Filters</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1726026473894-bilibili/"><u>Bilibiliビデオでロゴを取り除くためのステップバイステップマニュアル</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-xiaomi-13t-pro-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Xiaomi 13T Pro For Mobile Legends? | Dr.fone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/1722159707964-localize-the-power-of-conversational-ai-free-and-easy-installation-of-a-chatgpt-clone-via-gpt4all-for-your-pc/"><u>Localize the Power of Conversational AI: Free and Easy Installation of a ChatGPT Clone via GPT4All for Your PC!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/ultimate-guide-to-downloading-movies-from-dvds-onto-your-pc-step-by-step-process/"><u>Ultimate Guide to Downloading Movies From DVDs Onto Your PC - Step by Step Process</u></a></li>
-<li><a href="https://solve-info.techidaily.com/understanding-handbrakes-capabilities-for-merging-multiple-video-streams-insights-and-solutions/"><u>Understanding Handbrake's Capabilities for Merging Multiple Video Streams: Insights & Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/understanding-resolution-upgrades-does-true-4k-offer-significant-advantages-over-1080p/"><u>Understanding Resolution Upgrades: Does True 4K Offer Significant Advantages Over 1080P?</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/unpacking-the-features-of-androids-lightroom-app-for-2024/"><u>Unpacking the Features of Android's Lightroom App for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/vcruntime140dll-errors-explained-causes-and-fixes-for-a-successful-repair/"><u>VCRUNTIME140.dll Errors Explained: Causes and Fixes for a Successful Repair</u></a></li>
-<li><a href="https://solve-info.techidaily.com/windows-11youtubesd/"><u>Windows 11でパソコンからYouTube音楽をSDカードへ転送するための完全ガイド</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1726026566647-3/"><u>ダウンロード無しで音声抽出: ムービーからのトラック3方法紹介</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-secure-your-fb-story-views-with-these-5-techniques/"><u>[Updated] Secure Your FB Story Views with These 5 Techniques</u></a></li>
+<li><a href="https://solve-info.techidaily.com/3gppmp3-seo/"><u>「安全で高速・簡単な3GPPファイルのMP3への大容量変換ガイド – SEO向け最適化タイトル」</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726029928893-wav/"><u>「WAV」フォーマットで動画・音楽を変換する方法</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/1-best-screen-recording-and-streaming-app-manycam-ultimate-virtual-camera-solution/"><u>1. Best Screen Recording and Streaming App - ManyCam: Ultimate Virtual Camera Solution</u></a></li>
+<li><a href="https://solve-info.techidaily.com/3-movmpeg/"><u>3つの最高のフリーコンバイター: MOVファイルからMPEGへ</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726029250121-mp4/"><u>動画ファイルMP4での音声交換テクニック解説</u></a></li>
+<li><a href="https://solve-info.techidaily.com/a-step-by-step-guide-to-embedding-audio-onto-video-clips-with-vlc-software/"><u>A Step-by-Step Guide to Embedding Audio Onto Video Clips with VLC Software</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/diagnose-and-repair-a-nonfunctioning-logitech-g5-33-mic-with-proven-techniques/"><u>Diagnose and Repair a Nonfunctioning Logitech G5 33 Mic with Proven Techniques</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/rprime-design-for-2024/"><u>EditorPrime Design for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-samsung-galaxy-a15-4g-lock-screen-password-by-drfone-android/"><u>How To Change Samsung Galaxy A15 4G Lock Screen Password?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-apps-and-online-tools-to-track-lava-blaze-pro-5g-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Lava Blaze Pro 5G Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/teslas-self-driving-taxi-venture-anticipated-cost-structure-projected-market-entry-date-and-detailed-specifications/"><u>Tesla's Self-Driving Taxi Venture - Anticipated Cost Structure, Projected Market Entry Date, and Detailed Specifications</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-advantages-of-evs-over-traditional-gasoline-cars-explained/"><u>The Advantages of EVs Over Traditional Gasoline Cars Explained</u></a></li>
+<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-honor-x8b-drfone-by-drfone-virtual-android/"><u>Thinking About Changing Your Netflix Region Without a VPN On Honor X8b? | Dr.fone</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

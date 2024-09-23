@@ -1,7 +1,7 @@
 ---
 title: "Navigating Financial Turbulence: Essential Digital Tactics for Banking Success with Insights From ABBYY Leaders"
-date: 2024-09-12T20:40:17.646Z
-updated: 2024-09-18T20:02:23.803Z
+date: 2024-09-17T18:31:30.768Z
+updated: 2024-09-23T16:32:12.339Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b15da95a75575187a58fe60ff06afce56cf37bc750905abb4530851c744c2b18.jpg
@@ -15,11 +15,32 @@ thumbnail: https://thmb.techidaily.com/b15da95a75575187a58fe60ff06afce56cf37bc75
 
 English
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Featuring
 
 ![18 Reggietwigg 198X198](https://static4.abbyy.com/abbyycommedia/25121/logo-2021-90x27.svg) 
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![18 Reggietwigg 198X198](https://static4.abbyy.com/abbyycommedia/25486/18-reggietwigg-198x198.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Reginald J. Twigg, Ph.D.
 
@@ -29,27 +50,20 @@ Director of Product Marketing, Digital Enterprise, **ABBYY**
 
 ![13 Jacobmorgan 198X198](https://static4.abbyy.com/abbyycommedia/25477/13-jacobmorgan-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Jacob Morgan
 
 Senior Analyst, **Forrester**
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Overview
 
 The challenges that banks are facing are staggering— overwhelming exceptions in lending, unprecedented threats to KYC/AML, and LIBOR compliance. The tidal wave of COVID-related loan and forbearance applications continues to rise, while the strain of supporting a remote workforce is pushing processes and technology into crisis. Digital transformation is more necessary than ever…and yet investments must be prioritized strategically.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Watch this webinar to get:
 
@@ -60,10 +74,10 @@ The challenges that banks are facing are staggering— overwhelming exceptions i
 Watch now to learn how to overcome today’s crisis and prepare for tomorrow.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Watch now
@@ -144,17 +158,17 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ransform-your-videos-simple-steps-to-include-youtube-subtitlescc/"><u>[New] Transform Your Videos Simple Steps to Include YouTube Subtitles/CC</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-joining-in-on-tiktok-gigs-without-causing-a-ruckus/"><u>[Updated] Joining in on TikTok Gigs Without Causing a Ruckus</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1726028825250-android/"><u>安心かつ効率的なAndroidディスク再生 - 最高のアプリ検討</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1726029357749-avidemux/"><u>動画圧縮のためのAvidemux代替方法とヒント</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/complete-guide-erase-all-content-and-tracker-data-from-your-iphone-forever/"><u>Complete Guide: Erase All Content & Tracker Data From Your iPhone Forever</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/dancefloor-dynamics-free-pristine-dj-template-videos-for-2024/"><u>Dancefloor Dynamics Free, Pristine DJ Template Videos for 2024</u></a></li>
-<li><a href="https://driver-download.techidaily.com/download-and-install-creative-webcam-software-on-your-windows-pc-free-updates-included/"><u>Download and Install Creative Webcam Software on Your Windows PC - Free Updates Included</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1726028779334-gopromp4/"><u>GoPro撮影したファイルに最適なMP4変換方法を学ぶ！</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-location-on-tiktok-to-see-more-content-on-your-oppo-a56s-5g-drfone-by-drfone-virtual-android/"><u>How to Change Location on TikTok to See More Content On your Oppo A56s 5G | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1726028345290-mp4/"><u>MP4ファイルの再コーディング手順とテクニック</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/unending-screen-documentation-sites-for-2024/"><u>Unending Screen Documentation Sites for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1726029193724-pc/"><u>アニメ動画サブタイトル配信「アニメ放題」PC画面キャプチャ方法</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-tiktok-video-aspect-ratios/"><u>[New] 2024 Approved TikTok Video Aspect Ratios</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-exploring-affordable-cloud-storage-solutions/"><u>[Updated] In 2024, Exploring Affordable Cloud Storage Solutions</u></a></li>
+<li><a href="https://solve-info.techidaily.com/7n/"><u>「様々な形式でも、動画解像度を簡単に切り替えるための7つの自由提�n体ツール」</u></a></li>
+<li><a href="https://solve-info.techidaily.com/44cm44k144og44oq44gu55s76z2i6yyy55s75oml6acg44ks6kmz44gx44gp6kej6kqs77yb44cn/"><u>「サムバの画面録画手順を詳しく解説！」</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-luxury-makeup-techniques-unveiled/"><u>2024 Approved Luxury Makeup Techniques Unveiled</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-snap-a-story-sharing-photos-and-videos-without-retweet/"><u>2024 Approved Snap a Story Sharing Photos & Videos Without Retweet</u></a></li>
+<li><a href="https://solve-info.techidaily.com/4k-5/"><u>無料の4Kビデオファイナライザー: トップ5 フルハイビジョンへの変換ツール</u></a></li>
+<li><a href="https://solve-info.techidaily.com/54sh5paz44ox44ot44kw44op44og44gr44ki44kl6zplusz5aow44oh44o844k57wx5zci44gu5pa55rov/"><u>無料プログラムによる音声データ統合の方法</u></a></li>
+<li><a href="https://win-blog.techidaily.com/convertissez-facilement-votre-fichier-quicktime-qt-en-format-avi-sans-frais-a-laide-de-movavi-solution-gratuite-et-efficace/"><u>Convertissez Facilement Votre Fichier QuickTime (.QT) en Format AVI Sans Frais À L'aide De Movavi - Solution Gratuite Et Efficace</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/exploring-computer-gadgets-with-toms-hardware-insights/"><u>Exploring Computer Gadgets with Tom's Hardware Insights</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-my-motorola-moto-g34-5g-location-is-wrong-drfone-by-drfone-virtual-android/"><u>How to Fix My Motorola Moto G34 5G Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/44or44k944kz44oz5zcr44gr44gr44gk44gz44gz44kbieoajoacgoawsoobruwlleeuupluswcppluse4ruocveodleodioocpuocpplusocouobqoodhuocrplusodiplusodgplusocrplusoajq/"><u>パソコン向けにおすすめ!「最新の動画圧縮ソフトウェアとテクニック」</u></a></li>
 </ul></div>
 

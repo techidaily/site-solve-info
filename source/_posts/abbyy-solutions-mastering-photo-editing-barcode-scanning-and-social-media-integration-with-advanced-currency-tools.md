@@ -1,7 +1,7 @@
 ---
 title: "ABBYY Solutions: Mastering Photo Editing, Barcode Scanning & Social Media Integration with Advanced Currency Tools"
-date: 2024-09-14T22:30:14.983Z
-updated: 2024-09-18T16:17:49.892Z
+date: 2024-09-20T18:08:32.637Z
+updated: 2024-09-23T18:23:14.495Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a516821dc0dcd8fb768903303922c214d1ad710be56ca1c3f04be97b27b5dc47.jpg
@@ -41,6 +41,13 @@ Loop turns your Live Photo into a video loop, Bounce makes your photo rock back 
 
 ![Long Exposure iPhone 6S Live Photos](https://static1.abbyy.com/abbyycommedia/26346/long-exposure.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Planning to take a group photo? Try Timer that sets the countdown (from 3 to 10 seconds) and lets you create amazing photos where all of your friends will make it in the shot.
 
 Camera app also enables you to modify focus and camera exposure of selected shot areas or simply make your shot darker or lighter. Click the area that you wish to modify. To turn on the auto-focus, tap and hold an object on your shot until you see the **AE/AF lock**. You can freely move your camera, the focus will be fixed on the selected spot. To adjust exposure, move the sun icon in the focus square up or down.
@@ -50,6 +57,13 @@ Camera app also enables you to modify focus and camera exposure of selected shot
 This mode is featured in [iPhone 7 Plus](https://www.apple.com/iphone/), [iPhone 8 Plus](https://www.apple.com/iphone/), and [iPhone X](https://www.apple.com/iphone/). It uses two iPhone cameras to create the so-called depth effect that lets you defocus the background by blurring it and focus at the foreground.
 
 ![depth effect Portrait mode ios iphone](https://static1.abbyy.com/abbyycommedia/26347/depth-effect-2.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [iPhone 8 Plus](https://www.apple.com/iphone/) and [iPhone X](https://www.apple.com/iphone/) allow you to use effects of the studio lighting. After you’ve made a shot, click **Edit** and select one of the available effects: Natural Light, Studio Light, Contour Light, or Stage Light, Stage Light Mono and your iPhone will make your photos look like they were taken in a photo studio.
 
@@ -80,6 +94,13 @@ Taking your child to a pool or a trampoline park? Try taking a video in the Slow
 This mode works the other way around, it records a video over certain periods of time and then speeds it up. It is perfect to film continued events like movement of clouds or a nightfall. A distinctive feature of this mode is that the video will last less then the time required to take it.
 
 Another feature that was made available in [iOS 11](https://www.apple.com/ios/ios-11/) Camera is QR code recognition. To activate the function, go to **Settings** → **Camera** and turn on **QR code scanning**. Hovering a camera over a QR code will prompt a notification with further suggestions, for example, to open a link from the code in [Safari](https://www.apple.com/safari/).
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Android Tip: Features of Cameras on Android**
 
@@ -121,6 +142,13 @@ Samsung camera is trained to recognized objects on photos and search for similar
 
 Just like iPhone, Samsung lets you record 4K videos. To configure the quality or other settings of photo taking, go to Settings at the top panel of the camera app. You can also record slow-mo videos.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **ABBYY Tip: How to Add Data From Social Networks to BCR**
 
 With the last update, [iOS](http://qrs.ly/ip56xfe)BCR was enhanced with a feature that lets you search for contacts in Facebook and LinkedIn and transfer information from these social networks to business cards.
@@ -141,29 +169,28 @@ If your [BCR](http://qrs.ly/ip56xfe)contact lacked a photo, it will be added fro
 
 [BCR](http://qrs.ly/ip56xfe) will save a link to a Facebook or LinkedIn profile in a business card so that you can open a social network page at anytime.
 
+<!-- affiliate ads begin -->
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **App of the Week: Valuta+ Currency Converter**
 
 Are you planning on going abroad but still afraid that you won’t know the exchange rate? Meet [Valuta+](https://itunes.apple.com/us/app/valuta-currency-converter/id646925682?mt=8) — a fast and easy-to-use currency converter that works anywhere you want, does not rely on the internet connection, and, most importantly, is available for free!
 
 ![App Valuta+ Currency Converter ios](https://static1.abbyy.com/abbyycommedia/26353/currency1-1.png)![iphone android application valuta+ currency](https://static1.abbyy.com/abbyycommedia/26354/currency2-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
-  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 This user-friendly app converts over 170 currencies, works offline, and has a favorites list.
 
 Valuta+ can be downloaded from [iOS](https://itunes.apple.com/us/app/valuta-currency-converter/id646925682?mt=8) and [Android](https://play.google.com/store/apps/details?id=com.danielnoehr.valuta&hl=en%5FUS).
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **First-Hand Experience: Advice From a Colleague**
 
@@ -188,6 +215,13 @@ That’s all for today. See you next Monday!
 P.S. Go [here](https://tools.techidaily.com/abbyy/products/), to check our previous issue.
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -253,17 +287,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-6-proven-techniques-to-elevate-your-youtube-engagement-and-reduce-churn/"><u>[New] 2024 Approved 6 Proven Techniques to Elevate Your YouTube Engagement and Reduce Churn</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-ultimate-list-templates-for-youtube-previews/"><u>[New] 2024 Approved Ultimate List Templates for YouTube Previews</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/10-best-mobile-writing-tools-for-iosandroid-images/"><u>10 Best Mobile Writing Tools for iOS/Android Images</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-creating-an-impactful-film-short-summary/"><u>2024 Approved Creating an Impactful Film Short Summary</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-effortlessly-record-circles-iphone-techniques-for-fb-feed/"><u>2024 Approved Effortlessly Record Circles IPhone Techniques for FB Feed</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/an-in-depth-look-at-wirecast-and-what-it-offers-for-2024/"><u>An In-Depth Look at WireCast and What It Offers for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/guide-how-can-i-put-my-dvd-on-youtube/"><u>Guide: How Can I Put My DVD on YouTube?</u></a></li>
-<li><a href="https://solve-info.techidaily.com/successful-solutions-for-pro-aax-to-mp3-audio-converter-apps/"><u>Successful Solutions for Pro AAX to MP3 Audio Converter Apps</u></a></li>
-<li><a href="https://solve-info.techidaily.com/ultimate-guide-to-the-most-efficient-dvd-to-mp4-converters-on-windows-11-2024-edition/"><u>Ultimate Guide to the Most Efficient DVD to MP4 Converters on Windows 11 - 2024 Edition!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/ultimate-guide-setting-up-adultflix-plugin-for-kodi-leia-and-krypton-edition/"><u>Ultimate Guide: Setting Up AdultFlix Plugin for Kodi - Leia & Krypton Edition</u></a></li>
-<li><a href="https://solve-info.techidaily.com/ultimate-kodi-tutorial-series-mastering-your-media-experience-from-pages-1-6/"><u>Ultimate Kodi Tutorial Series: Mastering Your Media Experience From Pages 1-6</u></a></li>
-<li><a href="https://extra-information.techidaily.com/visualmeld-crafting-multimedia-narratives-for-sierra/"><u>VisualMeld Crafting Multimedia Narratives for Sierra</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-quintessential-scripts-elevating-blockbusters/"><u>[New] Quintessential Scripts Elevating Blockbusters</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unlock-the-potential-of-youtube-videos-the-ultimate-chapter-addition-technique/"><u>[New] Unlock the Potential of YouTube Videos The Ultimate Chapter Addition Technique</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-expert-guide-3-ways-to-keep-track-of-live-discord-events/"><u>[Updated] In 2024, Expert Guide 3 Ways to Keep Track of Live Discord Events</u></a></li>
+<li><a href="https://solve-info.techidaily.com/3gppmp3-seo/"><u>「安全で高速・簡単な3GPPファイルのMP3への大容量変換ガイド – SEO向け最適化タイトル」</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726029928893-wav/"><u>「WAV」フォーマットで動画・音楽を変換する方法</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-must-have-tiktok-instruments-boosting-fame-in-the-shortest-time/"><u>2024 Approved Must-Have TikTok Instruments Boosting Fame in the Shortest Time</u></a></li>
+<li><a href="https://solve-info.techidaily.com/3-movmpeg/"><u>3つの最高のフリーコンバイター: MOVファイルからMPEGへ</u></a></li>
+<li><a href="https://solve-info.techidaily.com/a-step-by-step-guide-to-embedding-audio-onto-video-clips-with-vlc-software/"><u>A Step-by-Step Guide to Embedding Audio Onto Video Clips with VLC Software</u></a></li>
+<li><a href="https://solve-info.techidaily.com/best-methods-to-reduce-size-of-mov-video-files-using-popular-compression-software-across-devices-and-services/"><u>Best Methods to Reduce Size of MOV Video Files Using Popular Compression Software Across Devices and Services</u></a></li>
+<li><a href="https://solve-info.techidaily.com/capcutwindows/"><u>CapCutアプリケーションでWindows上で動画劇場化マスタリー術</u></a></li>
+<li><a href="https://solve-info.techidaily.com/download-your-own-portable-version-freeze-frame-edition-on-the-move-viewing/"><u>Download Your Own Portable Version: Freeze Frame Edition - On-the-Move Viewing</u></a></li>
+<li><a href="https://solve-info.techidaily.com/effortless-conversion-of-vob-video-files-to-avi-for-windows-users/"><u>Effortless Conversion of VOB Video Files to AVI for Windows Users</u></a></li>
+<li><a href="https://solve-info.techidaily.com/effortless-format-transformation-convert-3gp-videos-to-popular-file-types-mp4-avi-mkv-with-our-advanced-converter/"><u>Effortless Format Transformation: Convert 3GP Videos to Popular File Types (MP4, AVI, MKV) with Our Advanced Converter</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/network-locked-sim-card-inserted-on-your-itel-s23-phone-unlock-it-now-by-drfone-android/"><u>Network Locked SIM Card Inserted On Your Itel S23 Phone? Unlock It Now</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-in-2024-a-comprehensive-review-the-premier-audio-changers-for-smartphones/"><u>New In 2024, A Comprehensive Review The Premier Audio Changers for Smartphones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-digital-language-odyssey-begins-with-arabic-lessons-from-mondly-online/"><u>The Digital Language Odyssey Begins with Arabic Lessons From Mondly Online</u></a></li>
+<li><a href="https://some-skills.techidaily.com/turbocharged-windows-content-assessment-for-2024/"><u>Turbocharged Windows Content Assessment for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-motorola-moto-g14-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Location is Not Updating and How to Fix On Motorola Moto G14 | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/windows-8-video-editing-made-easy-with-movie-maker-tips-and-tricks/"><u>Windows 8 Video Editing Made Easy with Movie Maker Tips & Tricks</u></a></li>
 </ul></div>
 

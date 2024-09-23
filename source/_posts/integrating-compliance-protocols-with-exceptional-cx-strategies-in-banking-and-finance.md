@@ -1,7 +1,7 @@
 ---
 title: Integrating Compliance Protocols with Exceptional CX Strategies in Banking & Finance
-date: 2024-09-14T22:50:40.958Z
-updated: 2024-09-18T21:42:12.835Z
+date: 2024-09-20T18:19:25.281Z
+updated: 2024-09-23T18:03:18.159Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/010139d6077f90333f3025af8c182332c9900266fd1f6067fe122889069013d2.jpg
@@ -19,6 +19,13 @@ English
 
 ![John Robbins 88x88](https://static5.abbyy.com/abbyycommedia/34666/johnrobbins-88x88.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### John Robbins
 
 Senior Director, Chief Compliance Officer, **Intercontinental Exchange**  
@@ -26,10 +33,10 @@ Senior Director, Chief Compliance Officer, **Intercontinental Exchange**
 ![John Fick 88x88](https://static2.abbyy.com/abbyycommedia/34665/johnfick-88x88.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### John Fick
@@ -39,10 +46,10 @@ Vice President & Manager, Fraud and Investigations, **Columbia Bank**
 ![Evan Gordon 88x88](https://static1.abbyy.com/abbyycommedia/34664/evangordon-88x88.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Evan Gordon
@@ -52,15 +59,28 @@ Chief Compliance Officer, **APG**
 ![Cherylchiodi 99X99](https://static4.abbyy.com/abbyycommedia/31818/cherylchiodi-99x99.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Cheryl Chiodi
 
 Solutions Marketing Manager, Financial Services, **ABBYY**  
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Overview
 
@@ -75,14 +95,14 @@ At a recent virtual roundtable, panelists in the financial services space came t
 * Leveraging Digital Intelligence to improve the customer experience.
 * Using automation to find key areas of vulnerability and process bottlenecks.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Fill in the form to register for the webinar now
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Get in touch with us
 
@@ -162,14 +182,17 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-guidance.techidaily.com/new-unveiling-professional-techniques-for-aps-hdr-creation/"><u>[New] Unveiling Professional Techniques for APS HDR Creation</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/enhancing-digital-footprints-using-cookiebot-solutions-skyrocket-your-web-visibility/"><u>Enhancing Digital Footprints Using Cookiebot Solutions: Skyrocket Your Web Visibility</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On OnePlus Nord 3 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-nokia-xr21-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Nokia XR21 | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/simple-steps-transforming-dv-videos-into-avi-format-on-your-pc/"><u>Simple Steps: Transforming DV Videos Into AVI Format on Your PC</u></a></li>
-<li><a href="https://solve-info.techidaily.com/step-by-step-guide-to-transforming-windows-media-files-into-mp4-players/"><u>Step-by-Step Guide to Transforming Windows Media Files Into MP4 Players</u></a></li>
-<li><a href="https://solve-info.techidaily.com/step-by-step-guide-adding-and-extracting-subtitles-in-m2ts-video-format/"><u>Step-by-Step Guide: Adding and Extracting Subtitles in M2TS Video Format</u></a></li>
-<li><a href="https://solve-info.techidaily.com/step-by-step-guide-converting-mkv-video-track-into-mp4m4a-audio-file/"><u>Step-by-Step Guide: Converting MKV Video Track Into MP4/M4A Audio File</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/ultimate-guide-mastering-the-measure-app-on-your-android-smartphone/"><u>Ultimate Guide: Mastering the Measure App on Your Android Smartphone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-examining-the-economic-impact-of-mr-beast/"><u>[New] In 2024, Examining the Economic Impact of Mr. Beast</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-harmonized-technology-judgments-by-experts/"><u>[Updated] 2024 Approved Harmonized Technology Judgments by Experts</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-legitimate-strategies-to-amass-over-a-million-youtube-views/"><u>[Updated] Legitimate Strategies to Amass Over a Million YouTube Views</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-intricacies-of-whatsapp-audio-dialogue/"><u>[Updated] The Intricacies of WhatsApp Audio Dialogue</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-2-ways-to-transfer-text-messages-from-vivo-y27s-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 2 Ways to Transfer Text Messages from Vivo Y27s to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-itel-s23plus-device-by-drfone-android/"><u>In 2024, The Ultimate Guide How to Bypass Swipe Screen to Unlock on Itel S23+ Device</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/primes-trending-topics-highest-tweets-and-watch-count-achievements/"><u>Prime’s Trending Topics Highest Tweets & Watch Count Achievements</u></a></li>
+<li><a href="https://solve-info.techidaily.com/step-by-step-guide-transforming-movies-into-high-quality-flac-audio/"><u>Step-by-Step Guide: Transforming Movies Into High-Quality Flac Audio</u></a></li>
+<li><a href="https://solve-info.techidaily.com/top-9-clippers-for-gamers-ultimate-list-of-gameplay-editing-tools/"><u>Top 9 Clippers for Gamers: Ultimate List of Gameplay Editing Tools</u></a></li>
+<li><a href="https://solve-info.techidaily.com/top-rated-batch-processing-video-compression-tools-best-options-available/"><u>Top-Rated Batch Processing Video Compression Tools: Best Options Available</u></a></li>
+<li><a href="https://solve-info.techidaily.com/transform-your-videos-comprehensive-tutorial-on-changing-ogm-to-mp4/"><u>Transform Your Videos: Comprehensive Tutorial on Changing OGM to MP4</u></a></li>
+<li><a href="https://solve-info.techidaily.com/trouble-free-guide-watching-dvd-movies-on-your-pc/"><u>Trouble-Free Guide: Watching DVD Movies on Your PC</u></a></li>
 </ul></div>
 

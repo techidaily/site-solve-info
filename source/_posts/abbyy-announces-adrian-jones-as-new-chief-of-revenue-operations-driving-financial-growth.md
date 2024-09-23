@@ -1,7 +1,7 @@
 ---
 title: ABBYY Announces Adrian Jones as New Chief of Revenue Operations, Driving Financial Growth
-date: 2024-09-12T16:08:08.460Z
-updated: 2024-09-19T01:18:58.597Z
+date: 2024-09-19T17:14:33.049Z
+updated: 2024-09-23T17:57:42.595Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f0922cdea4398af9eb93c3915c9d932ac3a495368c2166a8e69e3bccbb692700.jpg
@@ -31,15 +31,36 @@ Jones ist derzeit als Senior Advisor für das Private-Equity-Unternehmen Warburg
 
 1 IDC, Worldwide Intelligent Process Automation Market Shares, 2020: Solid Growth Across Cloud Segments, Doc # US47469221, June 2021.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Über ABBYY
 
 ABBYY ermöglicht es, mit seiner Digital Intelligence Plattform die gesamten Geschäftsprozesse und Informationen, die ein Unternehmen antreiben, zu analysieren und im Detail zu verstehen. ABBYY-Technologien werden von mehr als 5.000 Unternehmen weltweit eingesetzt, darunter viele Fortune-500-Unternehmen. Die als führend ausgezeichneten Lösungen im Bereich[Intelligent Document Processing (IDP)](https://tools.techidaily.com/abbyy/products/) und [Process Discovery & Mining](https://tools.techidaily.com/abbyy/products/) steigern Effizienz, Rentabilität und Wettbewerbsfähigkeit eines Unternehmens und verbessern das Kundenerlebnis nachhaltig. ABBYY ist ein globales Unternehmen mit Niederlassungen in 14 Ländern. Weitere Informationen finden Sie unter <https://www.abbyy.com/de>.
 
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Pressekontakt:
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Bianca Stupp
 
@@ -64,25 +85,21 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-conquer-the-crowd-initiating-your-top-ranked-gaming-channel/"><u>[New] 2024 Approved Conquer the Crowd Initiating Your Top-Ranked Gaming Channel</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-how-to-use-zoom-video-filters-to-make-a-high-quality-video-call/"><u>[New] How to Use Zoom Video Filters to Make a High-Quality Video Call</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-the-new-wave-of-youtube-channel-titles-perfect-for-vloggers-limited-to-156-characters/"><u>[New] In 2024, The New Wave of YouTube Channel Titles Perfect for Vloggers (Limited to 156 Characters)</u></a></li>
-<li><a href="https://solve-info.techidaily.com/best-methods-to-reduce-size-of-mov-video-files-using-popular-compression-software-across-devices-and-services/"><u>Best Methods to Reduce Size of MOV Video Files Using Popular Compression Software Across Devices and Services</u></a></li>
-<li><a href="https://solve-info.techidaily.com/capcutwindows/"><u>CapCutアプリケーションでWindows上で動画劇場化マスタリー術</u></a></li>
-<li><a href="https://solve-info.techidaily.com/download-your-own-portable-version-freeze-frame-edition-on-the-move-viewing/"><u>Download Your Own Portable Version: Freeze Frame Edition - On-the-Move Viewing</u></a></li>
-<li><a href="https://solve-info.techidaily.com/effortless-conversion-of-vob-video-files-to-avi-for-windows-users/"><u>Effortless Conversion of VOB Video Files to AVI for Windows Users</u></a></li>
-<li><a href="https://solve-info.techidaily.com/effortless-format-transformation-convert-3gp-videos-to-popular-file-types-mp4-avi-mkv-with-our-advanced-converter/"><u>Effortless Format Transformation: Convert 3GP Videos to Popular File Types (MP4, AVI, MKV) with Our Advanced Converter</u></a></li>
-<li><a href="https://solve-info.techidaily.com/guide-two-hassle-free-ways-to-insert-watermarks-into-youtube-content/"><u>Guide: Two Hassle-Free Ways to Insert Watermarks Into YouTube Content</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-sony-xperia-5-v-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>How to Unlock Sony Xperia 5 V Pattern Lock if Forgotten? 6 Ways</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-industry-standards-the-top-5-online-video-devices/"><u>In 2024, Industry Standards The Top 5 Online Video Devices</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-poco-x5frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Poco X5FRP Lock</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/secrets-revealed-saving-video-chats-from-facebook-messenger-for-2024/"><u>Secrets Revealed Saving Video Chats From Facebook Messenger for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-castwithease-how-to-make-livestreaming-your-podcast-effortless/"><u>[New] CastWithEase How to Make Livestreaming Your Podcast Effortless</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/xporting-your-creativity-imovie-videos-for-youtube-audiences/"><u>[New] Exporting Your Creativity IMovie Videos for YouTube Audiences</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-capture-perfection-4-methods-of-saving-chromebook-screenshots/"><u>[Updated] In 2024, Capture Perfection 4 Methods of Saving Chromebook Screenshots</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-melodic-matchmaking-complementary-soundtracks-for-boxings/"><u>[Updated] Melodic Matchmaking Complementary Soundtracks for Boxings</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726028728450-3/"><u>「最新ビデオ合成ツールベストセレクション：日本版3つのおすすめソフトウェア！」</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1-ultimate-guide-mastering-picture-in-picture-recording-techniques/"><u>1. Ultimate Guide: Mastering Picture-in-Picture Recording Techniques</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726026907580-windows-1011/"><u>動画編集ツールとしてWindows 10/11「フォト」を利用するガイド</u></a></li>
+<li><a href="https://solve-info.techidaily.com/wmaflac/"><u>簡単ガイド: WMA音楽データをFLAC形式にするためのプログラムとオンラインツール</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/beware-of-google-bard-risks-and-dangers-of-downloading-potential-malware/"><u>Beware of Google Bard: Risks & Dangers of Downloading Potential Malware</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/constructing-a-daily-sanctuary-through-ai-guided-reflection/"><u>Constructing a Daily Sanctuary Through AI-Guided Reflection</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-the-newest-rtx-2060-graphics-card-driver-for-all-windows-versions-including-11-10-8-and-eboot/"><u>Get the Newest RTX 2060 Graphics Card Driver for All Windows Versions Including 11, 10, 8 & Eboot</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-elevate-your-igtv-presence-secrets-to-skyrocketing-subscribers/"><u>In 2024, Elevate Your IGTV Presence Secrets to Skyrocketing Subscribers</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726030611184-powerdirector/"><u>PowerDirectorで効果的なビデオ編集:組み込み技術ガイド</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-iphone-15-plus-data-from-ios-itunes-backup-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover iPhone 15 Plus Data From iOS iTunes Backup | Dr.fone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/ultimate-guide-to-the-top-11-video-format-changers-for-pc-including-browser-based-solutions/"><u>Ultimate Guide to the Top 11 Video Format Changers for PC, Including Browser-Based Solutions!</u></a></li>
+<li><a href="https://solve-info.techidaily.com/ultimate-resource-top-platforms-for-streaming-live-and-recorded-musical-performances/"><u>Ultimate Resource: Top Platforms for Streaming Live and Recorded Musical Performances</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

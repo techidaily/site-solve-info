@@ -1,7 +1,7 @@
 ---
 title: Die Geheimnisse Der ABBYY-Software Aufgedeckt in Rotterdams Modernem Kunstmuseum
-date: 2024-09-17T03:18:12.011Z
-updated: 2024-09-18T20:22:13.665Z
+date: 2024-09-18T17:03:24.332Z
+updated: 2024-09-23T17:16:52.826Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c74a6f4cbc3131991d1108cc0cd3851c9f4624d9f7132bc54e3318b3d6ad9b70.jpg
@@ -29,6 +29,13 @@ Social Work
 | ------- | ------------------------------------------------------ |
 | Website | [www.simonheijdens.com](http://www.simonheijdens.com/) |
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Zum Hintergrund
 
 Simon Heijdens ist ein weltbekannter holländischer Lichtinstallationskünstler. Ausgebildet in Design und experimentellem Film, wird seine Arbeit heute in Galerien rund um den Globus gezeigt und Unternehmen wie Swarovski engagieren ihn wegen seiner Fähigkeit, Natur und Gefühl in einen künstlichen Raum zu bringen. Heijdens benutzt Licht und Projektion, um die Faszination für die Rolle auszudrücken, die Objekte in unserer Gesellschaft spielen und um zu zeigen, wie sich unsere Wahrnehmung dieser Objekte verändern kann. Er kombiniert Technologie mit subtilem Design um künstlichen Objekten einen natürlichen Charakter zu verleihen und um in einem ansonsten statischen Raum wieder Zeit und Wandel einzuführen.
@@ -36,10 +43,10 @@ Simon Heijdens ist ein weltbekannter holländischer Lichtinstallationskünstler.
 Heijdens’ neueste Arbeit mit dem Titel „Wortgeflecht” wird im Espresso Café im Rotterdam Museum of Modern Art gezeigt und war eine technologische Herausforderung. Zusätzlich zum Design von Raum und Einrichtung wollte Heijdens ein Kunstwerk schaffen, das die Besucher des Cafés mit einbezieht. Er stellte sich die Cafétische als Oberfläche für einen Dialog vor, in dem Informationen in Form von Zeitungsschlagzeilen, Prospekten oder sogar Zigarettenschachteln ausgetauscht werden. Heijdens wollte diese Informationen aufzeichnen da er glaubte, dass sie sehr viel über die einzelnen Momente im Zeitverlauf erzählen. Er wollte eine lebendige![„Wortgeflecht” im Espresso Café im Rotterdam Museum of Modern Art](https://static1.abbyy.com/abbyycommedia/6029/museumofmodernart.png "„Wortgeflecht” im Espresso Café im Rotterdam Museum of Modern Art ") Aufzeichnung der Geschichte des Cafés schaffen, in der jeder Tisch seine eigene Geschichte erzählen sollte. „Was wäre, wenn ein Tisch ein Archiv seiner eigenen Nutzung werden könnte?” fragt Heijdens. „In meiner Arbeit geht es um das Aufbrechen der statischen Natur von Architektur. Ich mache Einschnitte in einem Raum um zu zeigen, was er erlebt hat und um zuzuhören, wie er benutzt wurde. Ich wollte nicht, dass die Menschen einfach nur durch das Café gehen und es wieder verlassen, ohne ihre Spuren zu hinterlassen. Ich wollte, dass zurückbleibt was dort passierte” sagt er.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Die Herausforderung
@@ -51,6 +58,13 @@ Die Herausforderung bestand darin, dass der Text of schwer lesbar war, entweder 
 Da das Werk eine dauerhafte Installation im Café sein sollte, musste es in der Lage sein, selbstständig und ohne Eingreifen oder Wartung durch Heijdens zu funktionieren. Zu den Spitzenzeiten im Café würden große Datenmengen zu verarbeiten sein – bis zu 32 Bilder alle fünf Sekunden – und so musste das System stabil genug sein, um diese Menge völlig eigenständig zu verarbeiten.   
 „Das Werk war eine sehr öffentliche Darstellung von Kunst und Software, daher musste es funktionieren”, sagte Heijdens.  
 „Ich arbeitete auch mit einigen recht unterschiedlichen Elementen, angefangen von Beegungsmeldern über Bilderfassung und Zeichenerkennung bis hin zur tatsächlichen Projektion. Alle diese einzelnen Elemente zusammen zum Funktionieren zu bringen, war eine Herausforderung.”
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Die Lösung
 
@@ -71,16 +85,10 @@ Die Aufnahmen der Tische wurden direkt an Recognition Server 2.0 geschickt, und 
 ---
 
 <!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Über ABBYY und Kontaktmöglichkeiten
@@ -112,15 +120,17 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-state-of-the-art-methods-for-documenting-digital-education-for-2024/"><u>[New] State-of-the-Art Methods for Documenting Digital Education for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ltimate-shot-selection-best-stabilizers-reviewed/"><u>[New] Ultimate Shot Selection - Best Stabilizers Reviewed</u></a></li>
-<li><a href="https://solve-info.techidaily.com/converting-audio-files-understanding-the-distinct-features-of-m4a-and-m4b-a-comprehensive-guide/"><u>Converting Audio Files: Understanding the Distinct Features of M4A & M4B - A Comprehensive Guide</u></a></li>
-<li><a href="https://solve-info.techidaily.com/discover-the-best-places-to-legally-get-your-favorite-cartoon-movies-now-download-and-enjoy-anywhere/"><u>Discover the Best Places to Legally Get Your Favorite Cartoon Movies - Now, Download & Enjoy Anywhere!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/dsdflacwavmp3/"><u>DSD形式の高解像度オーディオをFLAC/WAV/MP3に簡単に変換するソフトウェアガイド</u></a></li>
-<li><a href="https://solve-info.techidaily.com/easier-methods-to-shrink-video-files-using-avidemux-a-step-by-step-guide/"><u>Easier Methods to Shrink Video Files Using Avidemux: A Step-by-Step Guide</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-xiaomi-13-ultra-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Xiaomi 13 Ultra? | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/my-videos-arent-playing-on-samsung-galaxy-f34-5g-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Samsung Galaxy F34 5G – What Can I Do? | Dr.fone</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/transforma-tus-videos-en-un-iphone-guia-paso-a-paso-con-la-aplicacion-movavi/"><u>Transforma Tus Videos en Un iPhone: Guía Paso a Paso Con La Aplicación Movavi</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/understanding-dangers-in-automated-psychological-assistance/"><u>Understanding Dangers in Automated Psychological Assistance</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-recording-games-like-a-pro-discover-the-best-of-windows-11-methods/"><u>[New] 2024 Approved Recording Games Like a Pro Discover the Best of Windows 11 Methods</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtube-cover-pics-made-easy-top-5-free-downloader-lists/"><u>[New] YouTube Cover Pics Made Easy – Top 5 Free Downloader Lists</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-best-nine-essential-live-gaming-services/"><u>[Updated] In 2024, Best Nine Essential Live Gaming Services</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726029928893-wav/"><u>「WAV」フォーマットで動画・音楽を変換する方法</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-vivo-y200e-5g-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Vivo Y200e 5G Phone Using PC | Dr.fone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/3-movmpeg/"><u>3つの最高のフリーコンバイター: MOVファイルからMPEGへ</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726029250121-mp4/"><u>動画ファイルMP4での音声交換テクニック解説</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726029199958-windows4/"><u>最新ベスト画面記録アプリケーションWindows用上位4名 - 導入ガイド</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-iphone-12-drfone-by-drfone-ios/"><u>How to Unlock iPhone 12? | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/navigating-the-complexities-of-computers-with-insights-from-toms-hardware/"><u>Navigating the Complexities of Computers with Insights From Tom’s Hardware</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/repairing-lost-cellular-function-in-your-apple-watch-expert-tips-and-tricks/"><u>Repairing Lost Cellular Function in Your Apple Watch: Expert Tips & Tricks</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/1726028189726-mp3/"><u>グルーヴ・トラックからMP3への簡単な方法 : 音楽ファイル変換手順</u></a></li>
 </ul></div>
 

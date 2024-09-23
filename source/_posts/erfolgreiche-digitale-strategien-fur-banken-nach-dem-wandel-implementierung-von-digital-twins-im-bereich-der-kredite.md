@@ -1,7 +1,7 @@
 ---
 title: Erfolgreiche Digitale Strategien Für Banken Nach Dem Wandel – Implementierung Von Digital Twins Im Bereich Der Kredite
-date: 2024-09-13T00:03:28.812Z
-updated: 2024-09-14T22:11:34.626Z
+date: 2024-09-20T16:32:39.246Z
+updated: 2024-09-23T17:57:16.533Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6e23731e5459bef762d6b1bc2a8183e3bf6b31c4a9b6b999e3d277b3627f742d.jpg
@@ -15,11 +15,25 @@ thumbnail: https://thmb.techidaily.com/6e23731e5459bef762d6b1bc2a8183e3bf6b31c4a
 
 German
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Sprecher
 
 ![95 Maximilianroglinger 198X198](https://static1.abbyy.com/abbyycommedia/35530/fraunhofer-logo-forspeakers-157x44.png) 
 
 ![95 Maximilianroglinger 198X198](https://static1.abbyy.com/abbyycommedia/34756/95-maximilianroglinger-198x198.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Prof. Dr. Max Röglinger
 
@@ -28,6 +42,13 @@ Leiter der Projektgruppe Wirtschaftsinformatik, **Fraunhofer FIT**
 ![02 Alexandrejanicki 198X198](https://static4.abbyy.com/abbyycommedia/25121/logo-2021-90x27.svg) 
 
 ![02 Alexandrejanicki 198X198](https://static2.abbyy.com/abbyycommedia/25101/02-alexandrejanicki-198x198.png)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Alexandre Janicki
 
@@ -41,22 +62,22 @@ Leitung Finanzierungen Retail, **Erstebank Österreich**
 
 ![96 Thomaspuschmann 198X198](https://static5.abbyy.com/abbyycommedia/34844/96-thomaspuschmann-198x198.png)
 
-<!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Dr. Thomas Puschmann
 
 Director des Swiss FinTech Innovation Lab, **Universität Zürich**
+
+<!-- affiliate ads begin -->
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Handelsblatt Webinar mit Erstebank Österreich, Fraunhofer FIT, Swiss FinTech Innovation Lab Universität Zürich und ABBYY
 
@@ -66,32 +87,19 @@ Das „New Normal“ fordert von den Banken ein schnelleres und agileres Handeln
 
 Erfahren Sie im Webinar, wie es gelingen kann, bestehende Prozesse durch moderne Prozesstechnologien wie einen Digital Twin im Kreditbereich zu digitalisieren und zu optimieren, um langfristig mit erfolgreichen Produkten und Services Kunden- und Mitarbeiterzufriedenheit zu steigern.
 
-<!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Webinar-Aufzeichnung hier anfordern
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Vielen Dank! Wir wünschen Ihnen viel Spaß mit dem Webinar.
 
@@ -100,10 +108,10 @@ All personal information collected via this method is under full scope of all pr
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Haben Sie weiterführende Fragen oder möchten Sie mit uns über ein konkretes Projekt sprechen? [Kontaktieren Sie uns.](https://tools.techidaily.com/abbyy/products/)
@@ -171,19 +179,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-comprerante-audio-from-computers-the-essential-guide-of-eight-tips/"><u>[New] In 2024, Comprerante Audio From Computers The Essential Guide of Eight Tips</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-expert-advice-incorporating-voiceovers-for-visual-impact/"><u>[Updated] In 2024, Expert Advice Incorporating Voiceovers for Visual Impact</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-instagram-stories-screen-capture-made-simple-for-2024/"><u>[Updated] Instagram Stories Screen Capture Made Simple for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-announces-appointment-of-weronika-niemczyk-as-senior-hr-director-and-people-strategy-head/"><u>ABBYY Announces Appointment of Weronika Niemczyk as Senior HR Director and People Strategy Head</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-launches-innovative-intelligent-automation-engineering-hub-in-lithuania/"><u>ABBYY Launches Innovative Intelligent Automation Engineering Hub in Lithuania</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-welcomes-ulf-persson-as-their-latest-chief-executive-officer/"><u>ABBYY Welcomes Ulf Persson as Their Latest Chief Executive Officer</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-chosen-as-the-premier-partner-of-everest-groups-idp-with-peak-matrix/"><u>ABBYY: Chosen as the Premier Partner of Everest Group's IDP with Peak Matrix</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/does-mp4-play-on-xiaomi-redmi-note-12-pro-4g-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Does MP4 play on Xiaomi Redmi Note 12 Pro 4G?</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-nokia-150-2023-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Nokia 150 (2023) to iPhone 15/14/13/12 | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-with-location-spoofer-on-honor-x9a-drfone-by-drfone-virtual-android/"><u>In 2024, How To Simulate GPS Movement With Location Spoofer On Honor X9a? | Dr.fone</u></a></li>
-<li><a href="https://fox-that.techidaily.com/revamp-your-stuck-iphone-home-button-with-these-five-tips/"><u>Revamp Your Stuck iPhone Home Button with These Five Tips</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unraveling-the-mystery-how-map-books-connect-to-boosting-process-intelligence-insights-from-abbyy/"><u>Unraveling the Mystery: How Map Books Connect to Boosting Process Intelligence - Insights From ABBYY</u></a></li>
-<li><a href="https://solve-info.techidaily.com/utilizing-cookiebot-technology-for-enhanced-user-personalization-and-seo-success/"><u>Utilizing Cookiebot Technology for Enhanced User Personalization & SEO Success</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-is-fake-gps-location-pro-and-is-it-good-on-samsung-galaxy-m14-5g-drfone-by-drfone-virtual-android/"><u>What is Fake GPS Location Pro and Is It Good On Samsung Galaxy M14 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-content-revenue-route-map-comparing-the-best-streaming-platforms/"><u>[New] In 2024, Content Revenue Route Map Comparing the Best Streaming Platforms</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-wave-off-your-insta-footprint-complete-guide-to-permanent-delete/"><u>[New] Wave Off Your Insta Footprint Complete Guide to Permanent Delete</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726028728450-3/"><u>「最新ビデオ合成ツールベストセレクション：日本版3つのおすすめソフトウェア！」</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-best-windows-music-managers/"><u>2024 Approved Best Windows Music Managers</u></a></li>
+<li><a href="https://solve-info.techidaily.com/audacitym4a/"><u>AudacityでM4Aファイルが開けない場合の解決策</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/complete-analysis-gopro-hero4-silver-edition/"><u>Complete Analysis GoPro HERO4 Silver Edition</u></a></li>
+<li><a href="https://solve-info.techidaily.com/discovering-the-past-a-guide-on-accessing-archived-twitch-broadcasts/"><u>Discovering the Past: A Guide on Accessing Archived Twitch Broadcasts</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-do-i-sim-unlock-my-iphone-7-by-drfone-ios/"><u>How Do I SIM Unlock My iPhone 7?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-motorola-razr-40-ultra-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Motorola Razr 40 Ultra | Dr.fone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/how-to-transfer-and-share-your-dvd-files-on-the-vimeo-platform-easily/"><u>How To Transfer And Share Your DVD Files On The Vimeo Platform Easily</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-navigating-your-first-stride-into-snapseed-land/"><u>In 2024, Navigating Your First Stride Into Snapseed Land</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-surging-channel-growth-with-optimal-video-hashes/"><u>In 2024, Surging Channel Growth with Optimal Video Hashes</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/is-chatgpt-able-to-assist-with-mathematical-questions/"><u>Is ChatGPT Able to Assist with Mathematical Questions?</u></a></li>
+<li><a href="https://solve-info.techidaily.com/mp3-dsf/"><u>MP3形式へのシンプルな変換: DSFファイルを取り込むためのガイド</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726030611184-powerdirector/"><u>PowerDirectorで効果的なビデオ編集:組み込み技術ガイド</u></a></li>
+<li><a href="https://solve-info.techidaily.com/top-3-no-cost-video-downloading-applications-effortlessly-transfer-vids-from-vidiocom-in-minutes/"><u>Top 3 No-Cost Video Downloading Applications: Effortlessly Transfer Vids From Vidio.com in Minutes</u></a></li>
+<li><a href="https://solve-info.techidaily.com/top-rated-free-mobile-apps-convert-your-youtube-videos-to-mp3-on-android/"><u>Top Rated FREE Mobile Apps: Convert Your YouTube Videos to MP3 on Android</u></a></li>
 </ul></div>
 

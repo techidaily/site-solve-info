@@ -1,7 +1,7 @@
 ---
 title: "Unlocking Productivity: Discover How ABBYY Intelligent Automation Boosted Efficiency by 35%% - Insights From a Comprehensive Case Study"
-date: 2024-09-12T01:59:56.274Z
-updated: 2024-09-18T22:15:59.154Z
+date: 2024-09-21T17:17:53.916Z
+updated: 2024-09-23T18:12:33.355Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6816402dd23c56a105ec64bc0a33bec17942a9ec34c261fc2115b1bb0464ace8.jpg
@@ -19,6 +19,13 @@ Transportation & Logistics | Accounts Payable Automation
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 35% Increase in Efficiency Thanks to ABBYY Intelligent Automation
 
 Transportation & Logistics | Accounts Payable Automation 
@@ -28,6 +35,13 @@ Transportation & Logistics | Accounts Payable Automation
 #### Customer Overview
 
 ![Clay Lacy Aviation](https://static4.abbyy.com/abbyycommedia/29983/clay-lacy-logo-210x34.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | Name         | Clay Lacy Aviation                            |
 | ------------ | --------------------------------------------- |
@@ -83,6 +97,13 @@ ABBYY’s IDP platform accelerates line item recognition, capture, and extractio
 
 [![Learn more about ABBYY Vantage](https://static2.abbyy.com/abbyycommedia/24337/mailroom_automation_360x162.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY Vantage](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Learn more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Download the PDF version](https://static1.abbyy.com/abbyycommedia/37645/clay-lacy-aviation-case-study-intelligent-document-processing-en_tn_360x162.jpg)](https://static5.abbyy.com/abbyycommedia/37585/clay-lacy-aviation-case-study-intelligent-document-processing-en.pdf "PDF Version") [PDF Version](https://static5.abbyy.com/abbyycommedia/37585/clay-lacy-aviation-case-study-intelligent-document-processing-en.pdf "PDF Version") 
@@ -92,6 +113,19 @@ ABBYY’s IDP platform accelerates line item recognition, capture, and extractio
 [More about ABBYY](https://tools.techidaily.com/abbyy/products/) 
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Ready to talk to an expert?
 
@@ -114,28 +148,22 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://solve-info.techidaily.com/gifwindowsand/"><u>美しいGIFをWindowsで制作するための完全説明:優秀ツール紹介&基本編集手法</u></a></li>
-<li><a href="https://program-issues.techidaily.com/addressing-and-repairing-the-issues-behind-persistent-black-screens/"><u>Addressing and Repairing the Issues Behind Persistent Black Screens</u></a></li>
-<li><a href="https://solve-info.techidaily.com/guide-to-seamlessly-transform-img-images-into-smooth-playing-mp4-videos-compatible-with-every-device/"><u>Guide to Seamlessly Transform IMG Images Into Smooth-Playing MP4 Videos Compatible with Every Device</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-audience-engagement-excellence-spreading-stories-on-facebook/"><u>In 2024, Audience Engagement Excellence Spreading Stories on Facebook</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Honor Magic 5 Lite? | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/itunes-enthusiasts-tutorial-how-to-convert-and-import-dvd-content-seamlessly/"><u>ITunes Enthusiast's Tutorial: How to Convert & Import DVD Content Seamlessly</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/navigating-through-network-pathways-expert-tips-on-using-tracert-in-windows-environments/"><u>Navigating Through Network Pathways: Expert Tips on Using Tracert in Windows Environments</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/ranking-the-leading-free-srt-translators-online/"><u>Ranking the Leading Free SRT Translators Online</u></a></li>
-<li><a href="https://program-issues.techidaily.com/understanding-frame-rate-fluctuations-solving-stutter-in-sifu-on-personal-computers/"><u>Understanding Frame Rate Fluctuations: Solving Stutter in Sifu on Personal Computers</u></a></li>
-<li><a href="https://solve-news.techidaily.com/1726027069742-windows-11/"><u>Windows 11ビデオのコントラスト調整手順 - ユーザーフレンドリーな解説</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-cerebral-quests-the-ultimate-list-of-escape-rooms/"><u>[Updated] 2024 Approved Cerebral Quests The Ultimate List of Escape Rooms</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-capturewiz-windows-10s-snapshot-hero/"><u>[Updated] CaptureWiz Windows 10'S Snapshot Hero</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-cost-effective-audio-equipment-for-newcomers/"><u>[Updated] In 2024, Cost-Effective Audio Equipment for Newcomers</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-how-to-autoplay-facebook-videos/"><u>[Updated] In 2024, How to Autoplay Facebook Videos</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-meizu-21-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Meizu 21 | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-the-10-best-gba-emulators-for-android/"><u>In 2024, The 10 Best GBA Emulators for Android</u></a></li>
+<li><a href="https://driver-download.techidaily.com/install-the-newest-sm-bus-controller-driver-seamless-integration-with-win-11-10-8-and-7-oses/"><u>Install the Newest SM Bus Controller Driver - Seamless Integration with Win 11, 10, 8 & 7 OSes</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/new-2024-approved-ever-changing-era-of-ai-video-translation-a-reality-to-be-fulfilled/"><u>New 2024 Approved Ever-Changing Era of AI Video Translation A Reality to Be Fulfilled</u></a></li>
+<li><a href="https://solve-info.techidaily.com/pcvimeo/"><u>PCで効率よく編集し直せるVimeo動画のトリミングガイド</u></a></li>
+<li><a href="https://solve-info.techidaily.com/seamless-conversion-techniques-transforming-flv-files-into-mov-format/"><u>Seamless Conversion Techniques: Transforming FLV Files Into MOV Format</u></a></li>
+<li><a href="https://solve-info.techidaily.com/sending-big-videos-via-messenger-made-simple-4-quick-methods/"><u>Sending Big Videos via Messenger Made Simple - 4 Quick Methods</u></a></li>
+<li><a href="https://solve-info.techidaily.com/simple-methods-for-streaming-avi-files-on-your-iphone/"><u>Simple Methods for Streaming AVI Files on Your iPhone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/step-by-step-guide-recording-crystal-clear-hd-footage-on-your-ps5/"><u>Step-by-Step Guide: Recording Crystal Clear HD Footage on Your PS5</u></a></li>
+<li><a href="https://solve-info.techidaily.com/step-by-step-tutorial-on-converting-your-apple-lossless-tracks-alac-to-the-superior-flac-codec/"><u>Step-by-Step Tutorial on Converting Your Apple Lossless Tracks (ALAC) to the Superior FLAC Codec</u></a></li>
+<li><a href="https://solve-info.techidaily.com/the-advantages-of-being-flexible-with-your-dates-for-better-rates/"><u>The Advantages of Being Flexible with Your Dates for Better Rates.</u></a></li>
+<li><a href="https://solve-info.techidaily.com/the-ultimate-guide-to-effortlessly-convert-your-dvds-to-android-top-tools-reviewed/"><u>The Ultimate Guide to Effortlessly Convert Your DVDs to Android: Top Tools Reviewed!</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/windows-10-ultimate-screen-capture-tool-for-2024/"><u>Windows 10 Ultimate Screen Capture Tool for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1983539">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

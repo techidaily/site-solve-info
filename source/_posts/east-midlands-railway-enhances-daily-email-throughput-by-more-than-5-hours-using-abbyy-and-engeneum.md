@@ -1,7 +1,7 @@
 ---
 title: East Midlands Railway Enhances Daily Email Throughput by More than 5 Hours Using ABBYY & Engeneum
-date: 2024-09-15T19:20:55.620Z
-updated: 2024-09-19T02:55:07.342Z
+date: 2024-09-19T17:58:12.772Z
+updated: 2024-09-23T18:32:41.561Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/df4c1493c2f3e813888bfc3942921b3c21459900f9f223dcb15b2289e52ca077.jpg
@@ -19,11 +19,25 @@ Transportation & Logistics | Accounts Payable Automation
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## East Midlands Railway Improves Email Processing Time By Over Five Hours Per Day with ABBYY and Engeneum
 
 Transportation & Logistics | Accounts Payable Automation 
 
 ![Sumitomo Warehouse Co. Ltd. & ABBYY](https://static5.abbyy.com/abbyycommedia/37724/east-midlands-railway-case-study-intelligent-automation-en_tn_556x303.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Customer Overview
 
@@ -38,6 +52,13 @@ Transportation & Logistics | Accounts Payable Automation
 #### Partner Overview
 
 ![Engeneum Limited](https://static2.abbyy.com/abbyycommedia/32019/engeneum-logo.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | Name         | Engeneum Limited                              |
 | ------------ | --------------------------------------------- |
@@ -93,6 +114,13 @@ ABBYY’s intelligent automation platform is the only solution that automates th
 
 [![Download the PDF version](https://static5.abbyy.com/abbyycommedia/37728/east-midlands-railway-case-study-intelligent-automation-en_tn_360x162.jpg)](https://static2.abbyy.com/abbyycommedia/37649/east-midlands-railway-case-study-intelligent-automation-en.pdf "PDF Version") [PDF Version](https://static2.abbyy.com/abbyycommedia/37649/east-midlands-railway-case-study-intelligent-automation-en.pdf "PDF Version") 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Read the document](https://static2.abbyy.com/abbyycommedia/37649/east-midlands-railway-case-study-intelligent-automation-en.pdf "PDF Version") 
 
 [More about ABBYY](https://tools.techidaily.com/abbyy/products/) 
@@ -120,23 +148,19 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-information.techidaily.com/new-becoming-a-pro-at-iphone-hdr-imaging/"><u>[New] Becoming a Pro at iPhone HDR Imaging</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-high-level-behavior-tips-for-youtube-users/"><u>[New] In 2024, High-Level Behavior Tips for YouTube Users</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/best-3-tecno-camon-30-pro-5g-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>Best 3 Tecno Camon 30 Pro 5G Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/boosting-windows-steam-transfer-speed-averting-sudden-stops/"><u>Boosting Windows Steam Transfer Speed: Averting Sudden Stops</u></a></li>
-<li><a href="https://win-forum.techidaily.com/expert-advice-factory-reinitialize-your-windows-11-system-effortlessly/"><u>Expert Advice: Factory Reinitialize Your Windows 11 System Effortlessly</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/optimized-with-advanced-automated-tracking-the-essential-guide-to-cookiebot/"><u>Optimized with Advanced Automated Tracking: The Essential Guide to Cookiebot</u></a></li>
-<li><a href="https://solve-info.techidaily.com/seamless-conversion-techniques-transforming-flv-files-into-mov-format/"><u>Seamless Conversion Techniques: Transforming FLV Files Into MOV Format</u></a></li>
-<li><a href="https://solve-info.techidaily.com/sending-big-videos-via-messenger-made-simple-4-quick-methods/"><u>Sending Big Videos via Messenger Made Simple - 4 Quick Methods</u></a></li>
-<li><a href="https://solve-info.techidaily.com/simple-methods-for-streaming-avi-files-on-your-iphone/"><u>Simple Methods for Streaming AVI Files on Your iPhone</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/1722976747082-simple-steps-to-download-the-latest-logitech-m325-drivers-get-started-today/"><u>Simple Steps to Download the Latest Logitech M325 Drivers – Get Started Today</u></a></li>
-<li><a href="https://solve-info.techidaily.com/step-by-step-guide-recording-crystal-clear-hd-footage-on-your-ps5/"><u>Step-by-Step Guide: Recording Crystal Clear HD Footage on Your PS5</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-best-photo-boosts-for-perfecting-your-feed-for-2024/"><u>[New] Best Photo Boosts for Perfecting Your Feed for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-a-guide-to-vimeo-video-host-and-share-site/"><u>[Updated] A Guide to Vimeo Video Host & Share Site</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-creating-channel-names-that-capture-attention/"><u>[Updated] In 2024, Creating Channel Names That Capture Attention</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-quintessential-quests-and-thrills-top-10-games-for-2024/"><u>[Updated] Quintessential Quests & Thrills – Top 10 Games for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1-ultimate-guide-mastering-picture-in-picture-recording-techniques/"><u>1. Ultimate Guide: Mastering Picture-in-Picture Recording Techniques</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-ultimate-panoramic-camera-scrutiny/"><u>2024 Approved Ultimate Panoramic Camera Scrutiny</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726026907580-windows-1011/"><u>動画編集ツールとしてWindows 10/11「フォト」を利用するガイド</u></a></li>
+<li><a href="https://solve-info.techidaily.com/wmaflac/"><u>簡単ガイド: WMA音楽データをFLAC形式にするためのプログラムとオンラインツール</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Lenovo ThinkPhone | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/remove-google-frp-lock-on-vivo-y77t-by-drfone-android-unlock-remove-google-frp/"><u>Remove Google FRP lock on Vivo Y77t</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/soundtrack-switch-up-effortlessly-moving-your-music-queue/"><u>Soundtrack Switch-Up Effortlessly Moving Your Music Queue</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/step-by-step-solution-for-corrupted-or-faulty-installer-package-on-windows/"><u>Step-by-Step Solution for Corrupted or Faulty Installer Package on Windows</u></a></li>
+<li><a href="https://solve-info.techidaily.com/ultimate-guide-to-the-top-11-video-format-changers-for-pc-including-browser-based-solutions/"><u>Ultimate Guide to the Top 11 Video Format Changers for PC, Including Browser-Based Solutions!</u></a></li>
+<li><a href="https://solve-info.techidaily.com/ultimate-resource-top-platforms-for-streaming-live-and-recorded-musical-performances/"><u>Ultimate Resource: Top Platforms for Streaming Live and Recorded Musical Performances</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

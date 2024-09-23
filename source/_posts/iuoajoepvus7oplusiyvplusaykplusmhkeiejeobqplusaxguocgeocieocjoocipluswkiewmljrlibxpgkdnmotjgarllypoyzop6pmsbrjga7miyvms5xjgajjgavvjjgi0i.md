@@ -1,7 +1,7 @@
 ---
 title: "「現代貿易金融に求められる変化:創造的な問題解決の手法とは？」"
-date: 2024-09-10T20:16:08.469Z
-updated: 2024-09-14T19:44:47.922Z
+date: 2024-09-17T16:25:14.861Z
+updated: 2024-09-23T16:44:10.610Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7e37922976a0cd02bd45d34c10fef6f069d63ae07942af07cd489ff374cb4abd.png
@@ -15,11 +15,31 @@ thumbnail: https://thmb.techidaily.com/7e37922976a0cd02bd45d34c10fef6f069d63ae07
 
 ![貿易金融の新たな課題のための新しいソリューション - ABBYY](https://static1.abbyy.com/abbyycommedia/34830/48g-new-solutions-for-new-challenges-in-trade-finance-jp-262x340.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 生産性の向上、コンプライアンスの改善、安全性の改善
 
 貿易金融もまた、2020年から2021年にかけての大規模な変化に直面しています。長年にわたる脆弱性が表面化し、銀行は解決策を模索しています。コストの削減、生産性の向上、コンプライアンス違反の回避、エラー発生リスクの低減などが今まで以上に求められています。貿易金融に注力している銀行が今日の課題を克服するためには、まず自分たちの業務内容をしっかりと見直す必要があります。
 
 このホワイトペーパーでは、人、プロセス、コンテンツに焦点を当てながら、貿易金融の合理化を図るうえで欠かせない包括的なアプローチの価値について述べています。プロセスの検出とインテリジェント文書処理を組み合わせたDigital Intelligenceを活用することで、貿易金融機関は、生産性を向上させることができます。また、これらの機関のコンプライアンス確保の努力を支援し、輸送やそのためのスタッフの安全性を改善させることができます。
+
+<!-- affiliate ads begin -->
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 今すぐダウンロード！
 
@@ -31,16 +51,10 @@ thumbnail: https://thmb.techidaily.com/7e37922976a0cd02bd45d34c10fef6f069d63ae07
 * 将来のチャンスに備えたブロックチェーンの活かし方
 
 <!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## ABBYYにご関心をお寄せいただき、誠にありがとうございます。
@@ -50,10 +64,10 @@ thumbnail: https://thmb.techidaily.com/7e37922976a0cd02bd45d34c10fef6f069d63ae07
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### ご質問がおありですか？ [お気軽にABBYYにお問い合わせください。](https://tools.techidaily.com/abbyy/products/)
@@ -125,18 +139,21 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-podcasting-prowess-crafting-a-trendsetting-showcase/"><u>[New] 2024 Approved Podcasting Prowess Crafting a Trendsetting Showcase</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-transform-your-streams-adopting-these-four-recording-approaches/"><u>[New] Transform Your Streams Adopting These Four Recording Approaches</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/a-comprehensive-guide-assessing-the-prospects-of-prompt-engineering-jobs/"><u>A Comprehensive Guide: Assessing the Prospects of Prompt Engineering Jobs</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enabled-analytics-solutions-for-streamlined-user-experience-tracking/"><u>Cookiebot-Enabled Analytics Solutions for Streamlined User Experience Tracking</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enabled-personalization-enhancing-user-experience/"><u>Cookiebot-Enabled Personalization: Enhancing User Experience</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-fueled-automated-marketing-solutions/"><u>Cookiebot-Fueled Automated Marketing Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhancing-user-experience-and-tracking-success-on-your-website/"><u>Cookiebot: Enhancing User Experience & Tracking Success on Your Website</u></a></li>
-<li><a href="https://solve-info.techidaily.com/die-geheimnisse-der-abbyy-software-aufgedeckt-in-rotterdams-modernem-kunstmuseum/"><u>Die Geheimnisse Der ABBYY-Software Aufgedeckt in Rotterdams Modernem Kunstmuseum</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-gps-location-on-realme-12plus-5g-easily-and-safely-drfone-by-drfone-virtual-android/"><u>How to Change GPS Location on Realme 12+ 5G Easily & Safely | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-vivo-y100i-power-5g-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Vivo Y100i Power 5G to iPhone (13/14/15) | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-poco-m6-5g-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Poco M6 5G Location without Installing Software? | Dr.fone</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/obtaining-dell-latitude-e6420-device-drivers-seamlessly-tips-and-best-practices/"><u>Obtaining Dell Latitude E6420 Device Drivers Seamlessly - Tips and Best Practices</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-face-whistleblower-and-their-message/"><u>The Face Whistleblower and Their Message</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-mastering-gopro-timelapses-top-editing-techniques/"><u>[New] In 2024, Mastering GoPro Timelapses Top Editing Techniques</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-educators-excellence-the-best-10-recording-equipment-rankings-for-2024/"><u>[Updated] Educator's Excellence The Best 10 Recording Equipment Rankings for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-gazescope-grading-guide/"><u>[Updated] GazeScope Grading Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-premier-fast-photo-viewing-software/"><u>[Updated] Premier Fast Photo Viewing Software</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-top-sites-for-digital-metallic-text-with-a-golden-twist/"><u>2024 Approved Top Sites for Digital Metallic Text with a Golden Twist</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/fy-content-with-free-audio-samples-for-2024/"><u>Amplify Content with Free Audio Samples for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-harmonizing-hearts-interacting-with-a-diverse-subscriber-base/"><u>In 2024, Harmonizing Hearts Interacting with a Diverse Subscriber Base</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-infinix-hot-40-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Infinix Hot 40 | Dr.fone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/protecting-private-viewing-how-to-enable-password-security-on-kodi-platform/"><u>Protecting Private Viewing: How To Enable Password Security on Kodi Platform</u></a></li>
+<li><a href="https://solve-info.techidaily.com/simple-steps-transforming-dv-videos-into-avi-format-on-your-pc/"><u>Simple Steps: Transforming DV Videos Into AVI Format on Your PC</u></a></li>
+<li><a href="https://solve-info.techidaily.com/step-by-step-guide-to-transforming-windows-media-files-into-mp4-players/"><u>Step-by-Step Guide to Transforming Windows Media Files Into MP4 Players</u></a></li>
+<li><a href="https://solve-info.techidaily.com/step-by-step-guide-adding-and-extracting-subtitles-in-m2ts-video-format/"><u>Step-by-Step Guide: Adding and Extracting Subtitles in M2TS Video Format</u></a></li>
+<li><a href="https://solve-info.techidaily.com/step-by-step-guide-converting-mkv-video-track-into-mp4m4a-audio-file/"><u>Step-by-Step Guide: Converting MKV Video Track Into MP4/M4A Audio File</u></a></li>
+<li><a href="https://solve-info.techidaily.com/step-by-step-tutorial-on-recording-google-duo-sessions-including-sound/"><u>Step-by-Step Tutorial on Recording Google Duo Sessions Including Sound</u></a></li>
+<li><a href="https://solve-info.techidaily.com/stream-recording-guide-efficiently-archiving-twitch-broadcasts-from-your-desktop-computer/"><u>Stream Recording Guide: Efficiently Archiving Twitch Broadcasts From Your Desktop Computer</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unlocking-innovations-a-comparison-between-iphones-face-id-and-galaxy-recognition-for-2024/"><u>Unlocking Innovations A Comparison Between iPhone's Face ID & Galaxy Recognition for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Enhance Your Web Analytics Using the Cookiebot Platform
-date: 2024-09-07T23:38:07.019Z
-updated: 2024-09-14T23:09:55.853Z
+date: 2024-09-17T16:47:03.668Z
+updated: 2024-09-23T16:38:27.365Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5962b87511edddba346cb57d7aca143b8c59fba6d9e1757c64fcaafab203f67d.jpg
@@ -19,6 +19,13 @@ Government
 
 [Retourner aux expériences clients](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## ABBYY FineReader et les solutions d’IDéation informatique facilitent le traitement du courrier entrant et l’archivage dans les collectivités locales
 
 [Afficher ou télécharger une version imprimable de cet article (PDF 377 kb)](https://static4.abbyy.com/abbyycommedia/10193/cs-idã-ation-fr-f.pdf) 
@@ -28,6 +35,13 @@ Government
 _IDéation informatique, une société de services indépendante intervenant dans les domaines des systèmes informatiques et du développement de logiciels, propose aux collectivités locales un module OCR intégré à ses solutions de suivi du courrier et d’archivage._
 
 ![IDéation Informatique](https://static1.abbyy.com/abbyycommedia/10192/logoid1.png "IDéation Informatique")IDéation informatique est confronté depuis de nombreuses années aux besoins d’administrations locales (mairies, communautés de communes, préfectures) qui cherchent à gérer le suivi du courrier et l’archivage. Ces collectivités locales doivent pouvoir gérer tous les correspondants concernés par un courrier, gérer des alertes sur des dates limites de réponse et de traitement, ou encore, analyser le flux des courriers au sein de leurs services.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 L’un des objectifs des collectivités locales est d’être capable de tracer les courriers et d’établir des liens entre leurs différents documents.
 
@@ -75,6 +89,13 @@ Contact: [www.ideation.fr](http://www.ideation.fr/)
 
 Partager 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Prêt à parler à un expert ?
 
 Nous serions ravis de vous aider tout au long de votre parcours d’automatisation.
@@ -96,20 +117,14 @@ Nous serions ravis de vous aider tout au long de votre parcours d’automatisati
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-step-by-step-incorporating-music-into-canva-projects/"><u>2024 Approved Step-by-Step Incorporating Music Into Canva Projects</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/legislative-measures-in-the-management-of-artificial-intelligence/"><u>Legislative Measures in the Management of Artificial Intelligence</u></a></li>
-<li><a href="https://solve-info.techidaily.com/leveraging-cookiebot-technology-for-superior-visitor-insights-and-site-optimization/"><u>Leveraging Cookiebot Technology for Superior Visitor Insights and Site Optimization</u></a></li>
-<li><a href="https://solve-info.techidaily.com/mastering-modern-banking-challenges-proven-abbyy-strategies-for-thriving-through-crisis-and-beyond/"><u>Mastering Modern Banking Challenges: Proven ABBYY Strategies for Thriving Through Crisis and Beyond</u></a></li>
-<li><a href="https://solve-info.techidaily.com/norton-rose-llp-utilise-le-serveur-de-reconnaissance-dabbyy-pour-la-digitalisation-centrale-des-documents/"><u>Norton Rose LLP Utilise Le Serveur De Reconnaissance D'ABBYY Pour La Digitalisation Centrale Des Documents</u></a></li>
-<li><a href="https://win-blog.techidaily.com/overcoming-initialization-errors-in-nier-automata-remastered-game/"><u>Overcoming Initialization Errors in NieR Automata Remastered Game</u></a></li>
-<li><a href="https://extra-information.techidaily.com/tranquil-twilight-tales-in-video-form/"><u>Tranquil Twilight Tales in Video Form</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/venture-into-virtuality-comprehensively-reviewing-top-10-vr-streamers-for-2024/"><u>Venture Into Virtuality Comprehensively Reviewing Top 10 VR Streamers for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unlock-funimates-downloading-magic/"><u>[New] Unlock Funimate's Downloading Magic</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-8-tips-to-prevent-htc-vive-motion-sickness-for-2024/"><u>[Updated] 8 Tips to Prevent HTC Vive Motion Sickness for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-boost-video-influence-techniques-for-exceptional-client-spotlights-for-2024/"><u>[Updated] Boost Video Influence Techniques for Exceptional Client Spotlights for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-social-snippet-collection-mastery-efficient-method-for-downloading-animated-tweet-graphics-for-2024/"><u>[Updated] Social Snippet Collection Mastery Efficient Method for Downloading Animated Tweet Graphics for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726027929115-2/"><u>「ビデオ変換ガイド：2通りの動画ファイル作成手順を学ぶ」</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/how-to-use-zoom-for-skype-easy-solutions/"><u>How to Use Zoom for Skype [Easy Solutions]</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726028345290-mp4/"><u>MP4ファイルの再コーディング手順とテクニック</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726027352517-pcyoutube/"><u>PCでプレイしている間、どうやってYouTube用にゲームを記録するか</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726027361613-windows-10/"><u>Windows 10ビデオ明るさ設定 - シンプルガイド</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

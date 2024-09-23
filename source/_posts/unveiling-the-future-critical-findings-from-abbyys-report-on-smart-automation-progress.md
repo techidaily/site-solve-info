@@ -1,7 +1,7 @@
 ---
 title: "Unveiling the Future: Critical Findings From ABBYY's Report on Smart Automation Progress"
-date: 2024-09-11T20:54:57.459Z
-updated: 2024-09-19T01:00:57.070Z
+date: 2024-09-22T16:49:16.422Z
+updated: 2024-09-23T16:35:19.955Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a33821f7d1add97134f0556ceb5947dead1c89e2bf8e16eab36445ca53259ede.jpg
@@ -44,9 +44,23 @@ More details about AI investments, ROI expected and achieved, budget priorities,
 
 ![](https://static1.abbyy.com/abbyycommedia/37805/infographic-economic-challenges-survey-en.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Methodology
 
 This research was conducted by Sapio Research in July 2023 on behalf of ABBYY. 1000 IT decision makers from 17 industries including financial services, healthcare, transportation/logistics/supply chain, insurance, retail, government/public sector, and healthcare were surveyed across the US, UK, Germany, and France to understand how the current global economic stagnation is impacting investments in intelligent automation. The survey also looked at what technologies, if any, organizations plan to adopt in the near future.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### About ABBYY
 
@@ -55,16 +69,16 @@ ABBYY puts your information to work. We combine innovation and experience to tra
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
 <!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYY Editorial Contact
@@ -72,10 +86,10 @@ ABBYY can either be a registered trademark or a trademark and can also be a logo
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Gina Ray
@@ -101,19 +115,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-leading-your-audience-into-a-world-of-instagram-live/"><u>[Updated] 2024 Approved Leading Your Audience Into a World of Instagram Live</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-9-strategies-for-stunning-insta-unboxing-vids/"><u>[Updated] 9 Strategies for Stunning Insta Unboxing Vids</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-mastering-the-art-of-subtitle-extraction-from-youtube-videos-a-threefold-approach-guide/"><u>2024 Approved Mastering the Art of Subtitle Extraction From YouTube Videos A Threefold Approach Guide</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/3-chatbot-privacy-risks-and-concerns-you-should-know-about/"><u>3 Chatbot Privacy Risks and Concerns You Should Know About</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/1723059054722-apple-macbook-pro-m1-2e-16-inch-laptop-review-why-its-the-ultimate-choice-for-professionals/"><u>Apple MacBook Pro (M1, 2E) 16-Inch Laptop Review: Why It's The Ultimate Choice for Professionals</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/1721939795991-get-your-chatgpt-app-up-and-running-again-9-proven-troubleshooting-tips-for-iphones/"><u>Get Your ChatGPT App Up and Running Again: 9 Proven Troubleshooting Tips for iPhones</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-repair-broken-video-files-of-tecno-pova-5-pro-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair Broken video files of Tecno Pova 5 Pro on Windows??</u></a></li>
-<li><a href="https://solve-info.techidaily.com/mp33gp/"><u>MP3形式への3GPファイル変換手順集</u></a></li>
-<li><a href="https://solve-info.techidaily.com/mp35/"><u>MP3音量変更手順：5秘技を解明する</u></a></li>
-<li><a href="https://solve-info.techidaily.com/podcast-conversion-mastery-discover-the-three-most-efficient-techniques-for-mp3-creation/"><u>Podcast Conversion Mastery: Discover the Three Most Efficient Techniques for MP3 Creation</u></a></li>
-<li><a href="https://solve-info.techidaily.com/repeat-your-success-top-3-methods-for-looping-videos-on-youtube/"><u>Repeat Your Success: Top 3 Methods for Looping Videos on YouTube</u></a></li>
-<li><a href="https://solve-info.techidaily.com/simple-steps-adding-black-stripes-or-bars-to-your-videos-on-windows/"><u>Simple Steps: Adding Black Stripes or Bars to Your Videos on Windows</u></a></li>
-<li><a href="https://solve-info.techidaily.com/simple-steps-free-techniques-to-convert-and-rotate-your-avi-files/"><u>Simple Steps: Free Techniques to Convert and Rotate Your AVI Files!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/travel-the-globe-learn-languages-unveiling-mondlys-vr-language-tech/"><u>Travel the Globe, Learn Languages: Unveiling Mondly's VR Language Tech</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-excellent-sound-devices-for-video-blogs/"><u>[New] 2024 Approved Excellent Sound Devices for Video Blogs</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-the-ultimate-guide-to-youtube-video-distribution-on-fb-for-2024/"><u>[Updated] The Ultimate Guide to YouTube Video Distribution on FB for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1-ultimate-guide-mastering-picture-in-picture-recording-techniques/"><u>1. Ultimate Guide: Mastering Picture-in-Picture Recording Techniques</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-from-ground-to-sky-the-lifting-elite-drone-list/"><u>2024 Approved From Ground to Sky The Lifting Elite Drone List</u></a></li>
+<li><a href="https://solve-info.techidaily.com/wmaflac/"><u>簡単ガイド: WMA音楽データをFLAC形式にするためのプログラムとオンラインツール</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/full-tutorial-to-bypass-your-asus-rog-phone-7-face-lock-by-drfone-android/"><u>Full Tutorial to Bypass Your Asus ROG Phone 7 Face Lock?</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-from-nokia-c110-by-drfone-android/"><u>In 2024, How to Bypass FRP from Nokia C110?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-change-your-sim-pin-code-on-your-samsung-galaxy-s23-fe-phone-by-drfone-android/"><u>In 2024, How To Change Your SIM PIN Code on Your Samsung Galaxy S23 FE Phone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-motorola-moto-g-5g-2023-phone-with-broken-screen-by-drfone-android/"><u>In 2024, How to Unlock Motorola Moto G 5G (2023) Phone with Broken Screen</u></a></li>
+<li><a href="https://solve-info.techidaily.com/the-ultimate-tutorial-for-streaming-ustvnow-via-kodi-using-the-setup-wizard/"><u>The Ultimate Tutorial for Streaming USTVNow via Kodi Using The Setup Wizard</u></a></li>
+<li><a href="https://solve-info.techidaily.com/top-rated-video-format-transformer-convert-dvds-to-avi-files-on-windows-11-2024-edition/"><u>Top Rated Video Format Transformer: Convert DVDs to Avi Files on Windows 11 - 2024 Edition</u></a></li>
+<li><a href="https://solve-info.techidaily.com/ultimate-avchd-transformation-techniques-mastering-the-art-of-formatting-and-uninterrupted-viewing/"><u>Ultimate AVCHD Transformation Techniques - Mastering the Art of Formatting and Uninterrupted Viewing</u></a></li>
+<li><a href="https://solve-info.techidaily.com/ultimate-guide-to-the-top-11-video-format-changers-for-pc-including-browser-based-solutions/"><u>Ultimate Guide to the Top 11 Video Format Changers for PC, Including Browser-Based Solutions!</u></a></li>
+<li><a href="https://solve-info.techidaily.com/ultimate-resource-top-platforms-for-streaming-live-and-recorded-musical-performances/"><u>Ultimate Resource: Top Platforms for Streaming Live and Recorded Musical Performances</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/ultra-hd-graphics-selection-top-picks-for-2024/"><u>Ultra HD Graphics Selection Top Picks for 2024</u></a></li>
 </ul></div>
 

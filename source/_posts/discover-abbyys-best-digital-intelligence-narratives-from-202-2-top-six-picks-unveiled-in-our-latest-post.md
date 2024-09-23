@@ -1,7 +1,7 @@
 ---
 title: Discover ABBYY's Best Digital Intelligence Narratives From 202 2 - Top Six Picks Unveiled in Our Latest Post!
-date: 2024-09-12T22:26:08.316Z
-updated: 2024-09-19T02:08:00.804Z
+date: 2024-09-22T18:23:50.529Z
+updated: 2024-09-23T18:02:08.520Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/eb6701eb360daf00501aea3027f5f407ca588034548873224d944d5de49dcde3.jpg
@@ -55,30 +55,37 @@ COVID-19 is the defining event of 2020, and with it, ”social distancing” ent
 
 [Read the article.](https://www.kmworld.com/Articles/Editorial/ViewPoints/The-need-for-digital-intelligence-in-the-time-of-social-distancing--140797.aspx)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 5\. Six Steps to Revive Your Digital Transformation Projects
 
 ![ideas for improving customer service](https://static1.abbyy.com/abbyycommedia/31624/blog-digital-intelligence-1-848x444.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The pandemic shifted many IT resources toward business continuity efforts, and many workers and leaders reached the point where they were struggling to ramp up or resume digital transformation projects. Organizations looked to tap into the benefits attained from scaling end-to-end digital transformation but needed direction on the right strategies to accelerate higher-value initiatives. The challenges stem from a lack of understanding of business processes coupled with an inability to turn a company’s data into actionable, valuable information that drives strategic business decisions. ABBYY shared six fundamental steps to help implement digital transformation.
 
 [Read the article.](https://www.cmswire.com/leadership/6-steps-to-revive-your-digital-transformation-projects/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 6\. Five Crucial Insurance Questions for the Post-COVID 'New Normal'
 
 ![process improvement in insurance](https://static1.abbyy.com/abbyycommedia/31573/blog-digital-intelligence-cover-848x444.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Only several months into the coronavirus pandemic, it became clear that the crisis had rewritten the rules for customer engagement, business processes, and technology. Insurers understood that the customer experience is critical during the claims process, otherwise they risk customer attrition. While a number of factors play a role in resolving claims, one of the most important drivers of a positive customer experience is an insurer’s operational processes. It’s vital for insurers to evaluate how to become more digitally efficient, how to enhance the customer experience by connecting historically disparate processes, and ways they can effectively bring critical customer data directly into core operational processes.
@@ -90,10 +97,10 @@ We shared five questions to help leaders at insurance companies evaluate if ther
 [Intelligent Automation](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -159,17 +166,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tech-hub.techidaily.com/5-ways-to-control-chatgpt-with-your-voice/"><u>5 Ways to Control ChatGPT With Your Voice</u></a></li>
-<li><a href="https://techidaily.com/complete-guide-to-hard-reset-your-oneplus-nord-n30-5g-drfone-by-drfone-reset-android-reset-android/"><u>Complete Guide to Hard Reset Your OnePlus Nord N30 5G | Dr.fone</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/comprehensive-comparison-of-windows-10-and-windows-8-key-upgrades-explained/"><u>Comprehensive Comparison of Windows 10 & Windows 8: Key Upgrades Explained</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/proactive-preservation-ios-photos-to-your-snap-story-for-2024/"><u>Proactive Preservation IOS Photos to Your Snap Story for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/smartphone-accessories-for-making-videos/"><u>Smartphone Accessories for Making Videos</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solving-discords-problem-with-recording-gaming-sounds-effectively/"><u>Solving Discord's Problem with Recording Gaming Sounds Effectively</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-best-no-cost-video-conferencing-apps-cross-system-friendly-for-2024/"><u>[Updated] Best No-Cost Video Conferencing Apps Cross-System Friendly for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-groundhopping-goals-watch-record-and-cut-games-without-spending/"><u>[Updated] Groundhopping Goals Watch, Record & Cut Games Without Spending</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722978508114-get-the-newest-asus-dvd-controller-drivers-here/"><u>Get the Newest ASUS DVD Controller Drivers Here</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/in-2024-how-to-analyze-your-and-competitors-youtube-video/"><u>In 2024, How to Analyze Your and Competitor’s YouTube Video</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/laughlines-drawing-chuckles-online/"><u>LaughLines Drawing Chuckles Online</u></a></li>
+<li><a href="https://review-topics.techidaily.com/pova-5-music-recovery-recover-deleted-music-from-pova-5-by-fonelab-android-recover-music/"><u>Pova 5 Music Recovery - Recover Deleted Music from Pova 5</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/pros-and-cons-macx-dvd-ripper-pro-versus-mdrp-a-comprehensive-comparison-of-the-top-two-dvd-ripping-tools/"><u>Pros and Cons: MacX DVD Ripper Pro versus MDRP - A Comprehensive Comparison of the Top Two DVD Ripping Tools</u></a></li>
+<li><a href="https://solve-info.techidaily.com/simple-steps-free-techniques-to-convert-and-rotate-your-avi-files/"><u>Simple Steps: Free Techniques to Convert and Rotate Your AVI Files!</u></a></li>
+<li><a href="https://solve-info.techidaily.com/step-by-step-guide-converting-video-from-mpg-to-mp4-for-windows-11-users/"><u>Step-by-Step Guide: Converting Video From MPG to MP4 for Windows 11 Users</u></a></li>
+<li><a href="https://solve-info.techidaily.com/step-by-step-guide-transforming-movies-into-high-quality-flac-audio/"><u>Step-by-Step Guide: Transforming Movies Into High-Quality Flac Audio</u></a></li>
+<li><a href="https://facebook.techidaily.com/stepping-away-from-the-world-ungrouping-on-social-media/"><u>Stepping Away From the World: Ungrouping on Social Media</u></a></li>
+<li><a href="https://solve-info.techidaily.com/top-9-clippers-for-gamers-ultimate-list-of-gameplay-editing-tools/"><u>Top 9 Clippers for Gamers: Ultimate List of Gameplay Editing Tools</u></a></li>
 <li><a href="https://solve-info.techidaily.com/top-rated-batch-processing-video-compression-tools-best-options-available/"><u>Top-Rated Batch Processing Video Compression Tools: Best Options Available</u></a></li>
 <li><a href="https://solve-info.techidaily.com/transform-your-videos-comprehensive-tutorial-on-changing-ogm-to-mp4/"><u>Transform Your Videos: Comprehensive Tutorial on Changing OGM to MP4</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/transforming-viewers-experience-with-onestream-broadcasts-for-2024/"><u>Transforming Viewers' Experience with OneStream Broadcasts for 2024</u></a></li>
 <li><a href="https://solve-info.techidaily.com/trouble-free-guide-watching-dvd-movies-on-your-pc/"><u>Trouble-Free Guide: Watching DVD Movies on Your PC</u></a></li>
 <li><a href="https://solve-info.techidaily.com/trouble-free-techniques-for-adding-mkv-videos-into-sony-vegas/"><u>Trouble-Free Techniques for Adding MKV Videos Into Sony Vegas</u></a></li>
 <li><a href="https://solve-info.techidaily.com/troubleshooting-downloads-how-to-successfully-retrieve-abema-previously-abematv-streaming-content/"><u>Troubleshooting Downloads: How to Successfully Retrieve ABEMA (Previously AbemaTV) Streaming Content</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/ways-to-stop-parent-tracking-your-honor-v-purse-drfone-by-drfone-virtual-android/"><u>Ways to stop parent tracking your Honor V Purse | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/ultimate-list-7-mac-focused-vids/"><u>Ultimate List 7 Mac-Focused Vids</u></a></li>
 </ul></div>
 

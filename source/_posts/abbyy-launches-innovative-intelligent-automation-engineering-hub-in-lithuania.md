@@ -1,7 +1,7 @@
 ---
 title: ABBYY Launches Innovative Intelligent Automation Engineering Hub in Lithuania
-date: 2024-09-18T01:23:50.721Z
-updated: 2024-09-18T23:13:41.741Z
+date: 2024-09-19T16:29:11.859Z
+updated: 2024-09-23T17:07:20.303Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0c6d2fd1a73159563e57dda315b30eb330741092cc6760e2a82edb3563c1b5c8.jpg
@@ -25,6 +25,13 @@ Das Unternehmen für intelligente Automatisierung ABBYY hat ein neues Büro in V
 
 Das neue Engineering Center von ABBYY ist die 15\. globale Niederlassung des Unternehmens.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Über ABBYY
 
 ABBYY treibt die intelligente Automatisierung voran. Wir gestalten die Art und Weise, wie Menschen arbeiten neu, indem wir Automatisierungsplattformen mit der Intelligenz ausstatten, die es Unternehmen ermöglicht, ihr Geschäft zu beschleunigen. Unsere Lösungen wandeln Unternehmensdaten in verwertbare Daten um und liefern die Erkenntnisse, die für ein smarteres und schnelleres Arbeiten erforderlich sind.
@@ -35,9 +42,29 @@ ABBYY ist ein globales Unternehmen mit Sitz in den USA und Niederlassungen in 15
 
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Pressekontakt:
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
+
+<!-- affiliate ads begin -->
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Bianca Stupp
 
@@ -62,19 +89,21 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://solve-info.techidaily.com/1726028846182-8/"><u>【無料】動画にメロディを付けるためのトップ8ソフトウェア選び方：専門家から学ぶ！</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-the-secrets-to-subtle-sound-diminishment-in-lumafusion/"><u>2024 Approved The Secrets to Subtle Sound Diminishment in Lumafusion</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1726030243059-dvdmp4/"><u>無料DVDパス解除とMP4変換ガイド - ディスクからダウンロード</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1726027651761-hp/"><u>HPラップトップマシンで効率的な動画編集テクニック</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-recommended-best-applications-for-mirroring-your-honor-100-pro-screen-drfone-by-drfone-android/"><u>In 2024, Recommended Best Applications for Mirroring Your Honor 100 Pro Screen | Dr.fone</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/latest-firmware-and-drivers-for-your-hp-officejet-pro-8720-a-comprehensive-guide-to-downloading-on-windows-systems/"><u>Latest Firmware and Drivers for Your HP OfficeJet Pro ˈ8720: A Comprehensive Guide to Downloading on Windows Systems</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/movavi-mp3-m4b-t172623380916637/"><u>Movavi MP3 から M4Bへの変換 - 無料で使えるオンラインツール</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-groundbreaking-biodegradable-film-technology-advice/"><u>[New] Groundbreaking Biodegradable Film Technology Advice</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-interactive-realities-compared-metaverse-and-multiverse/"><u>[Updated] Interactive Realities Compared Metaverse and Multiverse</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-mastering-the-art-of-prepping-space-for-virtual-reality-for-2024/"><u>[Updated] Mastering the Art of Prepping Space for Virtual Reality for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-next-level-broadcast-software-beyond-streamlabs-for-2024/"><u>[Updated] Next-Level Broadcast Software Beyond StreamLabs for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/jpeg/"><u>「JPEG画像の適切なサイズにコンバートしてディスク容量を減らす手順」</u></a></li>
+<li><a href="https://solve-info.techidaily.com/capcutwindows/"><u>CapCutアプリケーションでWindows上で動画劇場化マスタリー術</u></a></li>
+<li><a href="https://solve-info.techidaily.com/download-your-own-portable-version-freeze-frame-edition-on-the-move-viewing/"><u>Download Your Own Portable Version: Freeze Frame Edition - On-the-Move Viewing</u></a></li>
+<li><a href="https://solve-info.techidaily.com/effortless-conversion-of-vob-video-files-to-avi-for-windows-users/"><u>Effortless Conversion of VOB Video Files to AVI for Windows Users</u></a></li>
+<li><a href="https://solve-info.techidaily.com/effortless-format-transformation-convert-3gp-videos-to-popular-file-types-mp4-avi-mkv-with-our-advanced-converter/"><u>Effortless Format Transformation: Convert 3GP Videos to Popular File Types (MP4, AVI, MKV) with Our Advanced Converter</u></a></li>
+<li><a href="https://solve-info.techidaily.com/guide-two-hassle-free-ways-to-insert-watermarks-into-youtube-content/"><u>Guide: Two Hassle-Free Ways to Insert Watermarks Into YouTube Content</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-fix-apple-iphone-14-plus-could-not-be-activatedreached-issue-by-drfone-ios/"><u>How To Fix Apple iPhone 14 Plus Could Not Be Activated/Reached Issue</u></a></li>
+<li><a href="https://solve-info.techidaily.com/how-to-successfully-play-mp4-videos-on-sony-playstation-5-with-easy-solutions/"><u>How to Successfully Play MP4 Videos on Sony PlayStation 5 with Easy Solutions!</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-vivo-y36i-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Hassle-Free Solutions to Fake Location on Find My Friends Of Vivo Y36i | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-crafting-engaging-gamers-banners-using-pre-made-themes/"><u>In 2024, Crafting Engaging Gamers' Banners Using Pre-Made Themes</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-getting-the-pokemon-go-gps-signal-not-found-11-error-in-xiaomi-redmi-note-12r-drfone-by-drfone-virtual/"><u>In 2024, Getting the Pokemon Go GPS Signal Not Found 11 Error in Xiaomi Redmi Note 12R | Dr.fone</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/transform-your-standard-pdf-into-an-engaging-flipbook-style-ebook-with-flipbuilder/"><u>Transform Your Standard PDF Into an Engaging, Flipbook-Style eBook with FlipBuilder!</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: The Smart Enterprise Chronicles with Maxime Vermeir – Delving Into Artificial Intelligence
-date: 2024-09-17T21:42:42.487Z
-updated: 2024-09-18T17:57:38.724Z
+date: 2024-09-21T16:19:29.377Z
+updated: 2024-09-23T18:23:55.814Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8802195183c08c165ad84f773d4a1ece25e2e1ef5e2831cec1a8db2407d53562.jpg
@@ -29,6 +29,13 @@ This first episode dives into a topic that I believe is still at the peak of the
 
 You can listen to the full episode above, and subscribe to The Intelligent Enterprise so you won’t miss new episodes published monthly here.
 
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How AI-Powered Document Processing Is Changing AP
 
 Blog
@@ -36,6 +43,13 @@ Blog
 [Learn more](https://tools.techidaily.com/abbyy/products/) 
 
 ![Maxime Vermeir 110X110 (1)](https://static3.abbyy.com/abbyycommedia/37004/maxime-vermeir_110x110-1.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Maxime Vermeir
 
@@ -45,11 +59,25 @@ With a decade of experience in product and technology, Maxime Vermeir is an entr
 
 Connect with Max on [LinkedIn](https://www.linkedin.com/in/maximevermeir/).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Additional Insights:
 
 1 / 3 
 
 [![Are Large Language Models (LLMs) the Future?](https://static2.abbyy.com/abbyycommedia/37511/are-llms-the-future_848x444.jpg) **Are Large Language Models (LLMs) the Future?** Read more](https://tools.techidaily.com/abbyy/products/) [![Digital Employees the Key to Your Organization’s Digital Transformation](https://static3.abbyy.com/abbyycommedia/38054/ds-191_digital-employees-transformation_848x444.jpg) **Digital Employees the Key to Your Organization’s Digital Transformation** Read more](https://tools.techidaily.com/abbyy/products/) [![Making the Business Case for Investing in AI and Intelligent Automation](https://static2.abbyy.com/abbyycommedia/38051/ds-191_making-the-business-case_848x444.jpg) **Making the Business Case for Investing in AI and Intelligent Automation** Read more](https://www.abbyy.com/intelligent-enterprise/making-the-business-case-for-investing-in-ai-and-intelligent-automation/) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Subscribe for updates
 
@@ -108,27 +136,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-aesthetic-adjustments-iphones-pro-image-cropping-apps-for-2024/"><u>[New] Aesthetic Adjustments IPhone's Pro Image Cropping Apps for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-jump-into-the-moment-with-these-8-trendy-videos-on-fb/"><u>[New] In 2024, Jump Into the Moment with These 8 Trendy Videos on FB</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-stream-control-showdown-is-obs-best-over-twitch-studio/"><u>[Updated] 2024 Approved Stream Control Showdown Is OBS Best over Twitch Studio?</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-thorough-breakdown-the-dji-inspire-1-features/"><u>2024 Approved Thorough Breakdown The DJI Inspire 1 Features</u></a></li>
-<li><a href="https://article-posts.techidaily.com/best-6-services-for-visual-text-interpretation-for-2024/"><u>Best 6 Services for Visual Text Interpretation for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ring-the-best-visuals-in-vlogs/"><u>Capturing the Best Visuals in Vlogs</u></a></li>
-<li><a href="https://solve-info.techidaily.com/discover-the-best-places-to-legally-get-your-favorite-cartoon-movies-now-download-and-enjoy-anywhere/"><u>Discover the Best Places to Legally Get Your Favorite Cartoon Movies - Now, Download & Enjoy Anywhere!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/dsdflacwavmp3/"><u>DSD形式の高解像度オーディオをFLAC/WAV/MP3に簡単に変換するソフトウェアガイド</u></a></li>
-<li><a href="https://solve-info.techidaily.com/easier-methods-to-shrink-video-files-using-avidemux-a-step-by-step-guide/"><u>Easier Methods to Shrink Video Files Using Avidemux: A Step-by-Step Guide</u></a></li>
-<li><a href="https://solve-info.techidaily.com/easy-steps-to-capture-youtube-audio-streams-without-hassle/"><u>Easy Steps to Capture YouTube Audio Streams Without Hassle</u></a></li>
-<li><a href="https://solve-info.techidaily.com/edit-your-mkv-videos-on-windows-using-top-rated-editors/"><u>Edit Your MKV Videos on Windows Using Top-Rated Editors</u></a></li>
-<li><a href="https://solve-info.techidaily.com/effortlessly-exchange-files-unveiling-the-art-of-free-xvid-to-divx-conversions/"><u>Effortlessly Exchange Files: Unveiling the Art of FREE Xvid to DivX Conversions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/expert-advice-navigating-through-title-the-ultimate-series-full-set-for-optimal-dvd-titling-choices/"><u>Expert Advice: Navigating Through TITLE - The Ultimate Series (Full Set) for Optimal DVD Titling Choices</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-the-premier-8-video-transformers-for-your-mac-and-phone/"><u>In 2024, The Premier 8 Video Transformers for Your Mac & Phone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/troubleshooting-guide-how-to-fix-ipad-not-connecting-to-printer/"><u>Troubleshooting Guide: How to Fix 'iPad Not Connecting to Printer'</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-hearing-beginnings-mastering-volume-control-in-adobe-audition/"><u>[New] Hearing Beginnings Mastering Volume Control in Adobe Audition</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-strategies-for-optimal-ram-in-the-world-of-minecraft/"><u>[Updated] 2024 Approved Strategies for Optimal RAM in the World of Minecraft</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-facebook-media-extractor-quick-mp3-downloads-for-2024/"><u>[Updated] Facebook Media Extractor – Quick MP3 Downloads for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-photographic-pastime-iphone-x-retro-clicks/"><u>[Updated] Photographic Pastime IPhone X Retro Clicks</u></a></li>
+<li><a href="https://solve-info.techidaily.com/discover-the-ultimate-list-of-no-cost-avi-video-editors-compatible-with-pc-and-mac-systems/"><u>Discover the Ultimate List of No-Cost AVI Video Editors Compatible with PC and Mac Systems</u></a></li>
+<li><a href="https://solve-info.techidaily.com/effective-techniques-for-transforming-hevc-videos-into-the-versatile-mkv-container/"><u>Effective Techniques for Transforming HEVC Videos Into the Versatile MKV Container</u></a></li>
+<li><a href="https://solve-info.techidaily.com/efficient-avi-file-conversion-to-h265-achieving-optimal-quality-with-reduced-file-size/"><u>Efficient AVI File Conversion to H.265: Achieving Optimal Quality with Reduced File Size</u></a></li>
+<li><a href="https://solve-info.techidaily.com/free-conversion-guide-transforming-your-dvds-into-mp4-format-on-windows-10-and-11/"><u>Free Conversion Guide: Transforming Your DVDs Into MP4 Format on Windows 10 & 11</u></a></li>
+<li><a href="https://solve-info.techidaily.com/grublpc/"><u>GRUBLゲーム画面をPCで高解像度に記録するガイド</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-a-tecno-pova-5-pro-easily-by-drfone-android/"><u>How To Unlock a Tecno Pova 5 Pro Easily?</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-step-into-a-world-of-magic-expert-led-guide-to-snapchat-edits/"><u>In 2024, Step Into a World of Magic Expert-Led Guide to Snapchat Edits</u></a></li>
+<li><a href="https://solve-info.techidaily.com/master-the-shift-from-dvd-to-digital-expert-tips-for-watching-movies-on-your-kindle-fire-devices/"><u>Master the Shift From DVD to Digital: Expert Tips for Watching Movies on Your Kindle Fire Devices</u></a></li>
+<li><a href="https://solve-info.techidaily.com/mastering-format-transformation-seamless-techniques-for-switching-videoaudio-files/"><u>Mastering Format Transformation: Seamless Techniques for Switching Video/Audio Files</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/mastering-your-console-innovative-approaches-to-xbox-captures-for-2024/"><u>Mastering Your Console Innovative Approaches to Xbox Captures for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/mkvyoutube-youtubemkv/"><u>MKV形式でYouTube動画を安全にダウンロードする簡単方法 - YouTubeからMKVへの変換テクニック</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/the-sims-4-pc-stability-issues-heres-how-you-can-solve-them/"><u>The Sims 4 PC Stability Issues? Here's How You Can Solve Them</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-avidemux-essentials-how-to-crop-cut-and-enhance-your-videos-for-2024/"><u>Updated Avidemux Essentials How to Crop, Cut, and Enhance Your Videos for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/window-essentials-incorporating-this-pc-on-your-screen/"><u>Window Essentials: Incorporating 'This PC' On Your Screen</u></a></li>
+<li><a href="https://solve-info.techidaily.com/myspace/"><u>マストから MySpace 音楽をダウンロード・セーブする独自のテクニック</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

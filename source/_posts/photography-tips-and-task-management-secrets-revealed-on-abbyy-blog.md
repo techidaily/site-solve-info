@@ -1,7 +1,7 @@
 ---
 title: Photography Tips & Task Management Secrets Revealed on ABBYY Blog
-date: 2024-09-14T18:44:50.967Z
-updated: 2024-09-18T18:12:34.044Z
+date: 2024-09-20T17:19:24.689Z
+updated: 2024-09-23T16:04:49.606Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1b264feb60401b06f1b5b9d369aaa689e44f7f3921972fa9eb3d747a1df53b5a.jpg
@@ -33,6 +33,13 @@ In most cases, you get a promo code in the form of a link. You just tap it on yo
 2\. Click "Updates", and then - the icon (blue silhouette in a circle) or your photo in the upper right corner.  
 ![Redeem App Store Promo Code iPhone iPad](https://static1.abbyy.com/abbyycommedia/30514/1-angl.png)
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
+  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 3\. Sign in with your Apple ID.
 
 4\. Click "Redeem gift card or code".  
@@ -52,6 +59,32 @@ Here’s how you do it:
 2\. From the same **Account** menu, choose **Redeem...**.  
 ![itunes redeem promo code on computer account](https://static1.abbyy.com/abbyycommedia/25938/macos-itunes12-5-menu-account-redeem-dropdown-e1505139115703.jpg)  
 ![redeem gift card macbook itunes](https://static1.abbyy.com/abbyycommedia/25939/macos-itunes12-5-redeem-code-gift-card-e1505139171775.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 3\. Enter your account password once again, then paste your promo code into the field at the bottom and you’re done.
 
@@ -85,13 +118,6 @@ Unsurprisingly, the quality of OCR is heavily dependent on the quality of docume
 1\. **Poor lighting.** The more light you have, the better. It also helps if the light is evenly distributed. Taking snapshots at night while sitting in a car with business cards or documents placed in your lap will almost certainly not work. No technology, however intelligent, will be able to capture text which you can hardly read yourself. Naturally, there are occasions when you just have no choice, but if there’s no urgency, you’d do wise to wait for daylight and take a picture in a less shaky environment.  
 ![abbyy ocr poor lighting](https://static1.abbyy.com/abbyycommedia/25941/4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 2\. **Wrong focus point** is another image defect that may make you want to rip your hair out. Why is it that sometimes the camera will focus on any object in sight save the text that you need to capture? Digital cameras use special technology to determine the distance to the subject. To perform reliably, it needs sufficient lighting and high-contrast objects. Besides, it is often fine-tuned for portraits and common indoor and outdoor scenes. If your camera has hard time focusing on the text, give it a helping hand by pointing the lens to some high-contrast (e.g. black and white) area. It’s best to give the camera some time to focus on the text instead of taking a few hasty snapshots in the hope that you can improve their sharpness later.  
 ![fix wrong focus point taking photos](https://static1.abbyy.com/abbyycommedia/31175/5.jpg)
 
@@ -104,41 +130,28 @@ Unsurprisingly, the quality of OCR is heavily dependent on the quality of docume
 5\. **“Difficult” backgrounds.** These can cause some headache. The background is not the subject, but it often attempts to pull the focus to itself. The general rule of thumb is to shoot against uniform backgrounds and have as few other objects in the frame as possible. Avoid white backgrounds, though.  
 ![finescanner text analyse background](https://static1.abbyy.com/abbyycommedia/25945/img_5353-e1505149724965.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 6\. **Poor angle.** If you shoot at an angle, rather than positioning the camera directly above the document, make sure that the angle is not too steep. Otherwise, the image correction algorithms may become helpless. The trapezoid correction mechanism can work wonders, but it’s not omnipotent and won’t be able to restore the document to its normal rectangular self if you shoot it from a prone position.  
 ![finescanner text analyse poor angle](https://static1.abbyy.com/abbyycommedia/25946/9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 7\. **Camera problems.** Not all device cameras are created equal. If you plan to use your smartphone as a portable scanner, take a closer look at its camera specs. It should produce a sharp picture across the entire frame, be able to adjust white balance reasonably well, not distort object boundaries, and perform well in different lighting environments. Smartphones tend to be equipped with better cameras than tablets.  
 ![bad quality of photo finescanner](https://static1.abbyy.com/abbyycommedia/25947/10.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 To sum up: uniform non-white backgrounds, even natural lighting and steady hands will give you a picture that’s perfectly suitable for OCR. Modern cameras (and users) are very good, but we hope these tips you will help you move a few steps closer to perfection.
 
 ![TextGrabber FineScanner OCR](https://static1.abbyy.com/abbyycommedia/25948/11.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1160850">
-					<video width="576" height="324" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **App of the Week: Keeping Track of Your Tasks with Asana**
@@ -152,21 +165,22 @@ There has never been a shortage of task managing apps, but my app of choice is [
 2\. It takes just a few taps to add a new task: tap the **plus** icon, type in a descriptive name for the task, and then tap the **Create Task** button. You can always refine your task later by setting due dates, providing explanations, adding subtasks and links to projects, supplying tags, and setting priorities, either manually or automatically.  
 ![app asana control tasks ios android](https://static1.abbyy.com/abbyycommedia/25949/13.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 3\. Asana offers a neat and uncluttered UI on all of the supported platforms.
 
 Actually, Asana is actively evolving towards a project management tool with all the necessary PM features, including teams, discussions, projects, dashboards where you can add and remove project cards, etc. All the features are very well documented in detailed [Asana guides](https://asana.com/guide) (these are all in English, but it shouldn’t be a problem for most users). With all this horsepower under the hood, the app is equally useful as a personal task manager.
 
 <!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **First-Hand Experience:** Advice From a Colleague
@@ -185,6 +199,13 @@ Start reviewing interim results early on in the process. Even if it’s just pre
 We hope you find these tips useful. As always, your comments, ideas, and suggestions are very welcome and will be considered with great attention. See you next Monday!
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -249,21 +270,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-aerial-visual-flux-free-lutts-for-dji-drones-then-pay-upgrade-for-2024/"><u>[New] Aerial Visual Flux Free LUTTs for DJI Drones, Then Pay Upgrade for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-transformative-idea-capture-via-mematic-software/"><u>[New] Transformative Idea Capture via Mematic Software</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Apple iPhone 7 | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/gifwindowsand/"><u>美しいGIFをWindowsで制作するための完全説明:優秀ツール紹介&基本編集手法</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/breakdown-of-the-newly-released-samsung-galaxy-chromebook-2-a-revolution-in-portability-and-power/"><u>Breakdown of the Newly Released Samsung Galaxy Chromebook 2: A Revolution in Portability & Power</u></a></li>
-<li><a href="https://extra-information.techidaily.com/crafting-content-conversations-connecting-with-subscribers-for-2024/"><u>Crafting Content Conversations Connecting With Subscribers for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/expert-advice-navigating-through-title-the-ultimate-series-full-set-for-optimal-dvd-titling-choices/"><u>Expert Advice: Navigating Through TITLE - The Ultimate Series (Full Set) for Optimal DVD Titling Choices</u></a></li>
-<li><a href="https://solve-info.techidaily.com/guide-to-seamlessly-transform-img-images-into-smooth-playing-mp4-videos-compatible-with-every-device/"><u>Guide to Seamlessly Transform IMG Images Into Smooth-Playing MP4 Videos Compatible with Every Device</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-tecno-spark-20-proplus-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Tecno Spark 20 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Realme C33 2023 | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/itunes-enthusiasts-tutorial-how-to-convert-and-import-dvd-content-seamlessly/"><u>ITunes Enthusiast's Tutorial: How to Convert & Import DVD Content Seamlessly</u></a></li>
-<li><a href="https://solve-info.techidaily.com/mp33gp/"><u>MP3形式への3GPファイル変換手順集</u></a></li>
-<li><a href="https://solve-info.techidaily.com/mp35/"><u>MP3音量変更手順：5秘技を解明する</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-google-translate-video-a-complete-guide-to-translate-video-with-google/"><u>New Google Translate Video A Complete Guide To Translate Video With Google</u></a></li>
-<li><a href="https://solve-info.techidaily.com/podcast-conversion-mastery-discover-the-three-most-efficient-techniques-for-mp3-creation/"><u>Podcast Conversion Mastery: Discover the Three Most Efficient Techniques for MP3 Creation</u></a></li>
-<li><a href="https://fox-that.techidaily.com/top-9-methods-for-troubleshooting-non-working-iphone-voicemail/"><u>Top 9 Methods for Troubleshooting Non-Working iPhone Voicemail</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-best-20-facebook-jail-memes-to-brighten-up-your-day-filmora-for-2024/"><u>[New] Best 20 Facebook Jail Memes to Brighten Up Your Day - Filmora for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-streamline-color-correction-with-easy-techniques/"><u>[New] In 2024, Streamline Color Correction with Easy Techniques</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-merge-soundtracks-and-cinematography-in-premiere-pro-for-2024/"><u>[Updated] Merge Soundtracks and Cinematography in Premiere Pro for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-peaceful-rhythm-the-best-chill-country-music-for-relaxing-dance-parties-on-tiktok/"><u>2024 Approved Peaceful Rhythm The Best Chill Country Music for Relaxing Dance Parties on TikTok</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/bypass-reset-honor-magic-v2-phone-screen-passcode-pattern-pin-by-drfone-android-unlock-android-unlock/"><u>Bypass/Reset Honor Magic V2 Phone Screen Passcode/Pattern/Pin</u></a></li>
+<li><a href="https://fox-that.techidaily.com/clearing-and-reconfiguring-your-phones-connection-settings-to-resolve-persistent-glitches/"><u>Clearing and Reconfiguring Your Phone's Connection Settings to Resolve Persistent Glitches</u></a></li>
+<li><a href="https://techidaily.com/guide-on-how-to-erase-apple-iphone-12-devices-entirely-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>Guide on How To Erase Apple iPhone 12 Devices Entirely | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-a-network-locked-motorola-moto-g13-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Motorola Moto G13 Phone?</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/pitting-two-titans-of-chatbots-gpt-and-huggingchat/"><u>Pitting Two Titans of ChatBots: GPT & HuggingChat</u></a></li>
+<li><a href="https://program-issues.techidaily.com/resolving-the-issue-why-evil-genius-2-failed-to-start/"><u>Resolving the Issue: Why Evil Genius 2 Failed to Start</u></a></li>
+<li><a href="https://solve-info.techidaily.com/seamless-conversion-techniques-transforming-flv-files-into-mov-format/"><u>Seamless Conversion Techniques: Transforming FLV Files Into MOV Format</u></a></li>
+<li><a href="https://solve-info.techidaily.com/sending-big-videos-via-messenger-made-simple-4-quick-methods/"><u>Sending Big Videos via Messenger Made Simple - 4 Quick Methods</u></a></li>
+<li><a href="https://solve-info.techidaily.com/simple-methods-for-streaming-avi-files-on-your-iphone/"><u>Simple Methods for Streaming AVI Files on Your iPhone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/step-by-step-guide-recording-crystal-clear-hd-footage-on-your-ps5/"><u>Step-by-Step Guide: Recording Crystal Clear HD Footage on Your PS5</u></a></li>
+<li><a href="https://solve-info.techidaily.com/step-by-step-tutorial-on-converting-your-apple-lossless-tracks-alac-to-the-superior-flac-codec/"><u>Step-by-Step Tutorial on Converting Your Apple Lossless Tracks (ALAC) to the Superior FLAC Codec</u></a></li>
+<li><a href="https://solve-info.techidaily.com/the-advantages-of-being-flexible-with-your-dates-for-better-rates/"><u>The Advantages of Being Flexible with Your Dates for Better Rates.</u></a></li>
+<li><a href="https://solve-info.techidaily.com/the-ultimate-guide-to-effortlessly-convert-your-dvds-to-android-top-tools-reviewed/"><u>The Ultimate Guide to Effortlessly Convert Your DVDs to Android: Top Tools Reviewed!</u></a></li>
+<li><a href="https://solve-info.techidaily.com/the-ultimate-tutorial-for-streaming-ustvnow-via-kodi-using-the-setup-wizard/"><u>The Ultimate Tutorial for Streaming USTVNow via Kodi Using The Setup Wizard</u></a></li>
+<li><a href="https://solve-info.techidaily.com/top-rated-video-format-transformer-convert-dvds-to-avi-files-on-windows-11-2024-edition/"><u>Top Rated Video Format Transformer: Convert DVDs to Avi Files on Windows 11 - 2024 Edition</u></a></li>
 </ul></div>
 

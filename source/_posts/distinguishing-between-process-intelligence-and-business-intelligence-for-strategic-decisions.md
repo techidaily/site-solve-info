@@ -1,7 +1,7 @@
 ---
 title: Distinguishing Between Process Intelligence and Business Intelligence for Strategic Decisions
-date: 2024-09-13T20:36:28.339Z
-updated: 2024-09-18T22:37:29.898Z
+date: 2024-09-20T16:06:19.329Z
+updated: 2024-09-23T17:15:33.376Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/48994c9ff35faf512b4c69833faf0e7ff28b80b0df78e2f2b0d58f413fb2991f.jpg
@@ -63,28 +63,35 @@ Was BI Ihnen nicht sagen kann, zumindest nicht ohne einen großen Aufwand an ben
 Können Sie beispielsweise feststellen, ob die Fälle, in denen bestimmte Verkäufer die höchste Anzahl von Aufträgen erhielten, mit effizienten Kundeninteraktionen zusammenfielen, bei denen Anfragen umgehend bearbeitet wurden? Und können Sie umgekehrt feststellen, ob niedrige Auftragsraten mit langsamen Reaktionszeiten oder möglicherweise übersehenen Kundenanfragen korrelierten, bei denen der Versuch komplett ignoriert wurde? Hier versagt BI, da sie nicht in der Lage ist, diese Verbindungen herzustellen und aufzudecken.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
-  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Hauptunterschiede zwischen Process Intelligence und Business Intelligence
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Schwerpunkt
 
 **Process Intelligence** konzentriert sich auf die Analyse und Optimierung von Geschäftsprozessen, wobei der gesamte Prozesslebenszyklus betrachtet wird. **Business Intelligence** konzentriert sich auf die eingehende Analyse einzelner Prozessschritte.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Datenquellen
 
 **Process Intelligence** verwendet Ereignisprotokolle, Audit-Tabellen, Benutzerinteraktionen und Desktop-Aktivitäten als primäre Datenquellen. Business Intelligence nutzt Daten aus verschiedenen Quellen, die sich auf einen bestimmten Schritt/Teil eines Geschäftsprozesses beziehen, um Muster, Trends und Anomalien zu analysieren und zu visualisieren.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Ergebnisse
 
@@ -95,10 +102,10 @@ Können Sie beispielsweise feststellen, ob die Fälle, in denen bestimmte Verkä
 Zu den Tools von **Process Intelligence** gehören Process Mining, Task Mining, Analytik, Überwachung, Vorhersage und Simulation. Tools für **Business Intelligence** sind in der Regel Dashboards, Berichte, Datenanalysen und andere Visualisierungsfunktionen.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Wesentliche Gemeinsamkeiten zwischen Process Intelligence und Business Intelligence
@@ -128,13 +135,6 @@ Scott Opitz ist Chief Technology Officer und verantwortlich für die globale Pro
 In seiner 30-jährigen Laufbahn in der Computerbranche hat Scott Opitz verschiedene Unternehmen in den Bereichen Anwendungsintegration, Geschäftsprozessmanagement und Business Intelligence gegründet und aufgebaut. Er war Gründer sowie President und Chief Executive Officer von Altosoft Corporation, einem Unternehmen für Business Intelligence-Software, das dann von Kofax übernommen wurde. Nach der Übernahme von Altosoft war Scott Opitz als Senior Vice President & General Manager für Analytics tätig.
 
 Zuvor fungierte er unter anderem als Senior Vice President, Worldwide Marketing & Business Development für webMethods (heute Software AG), wobei er für Marketing, Geschäftsentwicklung und strategische Produktplanung verantwortlich zeichnete. Zu webMethods war er im Zuge von dessen Übernahme von IntelliFrame Corporation gekommen, einem Unternehmen, das sowohl Produkte zur Datenintegration als auch die integrierte Workflow- und BPM-Plattform InVista bereitstellte, die Opitz mitgegründet hatte. Scott Opitz hat außerdem zahlreiche Führungspositionen in den Bereichen Technologie, Marketing und Geschäftsentwicklung für staatliche und privatwirtschaftliche Unternehmen bekleidet.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Gefällt mir, teilen oder neu posten 
 
@@ -199,19 +199,17 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-apple-macbook-air-vs-macbook-pro-which-m1-laptop-is-better/"><u>[Updated] 2024 Approved Apple MacBook Air Vs. MacBook Pro Which M1 Laptop Is Better?</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-liberate-yourself-with-free-movie-player-software/"><u>[New] 2024 Approved Liberate Yourself with FREE MOVIE PLAYER Software</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-maximizing-efficiency-discover-the-leading-speech-to-text-apps-for-macos/"><u>[New] Maximizing Efficiency Discover the Leading Speech-to-Text Apps for MacOS</u></a></li>
+<li><a href="https://solve-info.techidaily.com/44cm44k144og44oq44gu55s76z2i6yyy55s75oml6acg44ks6kmz44gx44gp6kej6kqs77yb44cn/"><u>「サムバの画面録画手順を詳しく解説！」</u></a></li>
 <li><a href="https://solve-info.techidaily.com/1726028846182-8/"><u>【無料】動画にメロディを付けるためのトップ8ソフトウェア選び方：専門家から学ぶ！</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/best-anti-tracker-software-for-xiaomi-redmi-note-12r-drfone-by-drfone-virtual-android/"><u>Best Anti Tracker Software For Xiaomi Redmi Note 12R | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1726026473894-bilibili/"><u>Bilibiliビデオでロゴを取り除くためのステップバイステップマニュアル</u></a></li>
-<li><a href="https://iphone-location.techidaily.com/find-my-app-troubleshooting-no-location-found-vs-location-not-available-and-how-to-fix-them-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>Find My App Troubleshooting No Location Found vs. Location Not Available & How to Fix Them On Apple iPhone 14 Pro | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1726027651761-hp/"><u>HPラップトップマシンで効率的な動画編集テクニック</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-game-on-a-comprehensive-guide-to-xbox-one-captures/"><u>In 2024, Game On A Comprehensive Guide to Xbox One Captures</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/instagram-video-performance-mobile-and-desktop-strategies/"><u>Instagram Video Performance Mobile & Desktop Strategies</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/the-visionarys-guide-to-harnessing-chatgpt-powerfully-8-strategies-explored/"><u>The Visionary's Guide to Harnessing ChatGPT Powerfully – 8 Strategies Explored</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/ultimate-guide-converting-videos-to-compatible-formats-for-samsung-lg-sony-and-apple-devices/"><u>Ultimate Guide: Converting Videos to Compatible Formats for Samsung, LG, Sony & Apple Devices</u></a></li>
-<li><a href="https://win-forum.techidaily.com/understanding-social-platform-leaders-facebook-twitter-instagram-and-youtube-breakdown/"><u>Understanding Social Platform Leaders: Facebook, Twitter, Instagram & Youtube Breakdown</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/why-is-my-pc-continuously-crashing-troubleshooting-the-new-world-game/"><u>Why Is My PC Continuously Crashing? Troubleshooting the 'New World' Game</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1726027258055-windows-and-mac/"><u>Windows & Macで動画の鏡像作成手順３つ</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1726026566647-3/"><u>ダウンロード無しで音声抽出: ムービーからのトラック3方法紹介</u></a></li>
+<li><a href="https://solve-info.techidaily.com/3-effective-methods-for-downloading-blob-videos-a-step-by-step-guide/"><u>3 Effective Methods for Downloading Blob Videos: A Step-by-Step Guide</u></a></li>
+<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-tecno-spark-10-5g-drfone-by-drfone-virtual-android/"><u>3 Things You Must Know about Fake Snapchat Location On Tecno Spark 10 5G | Dr.fone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/4-effective-methods-to-eliminate-audio-from-your-iphone-recorded-videos/"><u>4 Effective Methods to Eliminate Audio From Your iPhone Recorded Videos</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726030243059-dvdmp4/"><u>無料DVDパス解除とMP4変換ガイド - ディスクからダウンロード</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/diy-driver-update-for-epsons-wf-n20-series-wf-7620-a-user-friendly-guide-compatible-with-all-windows-versions/"><u>DIY Driver Update for Epson's WF-N20 Series (WF-7620): A User-Friendly Guide Compatible with All Windows Versions</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/eliminating-msvbvm50dll-errors-a-detailed-guide-to-restoring-your-systems-stability/"><u>Eliminating MSVBVM50.DLL Errors: A Detailed Guide to Restoring Your System's Stability</u></a></li>
+<li><a href="https://common-error.techidaily.com/fix-your-pcs-printer-woes-when-windows-cant-identify-the-correct-driver/"><u>Fix Your PC's Printer Woes – When Windows Can’t Identify the Correct Driver</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-can-i-use-a-fake-gps-without-mock-location-on-samsung-galaxy-f54-5g-drfone-by-drfone-virtual-android/"><u>How Can I Use a Fake GPS Without Mock Location On Samsung Galaxy F54 5G? | Dr.fone</u></a></li>
 </ul></div>
 

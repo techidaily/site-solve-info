@@ -1,7 +1,7 @@
 ---
 title: "Meinungsforschungsanalyse Mit ABBYY: Wie Connexions Zur Optimierung Seiner Methoden Beiträgt"
-date: 2024-09-15T22:41:05.356Z
-updated: 2024-09-18T17:04:08.354Z
+date: 2024-09-20T18:17:31.391Z
+updated: 2024-09-23T17:05:33.779Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b7fdec82e5e2a50f89b07a18bb64e205705f93d7819f0fe370579d848f9daaea.jpg
@@ -19,6 +19,13 @@ Social Work
 
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
+  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Connexions setzt auf ABBYY bei der Auswertung von Meinungsumfragen
 
 [Druckversion des Artikels anzeigen oder herunterladen (PDF 229 kb)](https://static5.abbyy.com/abbyycommedia/6144/cs-connexions-fc-d.pdf) 
@@ -28,13 +35,6 @@ Tag für Tag sehen sich Unternehmen und Organisationen weltweit der monumentalen
 ### Der Hintergrund
 
 Connexions Berkshire plante eine Umfrage mit dem Titel „Beteiligung an positiven Unternehmungen“ (Participation in Positive Activities, PIPA) unter ca. 9.500 Jugendlichen. Die Ergebnisse würden die Erfassung von ungefähr 13 Datenposten pro Person erfordern, und der gesamte Informationsrücklauf müsste dann in die Connexions Datenbank übernommen werden. Selbst bei einer geschätzten Beteiligung von nur 50 % wären dann über 60.000 Posten manuell durch das Team bei Connexions zu erfassen gewesen. Wie Connexions Knowledge Manager Steve Maddison es formulierte, „wäre die manuelle Erfassung ganz offensichtlich eine Mammut-Aufgabe gewesen, für die wir entweder vorübergehend zusätzliches Personal einstellen oder die jetzige Belegschaft in großem Umfang zusätzlich belasten hätten müssen.“ Die logische Schlussfolgerung war, nach einer Lösung für Formularverarbeitung und Data Capture zu suchen, mit der der gesamte Prozess automatisiert werden konnte.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Die Lösung
 
@@ -47,6 +47,13 @@ Es ging eine Anfrage an ABBYY, das Software-Portfolio vorzustellen, worauf die A
 
 Nach der Installation und der Inbetriebnahme von FlexiCapture 8.0 Professional ist das Handling der im Connexions Büro eingehenden Umfragedaten recht einfach. Alle Fragebögen werden vor Ort schnell eingescannt und mit FlexiCapture verarbeitet, anschließend werden die Daten erfasst und in die Connexions Datenbank exportiert. FlexiCapture unterstützt Connexions bei der zentralen Sammlung und Zuordnung der Daten und macht das Outsourcing einzelner Arbeitsschritte überflüssig. So sind sowohl die zeitgerechte Verarbeitung als auch die sichere Überwachung der Daten garantiert.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Das Ergebnis
 
 In zehn Monaten der Nutzung von FlexiCapture konnte Connexions die Verarbeitungszeit seiner Umfrageergebnisse von mehreren Wochen auf nur zwei Tage verkürzen, die Einstellung von Zeitarbeitskräften ist somit nicht notwendig. In diesem Zeitraum wurden weit über 15.000 Formulare verarbeitet und Connexions schätzt, dass diese Zahl in den nächsten Monaten auf knapp 30.000 anwachsen wird. Zu diesem Zeitpunkt werden sich die Investitionskosten bereits amortisiert haben. „ABBYY FlexiCapture ermöglicht es uns, zusätzliche Aufgaben zu übernehmen, die wir vorher einfach nicht hätten bewältigen können. Überdies hat es den Ablauf unserer Umfragen effizienter gestaltet, so dass unsere Mitarbeiter weniger Zeit für Verwaltungsvorgänge aufwenden müssen und sich auf die Arbeit mit jungen Menschen konzentrieren können", erläutert Maddison.
@@ -57,6 +64,13 @@ Connexions Berkshire hat bereits entschieden, weitere Lizenzen der Software zu e
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Über ABBYY und Kontaktmöglichkeiten
 
 [Zur ABBYY Unternehmensübersicht ›](https://tools.techidaily.com/abbyy/products/)
@@ -66,10 +80,10 @@ Connexions Berkshire hat bereits entschieden, weitere Lizenzen der Software zu e
 Teilen 
 
 <!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Sind Sie bereit, mit einem Experten zu sprechen?
@@ -93,13 +107,21 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-what-is-igtv-and-how-to-use-it-everything-you-need-to-know/"><u>[New] 2024 Approved What Is IGTV and How to Use It Everything You Need to Know</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-distinguishing-between-youtube-content-control-and-creative-commons-flexibility/"><u>[Updated] In 2024, Distinguishing Between YouTube Content Control and Creative Commons Flexibility</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-mastering-the-art-of-finding-influential-voices-in-your-space/"><u>[Updated] In 2024, Mastering the Art of Finding Influential Voices in Your Space</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1726027929115-2/"><u>「ビデオ変換ガイド：2通りの動画ファイル作成手順を学ぶ」</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/caixuns-value-proposition-delving-into-its-75-inch-4k-capable-android-tv-for-cost-conscious-buyers/"><u>Caixun's Value Proposition: Delving Into Its 75-Inch, 4K Capable Android TV for Cost-Conscious Buyers</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/crafting-captivating-captions-elevate-your-pages-popularity-for-2024/"><u>Crafting Captivating Captions Elevate Your Page's Popularity for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1726028779334-gopromp4/"><u>GoPro撮影したファイルに最適なMP4変換方法を学ぶ！</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1726028345290-mp4/"><u>MP4ファイルの再コーディング手順とテクニック</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-essential-tips-for-high-quality-discord-recordings/"><u>[New] In 2024, Essential Tips for High-Quality Discord Recordings</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-top-10-gaming-youtubers-you-may-want-to-subscribe/"><u>[New] Top 10 Gaming YouTubers You May Want to Subscribe</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-mobile-mastery-the-best-gb-emulation-apps/"><u>[Updated] 2024 Approved Mobile Mastery The Best GB Emulation Apps</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-charting-your-youtube-trajectory-essential-tools-from-social-blade-for-2024/"><u>[Updated] Charting Your YouTube Trajectory Essential Tools From Social Blade for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-essential-guide-to-xbox-screen-recording-techniques/"><u>[Updated] Essential Guide to Xbox Screen Recording Techniques</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726028846182-8/"><u>【無料】動画にメロディを付けるためのトップ8ソフトウェア選び方：専門家から学ぶ！</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-how-to-watch-instagram-live-anonymously/"><u>2024 Approved How to Watch Instagram Live Anonymously</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726030243059-dvdmp4/"><u>無料DVDパス解除とMP4変換ガイド - ディスクからダウンロード</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726026473894-bilibili/"><u>Bilibiliビデオでロゴを取り除くためのステップバイステップマニュアル</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/from-likes-to-leads-a-comprehensive-guide-to-influencer-driven-marketing/"><u>From Likes to Leads A Comprehensive Guide to Influencer-Driven Marketing</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726027651761-hp/"><u>HPラップトップマシンで効率的な動画編集テクニック</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-easy-steps-on-how-to-create-a-new-apple-id-account-on-iphone-14-plus-drfone-by-drfone-ios/"><u>In 2024, Easy Steps on How To Create a New Apple ID Account On iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-inside-look-whatsapps-vocal-messaging-network/"><u>In 2024, Inside Look WhatsApp's Vocal Messaging Network</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726027258055-windows-and-mac/"><u>Windows & Macで動画の鏡像作成手順３つ</u></a></li>
+<li><a href="https://solve-info.techidaily.com/windows-11youtubesd/"><u>Windows 11でパソコンからYouTube音楽をSDカードへ転送するための完全ガイド</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726026566647-3/"><u>ダウンロード無しで音声抽出: ムービーからのトラック3方法紹介</u></a></li>
 </ul></div>
 

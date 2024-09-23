@@ -1,7 +1,7 @@
 ---
 title: ABBYY at Handelsblatt's Annual Conference - Focus on Banking Technology
-date: 2024-09-12T17:33:10.095Z
-updated: 2024-09-19T02:19:55.135Z
+date: 2024-09-19T16:26:57.215Z
+updated: 2024-09-23T17:08:55.487Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b7b45cfdc35344213e5101907c39a4f8622c548d37868126691840befd4a8d38.jpg
@@ -74,30 +74,24 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-digital-footprints-lead-to-facebook-video-gold/"><u>[New] Digital Footprints Lead to Facebook Video Gold</u></a></li>
-<li><a href="https://solve-info.techidaily.com/jpeg/"><u>「JPEG画像の適切なサイズにコンバートしてディスク容量を減らす手順」</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/exploring-8-surprising-ways-artificial-intelligence-merges-fact-with-fiction/"><u>Exploring 8 Surprising Ways Artificial Intelligence Merges Fact with Fiction</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/get-smart-with-search-the-new-bing-ai-feature-now-available-for-mobile-devices/"><u>Get Smart with Search: The New Bing AI Feature Now Available for Mobile Devices</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-change-location-on-tiktok-to-see-more-content-on-your-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>How to Change Location on TikTok to See More Content On your Infinix Smart 7 HD | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/how-to-successfully-play-mp4-videos-on-sony-playstation-5-with-easy-solutions/"><u>How to Successfully Play MP4 Videos on Sony PlayStation 5 with Easy Solutions!</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-mirror-your-gameplay-today/"><u>In 2024, Mirror Your Gameplay Today</u></a></li>
-<li><a href="https://solve-info.techidaily.com/missing-page-alert-retrieved-with-ease-using-wonderfoxs-solutions/"><u>Missing Page Alert! Retrieved with Ease Using WonderFox's Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/obstop-5/"><u>OBSと連携し、最高の動画編集ソフトウェアをご紹介！Top 5リスト</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/the-elite-circle-of-digital-titling-top-5-revealed/"><u>The Elite Circle of Digital Titling Top 5 Revealed</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/top-13-best-free-pdf-editor-apps-july-2024-recommendations/"><u>Top 13 Best Free PDF Editor Apps: July 2024 Recommendations</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/updated-in-2024-mac-video-tag-editor-8-best-tools-for-easy-organization/"><u>Updated In 2024, Mac Video Tag Editor 8 Best Tools for Easy Organization</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-ultimate-guide-to-top-8-android-collaboration-platforms/"><u>[New] Ultimate Guide to Top 8 Android Collaboration Platforms</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-androids-low-cost-video-communication-guide/"><u>2024 Approved Android's Low-Cost Video Communication Guide</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/ace-the-hd-audiovideo-experience-in-android-for-2024/"><u>Ace the HD Audio/Video Experience in Android for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/audacitym4a/"><u>AudacityでM4Aファイルが開けない場合の解決策</u></a></li>
+<li><a href="https://solve-info.techidaily.com/discovering-the-past-a-guide-on-accessing-archived-twitch-broadcasts/"><u>Discovering the Past: A Guide on Accessing Archived Twitch Broadcasts</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/fixing-persistent-freezing-and-crashing-in-indivisible-a-comprehensive-guide/"><u>Fixing Persistent Freezing and Crashing in 'Indivisible': A Comprehensive Guide</u></a></li>
+<li><a href="https://solve-info.techidaily.com/how-to-transfer-and-share-your-dvd-files-on-the-vimeo-platform-easily/"><u>How To Transfer And Share Your DVD Files On The Vimeo Platform Easily</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-samsung-galaxy-s24-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On Samsung Galaxy S24 Ultra | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insta360s-one-x2-waterproof-vr-camera-for-adventurers/"><u>Insta360's One X2 - Waterproof VR Camera for Adventurers</u></a></li>
+<li><a href="https://solve-info.techidaily.com/mp3-dsf/"><u>MP3形式へのシンプルな変換: DSFファイルを取り込むためのガイド</u></a></li>
+<li><a href="https://techidaily.com/remove-google-frp-lock-on-vivo-y36i-by-drfone-android-unlock-remove-google-frp/"><u>Remove Google FRP lock on Vivo Y36i</u></a></li>
+<li><a href="https://techidaily.com/why-can-t-i-play-mp4-files-on-my-samsung-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Why can’t I play MP4 files on my Samsung ?</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

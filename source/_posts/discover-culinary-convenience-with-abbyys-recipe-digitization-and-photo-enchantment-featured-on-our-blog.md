@@ -1,7 +1,7 @@
 ---
 title: Discover Culinary Convenience with ABBYY's Recipe Digitization and Photo Enchantment - Featured on Our Blog
-date: 2024-09-15T19:36:24.747Z
-updated: 2024-09-18T20:30:27.562Z
+date: 2024-09-17T17:25:03.180Z
+updated: 2024-09-23T16:08:31.521Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1296bc6cf3d8ba602cee83fbaf9d9aae0f41d750526e3d62954932be609de318.jpg
@@ -51,6 +51,13 @@ You will see a list of all the apps that have been installed on any phone using 
 
 ![library in google play](https://static1.abbyy.com/abbyycommedia/26739/gplay2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 This download history will be useful for those who are looking to find an app that they have deleted and now cannot remember the name of.
 
 **What was your first ever app? Do you still use it today? Share your answer in the comments below** 
@@ -63,6 +70,13 @@ One of our customers has shared his experience with using [FineScanner](http://q
 
 Read the customer’s full review [here](https://appfollow.io/app/1363/review/19707474?s=abbyy&utm%5Fsource=reviews&utm%5Fmedium=slack&utm%5Fcampaign=permalink).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **App of the Week: Enlight Pixaloop**
 
 Have you ever seen a static image modified to look like an animated GIF file? Photos where one or several elements have been animated are called cinemagraphs. For example, you can have drifting clouds or splashing waves on an otherwise static photo of a scenic beach.
@@ -70,10 +84,10 @@ Have you ever seen a static image modified to look like an animated GIF file? Ph
 ![pixaloop](https://static1.abbyy.com/abbyycommedia/26625/app1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Cinemagraphs can be created using [Enlight Pixaloop](https://www.pixaloopapp.com/). No specialized photo editing skills are required: the app will do just about everything for you. The only thing you need to do is use markers and arrows to set a movement direction for the object you want to animate. In the photo above, for example, we have animated the model’s hair.
@@ -81,10 +95,16 @@ Cinemagraphs can be created using [Enlight Pixaloop](https://www.pixaloopapp.com
 ![making moving photos](https://static1.abbyy.com/abbyycommedia/26626/app2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [You can download the app for iOS here](https://itunes.apple.com/ru/app/enlight-photoloop/id1381206010?l=en&mt=8) and surprise your friends with cool-looking cinemagraphs.
@@ -159,17 +179,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-digital-warriors-youtubes-top-ten-women/"><u>[New] 2024 Approved Digital Warriors YouTube’s #Top Ten Women</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/new-exclusive-hd-benefits-turn-on-av1-in-youtube-settings/"><u>[New] Exclusive HD Benefits Turn On AV1 in YouTube Settings</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-analysis-variety-in-fb-video-aspects/"><u>[New] In 2024, Analysis Variety in FB Video Aspects</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-a-streamers-checklist-for-flawless-twitch-live-recordings/"><u>2024 Approved A Streamer's Checklist for Flawless Twitch Live Recordings</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-samsung-galaxy-a14-4g-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Samsung Galaxy A14 4G to New Android? | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/mastery-of-the-mechanics-guaranteeing-a-glitch-free-gaming-experience/"><u>Mastery of the Mechanics: Guaranteeing a Glitch-Free Gaming Experience</u></a></li>
-<li><a href="https://techidaily.com/simple-ways-to-get-recent-calls-back-from-c12-pro-by-fonelab-android-recover-call-logs/"><u>Simple ways to get recent calls back from C12 Pro</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-closer-look-techniques-for-effective-collaboration-on-ms-teams/"><u>[New] In 2024, Closer Look Techniques for Effective Collaboration on MS Teams</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-mastering-the-art-of-oral-explanitations-and-slides/"><u>[Updated] 2024 Approved Mastering the Art of Oral Explanitations & Slides</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-iphones-panoramic-videos-explained-for-fb-sharing/"><u>[Updated] IPhone's Panoramic Videos Explained for FB Sharing</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/7-key-elements-for-a-fully-prepared-summer-on-the-go-kit/"><u>7 Key Elements for a Fully Prepared Summer On-the-Go Kit</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/agentgpt-simplified-easy-steps-to-deploy-your-own-ai-agents-via-the-web-browser/"><u>AgentGPT Simplified: Easy Steps to Deploy Your Own AI Agents via the Web Browser</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726026473894-bilibili/"><u>Bilibiliビデオでロゴを取り除くためのステップバイステップマニュアル</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/boosting-productivity-with-innovative-win11-features-for-2024/"><u>Boosting Productivity with Innovative Win11 Features for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/detailed-guide-on-removing-iphone-13-pro-activation-lock-without-previous-owner-by-drfone-ios/"><u>Detailed Guide on Removing iPhone 13 Pro Activation Lock without Previous Owner?</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726027651761-hp/"><u>HPラップトップマシンで効率的な動画編集テクニック</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/review-of-the-cubefit-terramat-enhancing-workouts-in-a-stationary-position/"><u>Review of the CubeFit TerraMat – Enhancing Workouts in a Stationary Position</u></a></li>
+<li><a href="https://windows11.techidaily.com/seamlessly-access-lately-used-documents-in-windows/"><u>Seamlessly Access Lately Used Documents in Windows</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/still-using-pattern-locks-with-tecno-spark-20-proplus-tips-tricks-and-helpful-advice-by-drfone-android/"><u>Still Using Pattern Locks with Tecno Spark 20 Pro+? Tips, Tricks and Helpful Advice</u></a></li>
 <li><a href="https://solve-info.techidaily.com/ultimate-guide-to-downloading-movies-from-dvds-onto-your-pc-step-by-step-process/"><u>Ultimate Guide to Downloading Movies From DVDs Onto Your PC - Step by Step Process</u></a></li>
 <li><a href="https://solve-info.techidaily.com/ultimate-guide-mastering-video-compression-with-adobe-media-encoder/"><u>Ultimate Guide: Mastering Video Compression with Adobe Media Encoder</u></a></li>
 <li><a href="https://solve-info.techidaily.com/understanding-handbrakes-capabilities-for-merging-multiple-video-streams-insights-and-solutions/"><u>Understanding Handbrake's Capabilities for Merging Multiple Video Streams: Insights & Solutions</u></a></li>
 <li><a href="https://solve-info.techidaily.com/understanding-resolution-upgrades-does-true-4k-offer-significant-advantages-over-1080p/"><u>Understanding Resolution Upgrades: Does True 4K Offer Significant Advantages Over 1080P?</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726027258055-windows-and-mac/"><u>Windows & Macで動画の鏡像作成手順３つ</u></a></li>
 <li><a href="https://solve-info.techidaily.com/windows-11youtubesd/"><u>Windows 11でパソコンからYouTube音楽をSDカードへ転送するための完全ガイド</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726026566647-3/"><u>ダウンロード無しで音声抽出: ムービーからのトラック3方法紹介</u></a></li>
 </ul></div>
 

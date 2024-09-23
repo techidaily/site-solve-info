@@ -1,7 +1,7 @@
 ---
 title: Enhanced User Experience with Advanced Traffic Analysis Technology
-date: 2024-09-13T01:32:23.903Z
-updated: 2024-09-18T17:15:43.452Z
+date: 2024-09-19T17:52:51.492Z
+updated: 2024-09-23T16:06:16.677Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4c64599e932018a17c352685488bbe982ee82f5fc1c73b73894ec43a1b1c5c03.jpg
@@ -31,15 +31,42 @@ Scott Opitz a rejoint ABBYY en 2019, lors de l’[acquisition de TimelinePI](htt
 
 Scott a également occupé plusieurs fonctions de direction au sein d’entreprises publiques et privées. Il est inventeur et détient 13 brevets et demandes de brevets relatifs aux technologies de Process Intelligence.
 
+<!-- affiliate ads begin -->
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### À propos d’ABBYY
 
 ABBYY est un acteur référent de l’Intelligent Process Automation. L’entreprise ambitionne de réinventer la manière dont ses clients et leurs équipes se développent en leur apportant la connaissance nécessaire au bon fonctionnement des plateformes d’automatisation. Les solutions d’ABBYY transforment les données d’entreprise dans le but de permettre un gain en agilité et en rapidité. ABBYY aide plus de 5 000 clients dans le monde, dont bon nombre des entreprises du Fortune 500, à obtenir un impact positif dans des domaines majeurs tels que l’expérience client, la rentabilité et la compétitivité.
 
 ABBYY est une multinationale basée aux États-Unis, et dont les bureaux sont répartis au sein de 15 pays. Pour plus d’informations, veuillez consulter le site[https://www.abbyy.com/fr/](https://tools.techidaily.com/abbyy/products/).
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Contact presse
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
+  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Bianca Stupp
 
@@ -64,27 +91,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/hill-vibes-current-hits-to-match-your-yt-short-tunes-for-2024/"><u>[New] Chill Vibes Current Hits to Match Your YT Short Tunes for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ut-to-perfection-top-video-editors-for-youtubers/"><u>[New] Cut to Perfection Top Video Editors for YouTubers</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-becoming-snapstreak-savvy-tips-for-uninterrupted-connection/"><u>[Updated] Becoming Snapstreak Savvy Tips for Uninterrupted Connection</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/12-facebook-marketing-tips-for-business-beginners-and-pros-for-2024/"><u>12 Facebook Marketing Tips for Business (Beginners and Pros) for 2024</u></a></li>
-<li><a href="https://apple-account.techidaily.com/forgot-your-apple-id-password-and-email-on-iphone-11-heres-the-best-fixes-by-drfone-ios/"><u>Forgot Your Apple ID Password and Email On iPhone 11? Heres the Best Fixes</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-expert-insights-the-best-approaches-to-live-cricket-broadcasting/"><u>In 2024, Expert Insights The Best Approaches to Live Cricket Broadcasting</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-vivo-x100-phone-frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Vivo X100 Phone FRP Lock</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/spotify-keeps-crashing-a-complete-list-of-fixes-you-can-use-on-infinix-smart-7-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Spotify Keeps Crashing A Complete List of Fixes You Can Use on Infinix Smart 7 | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/transform-your-videos-comprehensive-tutorial-on-changing-ogm-to-mp4/"><u>Transform Your Videos: Comprehensive Tutorial on Changing OGM to MP4</u></a></li>
-<li><a href="https://solve-info.techidaily.com/trouble-free-guide-watching-dvd-movies-on-your-pc/"><u>Trouble-Free Guide: Watching DVD Movies on Your PC</u></a></li>
-<li><a href="https://solve-info.techidaily.com/trouble-free-techniques-for-adding-mkv-videos-into-sony-vegas/"><u>Trouble-Free Techniques for Adding MKV Videos Into Sony Vegas</u></a></li>
-<li><a href="https://solve-info.techidaily.com/troubleshooting-downloads-how-to-successfully-retrieve-abema-previously-abematv-streaming-content/"><u>Troubleshooting Downloads: How to Successfully Retrieve ABEMA (Previously AbemaTV) Streaming Content</u></a></li>
-<li><a href="https://solve-info.techidaily.com/ultimate-guide-to-downloading-movies-from-dvds-onto-your-pc-step-by-step-process/"><u>Ultimate Guide to Downloading Movies From DVDs Onto Your PC - Step by Step Process</u></a></li>
-<li><a href="https://solve-info.techidaily.com/ultimate-guide-mastering-video-compression-with-adobe-media-encoder/"><u>Ultimate Guide: Mastering Video Compression with Adobe Media Encoder</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/updated-top-list-the-best-slow-motion-video-editors-available-for-2024/"><u>Updated Top List The Best Slow Motion Video Editors Available for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/jpeg/"><u>「JPEG画像の適切なサイズにコンバートしてディスク容量を減らす手順」</u></a></li>
+<li><a href="https://games-able.techidaily.com/8-actionable-hacks-to-elevate-your-ny-network-status/"><u>8 Actionable Hacks to Elevate Your NY Network Status</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/discover-the-best-8-windows-compatible-podcast-apps/"><u>Discover the Best 8 Windows-Compatible Podcast Apps</u></a></li>
+<li><a href="https://solve-info.techidaily.com/effortless-conversion-of-vob-video-files-to-avi-for-windows-users/"><u>Effortless Conversion of VOB Video Files to AVI for Windows Users</u></a></li>
+<li><a href="https://solve-info.techidaily.com/effortless-format-transformation-convert-3gp-videos-to-popular-file-types-mp4-avi-mkv-with-our-advanced-converter/"><u>Effortless Format Transformation: Convert 3GP Videos to Popular File Types (MP4, AVI, MKV) with Our Advanced Converter</u></a></li>
+<li><a href="https://solve-info.techidaily.com/guide-two-hassle-free-ways-to-insert-watermarks-into-youtube-content/"><u>Guide: Two Hassle-Free Ways to Insert Watermarks Into YouTube Content</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-ai-is-reshaping-our-future-exploring-its-remarkable-possibilities/"><u>How AI Is Reshaping Our Future: Exploring Its Remarkable Possibilities</u></a></li>
+<li><a href="https://solve-info.techidaily.com/how-to-successfully-play-mp4-videos-on-sony-playstation-5-with-easy-solutions/"><u>How to Successfully Play MP4 Videos on Sony PlayStation 5 with Easy Solutions!</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-turn-off-sound-effects-and-improvements-on-your-pc-a-step-by-step-guide/"><u>How to Turn Off Sound Effects and Improvements on Your PC: A Step-by-Step Guide</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-the-real-story-exploring-recordcast-features/"><u>In 2024, The Real Story Exploring RecordCast Features</u></a></li>
+<li><a href="https://solve-info.techidaily.com/missing-page-alert-retrieved-with-ease-using-wonderfoxs-solutions/"><u>Missing Page Alert! Retrieved with Ease Using WonderFox's Solutions</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-in-2024-discovering-your-ideal-audio-format-a-step-by-step-strategy/"><u>New In 2024, Discovering Your Ideal Audio Format A Step-by-Step Strategy</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-in-2024-the-art-of-precision-modern-methods-to-automatically-align-sound-and-picture/"><u>New In 2024, The Art of Precision Modern Methods to Automatically Align Sound and Picture</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/0-youtube-cameras-from-novices-to-experts/"><u>Top 10 YouTube Cameras, From Novices to Experts</u></a></li>
+<li><a href="https://facebook.techidaily.com/unleash-your-potential-essential-business-meta-tools/"><u>Unleash Your Potential: Essential Business META Tools</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
-  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

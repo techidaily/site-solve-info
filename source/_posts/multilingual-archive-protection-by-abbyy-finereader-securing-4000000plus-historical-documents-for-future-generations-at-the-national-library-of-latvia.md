@@ -1,7 +1,7 @@
 ---
 title: "Multilingual Archive Protection by ABBYY FineReader: Securing 4,000,000+ Historical Documents for Future Generations at the National Library of Latvia"
-date: 2024-09-17T17:25:43.507Z
-updated: 2024-09-18T16:54:18.045Z
+date: 2024-09-18T16:38:31.963Z
+updated: 2024-09-23T16:59:38.943Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0eb94f402f1ee7bc7c28262c8a96cc0803ff0569b6db1d88604f12db459af942.jpg
@@ -19,11 +19,25 @@ Other | Digital Archiving
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4 000 000 pages in 20 languages – ABBYY FineReader Engine Preserves the National Library of Latvia
 
 Other | Digital Archiving 
 
 [![library-of-latvia-pic1](https://static4.abbyy.com/abbyycommedia/15839/library-of-latvia-pic1.jpg)](https://www.youtube.com/watch?v=WQ1MUHmEjLA) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Customer Overview
 
@@ -64,9 +78,23 @@ The National Library of Latvia (NLL) has amassed 4.5 million paper units, includ
 
 #### See how ABBYY can help
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4,000,000
 
 ##### pages of ancient and modern books and periodicals
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 20
 
@@ -108,23 +136,9 @@ After the processing, the documents were exported into various formats (PDF, JPE
 
 [![FineReader Engine](https://static2.abbyy.com/abbyycommedia/14346/3-finereader-engine.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FineReader Engine](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Education](https://static1.abbyy.com/abbyycommedia/14365/15-education.jpg)](https://tools.techidaily.com/abbyy/products/) [Education](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
@@ -161,16 +175,24 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-visual-storytelling-cropping-and-editing-tips-for-instagram-audiences/"><u>[New] 2024 Approved Visual Storytelling Cropping and Editing Tips for Instagram Audiences</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-rogelikes-past-present-and-emerging-futures-for-2024/"><u>[Updated] Rogelikes Past, Present, & Emerging Futures for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-shopping-for-tailored-gift-boxes-heres-who-to-hit/"><u>[Updated] Shopping for Tailored Gift Boxes? Here's Who to Hit</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-must-have-gear-for-luxury-sedan-sj4000-enthusiasts/"><u>2024 Approved Must-Have Gear for Luxury Sedan SJ4000 Enthusiasts</u></a></li>
-<li><a href="https://solve-info.techidaily.com/best-free-instagram-reel-sounds-top-4-downloading-tools/"><u>Best Free Instagram Reel Sounds: Top 4 Downloading Tools</u></a></li>
-<li><a href="https://games-able.techidaily.com/boost-your-xbox-series-xs-visuals-via-external-monitor-use/"><u>Boost Your Xbox Series X|S Visuals via External Monitor Use</u></a></li>
-<li><a href="https://solve-info.techidaily.com/comparing-ipod-video-converter-factory-vs-ipod-video-converter-factory-pro-features/"><u>Comparing iPod Video Converter Factory Vs. IPod Video Converter Factory Pro Features</u></a></li>
-<li><a href="https://solve-info.techidaily.com/complete-tutorial-mastering-the-art-of-cropping-avi-videos-both-on-and-off-the-web/"><u>Complete Tutorial: Mastering the Art of Cropping AVI Videos Both On and Off the Web</u></a></li>
-<li><a href="https://solve-info.techidaily.com/comprehensive-guide-how-to-easily-rip-burn-and-duplicate-your-dvdscds/"><u>Comprehensive Guide: How to Easily Rip, Burn, and Duplicate Your DVDs/CDs</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-top-tricks-for-achieving-high-quality-slow-motion-videos-on-android/"><u>In 2024, Top Tricks for Achieving High-Quality Slow Motion Videos on Android</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/1722899018720-step-by-step-fix-for-stop-code-0x0000007b-no-more-blue-screen-woes/"><u>Step-by-Step Fix for Stop Code 0X0000007B – No More Blue Screen Woes</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-foremost-pick-premium-audio-ringtone-artisans/"><u>[New] Foremost Pick Premium Audio Ringtone Artisans</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-mastering-live-stream-capture-tv-show-recording-techniques/"><u>[Updated] 2024 Approved Mastering Live Stream Capture TV Show Recording Techniques</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-the-huawei-p10-examining-its-durability-and-build-quality/"><u>[Updated] 2024 Approved The Huawei P10 Examining Its Durability & Build Quality</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-flippant-entry-and-exit-tips/"><u>[Updated] Flippant Entry & Exit Tips</u></a></li>
+<li><a href="https://solve-info.techidaily.com/gifwindowsand/"><u>美しいGIFをWindowsで制作するための完全説明:優秀ツール紹介&基本編集手法</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-by-step-guide-to-removing-your-fb-watch-logs/"><u>A Step-by-Step Guide to Removing Your FB Watch Logs</u></a></li>
+<li><a href="https://solve-info.techidaily.com/easier-methods-to-shrink-video-files-using-avidemux-a-step-by-step-guide/"><u>Easier Methods to Shrink Video Files Using Avidemux: A Step-by-Step Guide</u></a></li>
+<li><a href="https://solve-info.techidaily.com/easy-steps-to-capture-youtube-audio-streams-without-hassle/"><u>Easy Steps to Capture YouTube Audio Streams Without Hassle</u></a></li>
+<li><a href="https://solve-info.techidaily.com/edit-your-mkv-videos-on-windows-using-top-rated-editors/"><u>Edit Your MKV Videos on Windows Using Top-Rated Editors</u></a></li>
+<li><a href="https://solve-info.techidaily.com/effortlessly-exchange-files-unveiling-the-art-of-free-xvid-to-divx-conversions/"><u>Effortlessly Exchange Files: Unveiling the Art of FREE Xvid to DivX Conversions</u></a></li>
+<li><a href="https://solve-info.techidaily.com/expert-advice-navigating-through-title-the-ultimate-series-full-set-for-optimal-dvd-titling-choices/"><u>Expert Advice: Navigating Through TITLE - The Ultimate Series (Full Set) for Optimal DVD Titling Choices</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/fresh-epson-v700-drivers-now-available-seamlessly-integrate-with-your-windows-7-8-or-10-pc/"><u>Fresh Epson V700 Drivers Now Available: Seamlessly Integrate with Your Windows 7, 8, or 10 PC</u></a></li>
+<li><a href="https://fox-info.techidaily.com/gopro-hero5-black-vs-garmin-virb-ultra-30-which-better-2022-upda-for-2024/"><u>GoPro Hero5 Black VS Garmin VIRB Ultra 30 Which Better? [2022 Upda] for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/guide-to-seamlessly-transform-img-images-into-smooth-playing-mp4-videos-compatible-with-every-device/"><u>Guide to Seamlessly Transform IMG Images Into Smooth-Playing MP4 Videos Compatible with Every Device</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-banner-bliss-savor-your-complimentary-set-of-designs/"><u>In 2024, Banner Bliss Savor Your Complimentary Set of Designs!</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/innovations-in-electronics-discovered-at-the-workshop-of-toms-hardware-experts/"><u>Innovations in Electronics Discovered at the Workshop of Tom's Hardware Experts</u></a></li>
+<li><a href="https://solve-info.techidaily.com/itunes-enthusiasts-tutorial-how-to-convert-and-import-dvd-content-seamlessly/"><u>ITunes Enthusiast's Tutorial: How to Convert & Import DVD Content Seamlessly</u></a></li>
+<li><a href="https://solve-info.techidaily.com/mp33gp/"><u>MP3形式への3GPファイル変換手順集</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/solution-maternal-screenings-can-detect-and-treat-syphilis-early-reducing-the-risk-of-transmission-to-the-fetus-and-preventing-serious-birth-defects-or-stil190/"><u>Solution: Maternal Screenings Can Detect and Treat Syphilis Early, Reducing the Risk of Transmission to the Fetus and Preventing Serious Birth Defects or Stillbirth.</u></a></li>
 </ul></div>
 

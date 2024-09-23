@@ -1,7 +1,7 @@
 ---
 title: Cookiebot-Driven Data Collection and User Tracking Solutions
-date: 2024-09-15T18:50:34.222Z
-updated: 2024-09-18T19:44:39.378Z
+date: 2024-09-21T17:54:10.580Z
+updated: 2024-09-23T17:11:31.138Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f24739781e5aeb83aacaa044.jpg
@@ -13,9 +13,23 @@ Whitepaper
 
 ## How to Successfully Integrate Computer Vision, Large Language Models, and Intelligent Document Processing
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### A hyperautomation use case with ABBYY Vantage
 
 ![](https://static1.abbyy.com/abbyycommedia/37819/ebook-use-case-financial-services-intelligent-document-processing_tn_360x232-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 More and more organizations are using hyperautomation to quickly identify, verify, and automate as many processes as possible. In this context, they are adopting intelligent document processing as a key component of process automation. Then they are integrating other technologies like computer vision and large language models to achieve the highest level of touchless automation. 
 
@@ -24,10 +38,10 @@ More and more organizations are using hyperautomation to quickly identify, verif
 This white paper uses an ABBY Vantage use case to demonstrate how these technologies can work together in a practical application, insurance claims automation. It provides a full 12-step description of activities, detailing which technologies are used, and how. It also includes a demo of the claims automation process, from both the user side and the Vantage side. Download it today to see hyperautomation in action! 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Thank you for your interest in ABBYY.
@@ -37,10 +51,10 @@ This white paper uses an ABBY Vantage use case to demonstrate how these technolo
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
@@ -112,17 +126,16 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-mobile-streams-on-youtube-less-than-1000-subs-no-problem/"><u>[New] In 2024, Mobile Streams on YouTube Less Than 1000 Subs? No Problem</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elite-streaming-sensations-worlds-most-popular-video-content-makers/"><u>[Updated] In 2024, Elite Streaming Sensations World's Most Popular Video Content Makers</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-professional-tips-for-editing-and-refining-instagram-videos/"><u>2024 Approved Professional Tips for Editing and Refining Instagram Videos</u></a></li>
-<li><a href="https://driver-download.techidaily.com/expert-tips-for-fixing-malfunctioning-gpus-now-they-work/"><u>Expert Tips for Fixing Malfunctioning GPUs - Now They Work!</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/het-geheim-van-een-bmp-afbeelding-ontduwd-de-stappen-om-hem-te-openen/"><u>Het Geheim Van Een BMP-Afbeelding Ontduwd: De Stappen Om Hem Te Openen</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-best-asmr-series-on-youtube-platform/"><u>In 2024, Best ASMR Series on YouTube Platform</u></a></li>
-<li><a href="https://solve-info.techidaily.com/mp33gp/"><u>MP3形式への3GPファイル変換手順集</u></a></li>
-<li><a href="https://solve-info.techidaily.com/mp35/"><u>MP3音量変更手順：5秘技を解明する</u></a></li>
-<li><a href="https://solve-info.techidaily.com/podcast-conversion-mastery-discover-the-three-most-efficient-techniques-for-mp3-creation/"><u>Podcast Conversion Mastery: Discover the Three Most Efficient Techniques for MP3 Creation</u></a></li>
-<li><a href="https://solve-info.techidaily.com/repeat-your-success-top-3-methods-for-looping-videos-on-youtube/"><u>Repeat Your Success: Top 3 Methods for Looping Videos on YouTube</u></a></li>
-<li><a href="https://solve-info.techidaily.com/simple-steps-adding-black-stripes-or-bars-to-your-videos-on-windows/"><u>Simple Steps: Adding Black Stripes or Bars to Your Videos on Windows</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/unclogging-operational-blockages-in-windows-inked-devices/"><u>Unclogging Operational Blockages in Windows Inked Devices</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-the-ultimate-guide-to-self-validation-on-social-media/"><u>[New] In 2024, The Ultimate Guide to Self-Validation on Social Media</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-prime-10-terraria-game-enhancements/"><u>[New] Prime 10 Terraria Game Enhancements</u></a></li>
+<li><a href="https://solve-info.techidaily.com/gifwindowsand/"><u>美しいGIFをWindowsで制作するための完全説明:優秀ツール紹介&基本編集手法</u></a></li>
+<li><a href="https://solve-info.techidaily.com/expert-advice-navigating-through-title-the-ultimate-series-full-set-for-optimal-dvd-titling-choices/"><u>Expert Advice: Navigating Through TITLE - The Ultimate Series (Full Set) for Optimal DVD Titling Choices</u></a></li>
+<li><a href="https://solve-info.techidaily.com/guide-to-seamlessly-transform-img-images-into-smooth-playing-mp4-videos-compatible-with-every-device/"><u>Guide to Seamlessly Transform IMG Images Into Smooth-Playing MP4 Videos Compatible with Every Device</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-delving-into-filmoras-appeal-its-essential-10-features/"><u>In 2024, Delving Into Filmora's Appeal Its Essential 10 Features</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-how-to-optimize-your-teams-virtual-meetings/"><u>In 2024, How to Optimize Your Team's Virtual Meetings</u></a></li>
+<li><a href="https://solve-info.techidaily.com/itunes-enthusiasts-tutorial-how-to-convert-and-import-dvd-content-seamlessly/"><u>ITunes Enthusiast's Tutorial: How to Convert & Import DVD Content Seamlessly</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/navigating-digital-first-impressions-the-9-key-skype-interview-insights/"><u>Navigating Digital First Impressions: The 9 Key Skype Interview Insights</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-performance-of-amazon-luna-the-ultimate-game-streamers-review/"><u>Unveiling the Performance of Amazon Luna – The Ultimate Game Streamer's Review</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/zoom-seamless-recording-of-zoom-sessions-a-guide-to-cutting-techniques/"><u>スムーズなZoom録音保持:トリミング技術ガイド - Seamless Recording of Zoom Sessions: A Guide to Cutting Techniques</u></a></li>
 </ul></div>
 
