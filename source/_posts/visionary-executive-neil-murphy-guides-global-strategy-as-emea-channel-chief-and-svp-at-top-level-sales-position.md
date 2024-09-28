@@ -1,7 +1,7 @@
 ---
 title: Visionary Executive Neil Murphy Guides Global Strategy as EMEA Channel Chief and SVP at Top-Level Sales Position
-date: 2024-09-16T17:20:14.820Z
-updated: 2024-09-23T17:16:35.004Z
+date: 2024-09-26T20:00:45.061Z
+updated: 2024-09-27T18:41:17.612Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/122fad585a96b844750a62c04c4dce3455583d7dfd3b684b7339ff82c163bd28.jpg
@@ -27,13 +27,6 @@ I joined ABBYY back in 2016 but had known of the company for many years. At that
 
 Being given a high degree of autonomy to drive success is also very important to me and the leadership team at ABBYY was very enthusiastic and supportive of this. I was leaving a good job where I was successful but, looking back, it was a fantastic decision.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Tell us your title and a bit about your role and journey at ABBYY so far
 
 I’ll start with the journey. It’s been a great six years with personal progression and meeting some fantastic people. I started as Sales Director for the UK & Ireland and helped lead the team to over achievement in my first full year. While I was building the UK business and closing deals in that first year, I was also planning for the longer term by generating new strategic alliances that would transpire to accelerate ABBYY’s brand and growth on a global basis. One of these relationships helped bring ABBYY into the Intelligent Automation market at a very early stage as a highly complementary technology to [give robotic process automation (RPA) bots the ability to understand and extract content from documents](https://tools.techidaily.com/abbyy/products/), giving us a leading position in what is now called Intelligent Document Processing.
@@ -44,6 +37,13 @@ Thanks to the trust and autonomy ABBYY showed, I was able to pursue strategic bu
 
 Gym first thing in the morning while dodging being ambushed by my kids looking for all sorts of things that they shouldn’t be eating at 6am! In the UK, many of us work from home but have the benefit of a great office in Bank, Central London, so I operate in a hybrid model between the two. Typically, I take some time to answer emails from overnight and then get on calls with various members of the team to discuss current opportunities, but I am at my happiest engaged alongside them with our partners and customers. Ultimately, I want the team to have the autonomy and space to operate that I was given, so I try to ensure this happens while getting involved where required.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### What keeps you going, and what do you enjoy the most in your role, any highlights?
 
 The team I get to work with is what keeps me going. COVID really impacted the amount of time we have spent together in the last couple of years, but I’m looking forward to getting more face time over the coming months. I love a deal, and the sense of excitement when I or the team is working on a significant opportunity is always palpable and the part that I enjoy the most.
@@ -51,6 +51,13 @@ The team I get to work with is what keeps me going. COVID really impacted the am
 ### What was your previous experience before ABBYY?
 
 I have spent all my career working within the automation market, particularly document and [process automation](https://tools.techidaily.com/abbyy/products/), and previous to ABBYY worked as EMEA Solutions Director for Kodak Alaris, who are a leader in the document digitisation market. My most formative role, however, was for one of their competitors, Bell & Howell, where I was the only employee covering the UK, Ireland, Benelux, and Eastern Europe (all other resources were based out of the US, so no local support, marketing etc). All the business was dependent on me, so it quickly taught me the importance of resilience and self-reliance for my success. I also had a fantastic boss who believed in me and gave me all the autonomy I needed.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Your top advice to someone joining ABBYY in your function?
 
@@ -67,10 +74,10 @@ I also have a very lovely wife who I don’t deserve, so we love to spend some t
 ![Neil Murphy ABBYY](https://static1.abbyy.com/abbyycommedia/36482/neil_collage_2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### If you could have one wish come true, what would it be?
@@ -78,38 +85,25 @@ I also have a very lovely wife who I don’t deserve, so we love to spend some t
 Since I am from Ireland, I wish my team was in the World Cup that's going on right now. It's been 20 years since we were last there, I can't believe it! My kids have been supporting England, so there were some gloomy faces at home on Saturday when they were knocked out against France.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### What’s your pet peeve?
 
 Zoom calls. Clearly, they were a necessity over lock-down, but I think we miss too much of the human aspect when we don't connect in person.
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Name any inspirational book/movie/music you have recently discovered or are enjoying at the moment
 
 Hard to pick one in particular recently, but my favourite book is Birdsong by Sebastian Faulks. I first read it over 20 years ago.
 
 <!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Interested in joining the ABBYY team? Please check the vacancies below and apply!
@@ -179,5 +173,19 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-speech-to-text-solutions-for-engaging-ppts/"><u>[New] 2024 Approved Speech-to-Text Solutions for Engaging PPTs</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-conjoin-video-streams-for-queue-curation-for-2024/"><u>[New] Conjoin Video Streams for Queue Curation for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-optimizing-tasks-in-teams-with-these-8-social-media-apps-for-2024/"><u>[New] Optimizing Tasks in Teams with These 8 Social Media Apps for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-escapism-rebooted-the-power-of-virtual-reality/"><u>2024 Approved Escapism Rebooted The Power of Virtual Reality</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-smart-personalization-for-your-site/"><u>Cookiebot-Enhanced: Smart Personalization for Your Site</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-unleashing-the-potential-of-smart-marketing-technology/"><u>Cookiebot-Enhanced: Unleashing the Potential of Smart Marketing Technology</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-the-key-to-cutting-edge-data-tracking-and-personalization/"><u>Cookiebot: The Key to Cutting-Edge Data Tracking and Personalization</u></a></li>
+<li><a href="https://article-files.techidaily.com/demystifying-av1-encoding-basics/"><u>Demystifying AV1 Encoding Basics</u></a></li>
+<li><a href="https://solve-info.techidaily.com/digital-onboarding-mistakes-why-most-companeries-are-losing-customer-opportunities/"><u>Digital Onboarding Mistakes: Why Most Companeries Are Losing Customer Opportunities</u></a></li>
+<li><a href="https://solve-info.techidaily.com/discover-efficient-data-analytics-through-our-advanced-cookiebot-driven-solutions/"><u>Discover Efficient Data Analytics Through Our Advanced Cookiebot-Driven Solutions</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/green-thumbs-united-top-10-farm-titles-for-friendly-playtime/"><u>Green Thumbs United Top 10 Farm Titles for Friendly Playtime</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-infinix-hot-40-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Infinix Hot 40</u></a></li>
+</ul></div>
 

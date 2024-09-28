@@ -1,7 +1,7 @@
 ---
 title: "ABBYY Solutions: Mastering Photo Editing, Barcode Scanning & Social Media Integration with Advanced Currency Tools"
-date: 2024-09-20T18:08:32.637Z
-updated: 2024-09-23T18:23:14.495Z
+date: 2024-09-25T07:06:55.931Z
+updated: 2024-09-28T01:03:10.540Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a516821dc0dcd8fb768903303922c214d1ad710be56ca1c3f04be97b27b5dc47.jpg
@@ -18,6 +18,13 @@ July 16, 2018
 ![](https://static4.abbyy.com/abbyycommedia/26344/mobile-monday-41-1.png) 
 
 Do you want to become a photographer? Go ahead! Innovative devices today surely have what it takes to make you one. In today’s news: discovering hidden functions of smartphone cameras, adding info from social networks to BCR, and converting currencies!
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **iOS Tip: Features of the iPhone Camera**
 
@@ -41,13 +48,6 @@ Loop turns your Live Photo into a video loop, Bounce makes your photo rock back 
 
 ![Long Exposure iPhone 6S Live Photos](https://static1.abbyy.com/abbyycommedia/26346/long-exposure.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Planning to take a group photo? Try Timer that sets the countdown (from 3 to 10 seconds) and lets you create amazing photos where all of your friends will make it in the shot.
 
 Camera app also enables you to modify focus and camera exposure of selected shot areas or simply make your shot darker or lighter. Click the area that you wish to modify. To turn on the auto-focus, tap and hold an object on your shot until you see the **AE/AF lock**. You can freely move your camera, the focus will be fixed on the selected spot. To adjust exposure, move the sun icon in the focus square up or down.
@@ -57,13 +57,6 @@ Camera app also enables you to modify focus and camera exposure of selected shot
 This mode is featured in [iPhone 7 Plus](https://www.apple.com/iphone/), [iPhone 8 Plus](https://www.apple.com/iphone/), and [iPhone X](https://www.apple.com/iphone/). It uses two iPhone cameras to create the so-called depth effect that lets you defocus the background by blurring it and focus at the foreground.
 
 ![depth effect Portrait mode ios iphone](https://static1.abbyy.com/abbyycommedia/26347/depth-effect-2.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [iPhone 8 Plus](https://www.apple.com/iphone/) and [iPhone X](https://www.apple.com/iphone/) allow you to use effects of the studio lighting. After you’ve made a shot, click **Edit** and select one of the available effects: Natural Light, Studio Light, Contour Light, or Stage Light, Stage Light Mono and your iPhone will make your photos look like they were taken in a photo studio.
 
@@ -78,6 +71,13 @@ This mode for wide angle photos lets you fit anything in your shot.
 When you enable the Pano mode, your camera will display a guide bar in the middle of the screen to help you take a photo. Want to start from the right? Simply click the arrow and change its direction.
 
 ![ios iphone camera pano mode](https://static1.abbyy.com/abbyycommedia/26348/ios10-iphone7-camera-pano-mode-502x1024.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Video mode**
 
@@ -94,13 +94,6 @@ Taking your child to a pool or a trampoline park? Try taking a video in the Slow
 This mode works the other way around, it records a video over certain periods of time and then speeds it up. It is perfect to film continued events like movement of clouds or a nightfall. A distinctive feature of this mode is that the video will last less then the time required to take it.
 
 Another feature that was made available in [iOS 11](https://www.apple.com/ios/ios-11/) Camera is QR code recognition. To activate the function, go to **Settings** → **Camera** and turn on **QR code scanning**. Hovering a camera over a QR code will prompt a notification with further suggestions, for example, to open a link from the code in [Safari](https://www.apple.com/safari/).
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Android Tip: Features of Cameras on Android**
 
@@ -134,6 +127,13 @@ Samsung surely follows modern trends. The frontal camera of Samsung [S8](https:/
 
 ![Samsung S8 Selfie photo Android](https://static1.abbyy.com/abbyycommedia/26352/stickers.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Object recognition**
 
 Samsung camera is trained to recognized objects on photos and search for similar images in the internet with the [Bixby](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.samsung.com%2Fglobal%2Fgalaxy%2Fapps%2Fbixby%2F) assistant. To activate Bixby, click the special button on your phone. Point your camera at an object or a landscape and the assistant will display related images and links that you can follow to buy these objects on the internet.
@@ -141,13 +141,6 @@ Samsung camera is trained to recognized objects on photos and search for similar
 **Video**
 
 Just like iPhone, Samsung lets you record 4K videos. To configure the quality or other settings of photo taking, go to Settings at the top panel of the camera app. You can also record slow-mo videos.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **ABBYY Tip: How to Add Data From Social Networks to BCR**
 
@@ -170,16 +163,10 @@ If your [BCR](http://qrs.ly/ip56xfe)contact lacked a photo, it will be added fro
 [BCR](http://qrs.ly/ip56xfe) will save a link to a Facebook or LinkedIn profile in a business card so that you can open a social network page at anytime.
 
 <!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **App of the Week: Valuta+ Currency Converter**
@@ -192,11 +179,25 @@ This user-friendly app converts over 170 currencies, works offline, and has a fa
 
 Valuta+ can be downloaded from [iOS](https://itunes.apple.com/us/app/valuta-currency-converter/id646925682?mt=8) and [Android](https://play.google.com/store/apps/details?id=com.danielnoehr.valuta&hl=en%5FUS).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **First-Hand Experience: Advice From a Colleague**
 
 _By Elizaveta Titarenko, Copywriter_
 
 ![abbyy advice rock climbing wall](https://static1.abbyy.com/abbyycommedia/26355/elizaveta-1.png)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Why engage in rock climbing?
 
@@ -215,13 +216,6 @@ That’s all for today. See you next Monday!
 P.S. Go [here](https://tools.techidaily.com/abbyy/products/), to check our previous issue.
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -285,5 +279,19 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-actors-insight-crafting-engaging-online-reactions-on-youtube-3-pro-tips/"><u>[New] 2024 Approved Actor's Insight Crafting Engaging Online Reactions on YouTube (3 Pro Tips)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-beauty-blogging-101-starting-up-as-an-aesthetic-vlogger/"><u>[New] In 2024, Beauty Blogging 101 Starting Up as an Aesthetic Vlogger</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-maximizing-ipad-audio-record-best-tips-in-2024/"><u>[Updated] Maximizing iPad Audio Record Best Tips, In 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-pro-video-capture-solutions-on-mac-beyond-the-bandicamp-era-for-2024/"><u>[Updated] Pro Video Capture Solutions on Mac Beyond the Bandicamp Era for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/audio-artistry-in-a-download-top-7-vocal-transformation-apps-reviewed-for-2024/"><u>Audio Artistry in a Download Top 7 Vocal Transformation Apps Reviewed for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/harnessing-the-power-of-animated-graphics-for-2024/"><u>Harnessing the Power of Animated Graphics for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/how-process-intelligence-leads-to-success-understanding-the-top-five-advantages/"><u>How Process Intelligence Leads to Success: Understanding the Top Five Advantages</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/inside-fongo-unveiling-the-features-of-a-popular-canadian-internet-phone-provider/"><u>Inside Fongo: Unveiling the Features of a Popular Canadian Internet Phone Provider</u></a></li>
+<li><a href="https://solve-info.techidaily.com/integrating-compliance-protocols-with-exceptional-cx-strategies-in-banking-and-finance/"><u>Integrating Compliance Protocols with Exceptional CX Strategies in Banking & Finance</u></a></li>
+<li><a href="https://solve-info.techidaily.com/intelligent-docx-and-pdf-automation-with-quadrants-spark-2022-matrix-solution/"><u>Intelligent DOCX & PDF Automation with Quadrant's SPARK 2022 Matrix Solution</u></a></li>
+<li><a href="https://solve-info.techidaily.com/leveraging-ai-and-analytics-for-boosting-staff-participation-and-commitment/"><u>Leveraging AI and Analytics for Boosting Staff Participation and Commitment</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/seize-visual-riches-from-four-premium-youtube-portals-for-2024/"><u>Seize Visual Riches From Four Premium YouTube Portals for 2024</u></a></li>
+</ul></div>
 

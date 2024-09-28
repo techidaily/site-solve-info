@@ -1,7 +1,7 @@
 ---
 title: ABBYY's Innovative Approach to Building a Secure Future via Advanced Automated Solutions
-date: 2024-09-17T16:45:51.917Z
-updated: 2024-09-23T16:21:42.210Z
+date: 2024-09-22T05:49:35.106Z
+updated: 2024-09-28T06:50:32.640Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/acc116e7f31959c80ee46ff620abee605b240216ab77712435cda97b5c53cabd.jpg
@@ -27,10 +27,10 @@ Alongside these business-focused, bottom-line-boosting benefits of adopting AI, 
 These innovations are emerging at a time when many are expressing concerns about artificial intelligence, viewing it as a threat to personal freedoms rather than a force for good. At its core, however, AI is a tool like any other, and its impact depends on how it is used. One of the most significant humanitarian contributions of AI is that **it’s helping create a safer world**, whether that takes the form of improving driver safety, detecting safety hazards at construction sites, or helping the United States Food and Drug Administration (FDA) identify adverse reactions to drugs more quickly.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Improving driver safety
@@ -38,21 +38,22 @@ These innovations are emerging at a time when many are expressing concerns about
 According to the National Highway Traffic Safety Administration, [traffic crashes in 2020 were responsible for more than 38,000 fatalities](https://www.nhtsa.gov/press-releases/2020-traffic-crash-data-fatalities)—the highest number since 2007\. The office further reports that in 45 percent of those fatal crashes, drivers of passenger vehicles were engaged in risky behaviors such as speeding.
 
 <!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Using telematics to reward safe drivers
 
 In an effort to prevent future fatalities and promote safer conditions for all drivers, **auto insurance companies are turning to intelligent automation**. Previously, insurers relied on past driving records—frequency and severity of tickets and accidents—to assess the safety of an individual’s driving habits. [Today they can use telematics to collect real-time data while the person is driving](https://www.usnews.com/insurance/auto/how-do-those-car-insurance-tracking-devices-work), either through a physical device plugged into the vehicle or via a smartphone app. Both methods use AI to detect behaviors such as sudden acceleration and hard braking, and smartphone apps can also flag [phone use while driving, a proven risk factor in traffic fatalities](https://www.nhtsa.gov/risky-driving/distracted-driving#the-issue-consequences). Auto insurance companies then **use this data to reward safe drivers** with discounts and to encourage those with less-than-stellar habits to be more careful.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Coaching truck drivers in real time
 
@@ -63,6 +64,13 @@ Netradyne’s senior vice president of marketing, Barrett Young, recently shared
 ### Making construction sites safer
 
 In 2020, [more than one in five workplace deaths occurred within the construction industry](https://www.bls.gov/opub/ted/2022/a-look-at-falls-slips-and-trips-in-the-construction-industry.htm), and more than one-third of those fatalities resulted from falls, slips, and trips. In addition to saving lives, enhancing construction site safety also helps businesses avoid financial hardships. [Each Occupational Safety and Health Administration (OSHA) violation incurs a penalty of up to $15,625](https://www.osha.gov/penalties), and OSHA estimates that [U.S. employers pay nearly $1 billion per week](https://www.osha.gov/businesscase/costs) for direct workers' compensation costs.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Enhancing visibility
 
@@ -79,13 +87,6 @@ AI adds another dimension of safety by **enabling some building elements to be p
 ### Improving drug safety reporting
 
 Tracking adverse drug events (ADEs)—harms resulting from medication that include allergic reactions, side effects, and human error—is a key component in making drugs safer. Every year, adverse drug events (ADEs) cause about [1.3 million visits to the emergency room and 350,000 hospitalizations, costing about $3.5 billion a year](https://www.cdc.gov/medicationsafety/basics.html).
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How AI Identity Proofing Is Transforming Government Services
 
@@ -107,13 +108,6 @@ In that same interview, Scott explained that today, “\[analysts\] can basicall
 
 By speeding up adverse event report processing and dramatically reducing the risk of human error, the FDA is helping **ensure that problems with medications can be addressed quickly and effectively**. Healthcare providers can prescribe drugs with greater confidence in their safety and effectiveness, and patients ultimately benefit from the prevention of future adverse reactions.
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Intelligence for a safer future
 
 These are a few examples of areas where intelligent automation is contributing to a safer future, and there are many more where these came from.
@@ -121,13 +115,6 @@ These are a few examples of areas where intelligent automation is contributing t
 Whether they are delivering feedback that helps drivers operate more safely, tracking machine health to prevent construction-site accidents, or enabling faster, more accurate processing of drug safety reports, AI-guided platforms are enabling unprecedented levels of safety awareness and powering more effective prevention strategies. By processing massive amounts of inputs faster and more accurately than humans, intelligent automation is turning data into actionable insights. The result is an effective collaboration between humans and machines, leveraging the best that each has to offer in building a safer world.
 
 ![Maxime Vermeir 110X110 (1)](https://static3.abbyy.com/abbyycommedia/37004/maxime-vermeir_110x110-1.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Maxime Vermeir
 
@@ -142,6 +129,13 @@ Connect with Max on [LinkedIn](https://www.linkedin.com/in/maximevermeir/).
 1 / 3 
 
 [![Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them](https://static1.abbyy.com/abbyycommedia/37015/onboarding_875247286_848x444.jpg) **Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them** Read more](https://tools.techidaily.com/abbyy/products/) [![How AI Can Help Government Agencies Win at Total Experience (TX)](https://static5.abbyy.com/abbyycommedia/37014/government_1214434168_848x444.jpg) **How AI Can Help Government Agencies Win at Total Experience (TX)** Read more](https://tools.techidaily.com/abbyy/products/) [![Creating an Intelligent Automation Symphony](https://static1.abbyy.com/abbyycommedia/36940/tlp_ia_orchestra_485765348_848x444.jpg) **Creating an Intelligent Automation Symphony** Read more](https://tools.techidaily.com/abbyy/products/) [![Customer Point of View: Approach Automation Step by Step](https://static4.abbyy.com/abbyycommedia/37013/fte_613347676_848x444.jpg) **Customer Point of View: Approach Automation Step by Step** Read more](https://tools.techidaily.com/abbyy/products/) [![The Changing Role of the Finance Leader](https://static5.abbyy.com/abbyycommedia/37012/finance_1134322021_848x444.jpg) **The Changing Role of the Finance Leader** Read more](https://tools.techidaily.com/abbyy/products/) [![Three Ways AI Is Making Employees Happier](https://static2.abbyy.com/abbyycommedia/36944/ai_happier_employees_1160730188_848x444.jpg) **Three Ways AI Is Making Employees Happier** Read more](https://tools.techidaily.com/abbyy/products/) [![Welcome to The Intelligent Enterprise](https://static5.abbyy.com/abbyycommedia/37545/ulf-848x444-slate.png) **Welcome to The Intelligent Enterprise** Read more](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Subscribe for updates
 
@@ -198,5 +192,19 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/updated-top-10-instagram-grid-makers-to-create-visually-appealing-grids-for-2024/"><u>[Updated] Top 10 Instagram Grid Makers to Create Visually Appealing Grids for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-top-6-fiscal-picks-in-the-4k-projector-market/"><u>2024 Approved Top 6 Fiscal Picks in the 4K Projector Market</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-readers-perspective-on-the-barnes-and-noble-nook-glowlight-4-full-review/"><u>A Reader's Perspective on the Barnes & Noble Nook GlowLight 4: Full Review</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-enabled-solutions-optimize-your-website-effortlessly/"><u>Cookiebot-Enabled Solutions: Optimize Your Website Effortlessly</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-enabled-optimize-your-websites-performance-and-security/"><u>Cookiebot-Enabled: Optimize Your Website's Performance and Security</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-optimized-experience-tailored-by-advanced-tracking/"><u>Cookiebot-Enhanced: Optimized Experience Tailored By Advanced Tracking</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-optimized-user-tracking-and-personalization/"><u>Cookiebot-Enhanced: Optimized User Tracking & Personalization</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-navigate-macs-screen-capture-like-a-pro-with-simple-keys/"><u>In 2024, Navigate Mac's Screen Capture Like a Pro with Simple Keys</u></a></li>
+<li><a href="https://facebook.techidaily.com/lockdown-stealth-mode-activated-on-your-fb-feed/"><u>Lockdown: Stealth Mode Activated on Your FB Feed</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-mystery-unveiled-how-and-why-cant-chatgpt-detect-its-writing-errors/"><u>The Mystery Unveiled: How and Why Can't ChatGPT Detect Its Writing Errors?</u></a></li>
+<li><a href="https://win-blog.techidaily.com/transform-audio-files-free-of-charge-change-ogg-format-to-webm-using-moveavees-tool/"><u>Transform Audio Files Free of Charge - Change OGG Format to WebM Using Moveavee's Tool</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/unlock-apple-iphone-13-pro-without-passcode-easily-by-drfone-ios/"><u>Unlock Apple iPhone 13 Pro Without Passcode Easily</u></a></li>
+</ul></div>
 

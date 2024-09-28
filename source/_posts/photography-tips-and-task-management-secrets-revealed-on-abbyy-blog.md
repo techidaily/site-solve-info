@@ -1,7 +1,7 @@
 ---
 title: Photography Tips & Task Management Secrets Revealed on ABBYY Blog
-date: 2024-09-20T17:19:24.689Z
-updated: 2024-09-23T16:04:49.606Z
+date: 2024-09-20T21:30:04.124Z
+updated: 2024-09-28T00:13:21.012Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1b264feb60401b06f1b5b9d369aaa689e44f7f3921972fa9eb3d747a1df53b5a.jpg
@@ -30,15 +30,15 @@ In most cases, you get a promo code in the form of a link. You just tap it on yo
 1\. Open the App Store app on your device (that’s where you download your apps)  
 ![Redeem App Store Promo Code iPhone iPad](https://static1.abbyy.com/abbyycommedia/25934/img_3980-e1505138773195.png)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 2\. Click "Updates", and then - the icon (blue silhouette in a circle) or your photo in the upper right corner.  
 ![Redeem App Store Promo Code iPhone iPad](https://static1.abbyy.com/abbyycommedia/30514/1-angl.png)
-
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
-  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 3\. Sign in with your Apple ID.
 
@@ -60,32 +60,6 @@ Here’s how you do it:
 ![itunes redeem promo code on computer account](https://static1.abbyy.com/abbyycommedia/25938/macos-itunes12-5-menu-account-redeem-dropdown-e1505139115703.jpg)  
 ![redeem gift card macbook itunes](https://static1.abbyy.com/abbyycommedia/25939/macos-itunes12-5-redeem-code-gift-card-e1505139171775.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 3\. Enter your account password once again, then paste your promo code into the field at the bottom and you’re done.
 
 ## **Android Tip: How to Redeem Your Google Play Promo Code**
@@ -97,11 +71,25 @@ The procedure is similar for Android-powered devices. Here again, you are most l
 2\. Tap the **Redeem** icon.  
 ![reedeem Google Play promo](https://static1.abbyy.com/abbyycommedia/31172/1-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 3\. Enter your promo code.  
 ![redeem promo code Google Play](https://static1.abbyy.com/abbyycommedia/31173/2.png)
 
 4\. Tap **Redeem** and you will see a window prompting you to install the app.  
 ![redeem FineScanner Google Play](https://static1.abbyy.com/abbyycommedia/31174/3.png)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 There’s also an alternative route: you can use the web version of Google Play to install the app on your (or your grandparent’s) smartphone via your desktop computer. Simply log in with your Gmail account at [play.google.com](https://play.google.com/store) to find apps and install them on your mobile device. To redeem your promo code on a desktop computer:
 
@@ -121,24 +109,38 @@ Unsurprisingly, the quality of OCR is heavily dependent on the quality of docume
 2\. **Wrong focus point** is another image defect that may make you want to rip your hair out. Why is it that sometimes the camera will focus on any object in sight save the text that you need to capture? Digital cameras use special technology to determine the distance to the subject. To perform reliably, it needs sufficient lighting and high-contrast objects. Besides, it is often fine-tuned for portraits and common indoor and outdoor scenes. If your camera has hard time focusing on the text, give it a helping hand by pointing the lens to some high-contrast (e.g. black and white) area. It’s best to give the camera some time to focus on the text instead of taking a few hasty snapshots in the hope that you can improve their sharpness later.  
 ![fix wrong focus point taking photos](https://static1.abbyy.com/abbyycommedia/31175/5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 3\. **Blur** is caused by camera shake. It is more likely to occur in dark environments, because the camera will keep the shutter open until the sensor gets enough light. Even if you have the steady hands of a neurosurgeon, your heartbeats may transfer to the camera and cause blur. So, if your camera is not equipped with optical image stabilization, shoot like a marksman: hold the camera steady in your hands, hold your breath and softly press the shutter release button. If you need to take lots of pictures in one session, we would advise using a flexible clamp mount. We use one ourselves and can confirm that it does the trick.  
 ![finescanner text analyse blurred photo](https://static1.abbyy.com/abbyycommedia/25942/6.jpg)
 
 4\. **Shadows and glare.** These, too, are also caused by uneven or insufficient lighting. Using the flash may help, but its trickier with small objects like business cards. Hot spots may occur where you least expect them. If your text is printed on glossy paper, position the camera so that you don’t see the direct reflection of the lamp on the document. Light should be evenly distributed over the document. Look out for shadows. Remember that your arms can obstruct the light and cause shadows too. If this is the case, you may want to reposition the camera, move to another room or add an extra light source.  
 ![textgrabber ocr abbyy glare](https://static1.abbyy.com/abbyycommedia/25943/7.jpg)![finescanner text recognition image shadows](https://static1.abbyy.com/abbyycommedia/25944/8.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 5\. **“Difficult” backgrounds.** These can cause some headache. The background is not the subject, but it often attempts to pull the focus to itself. The general rule of thumb is to shoot against uniform backgrounds and have as few other objects in the frame as possible. Avoid white backgrounds, though.  
 ![finescanner text analyse background](https://static1.abbyy.com/abbyycommedia/25945/img_5353-e1505149724965.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 6\. **Poor angle.** If you shoot at an angle, rather than positioning the camera directly above the document, make sure that the angle is not too steep. Otherwise, the image correction algorithms may become helpless. The trapezoid correction mechanism can work wonders, but it’s not omnipotent and won’t be able to restore the document to its normal rectangular self if you shoot it from a prone position.  
 ![finescanner text analyse poor angle](https://static1.abbyy.com/abbyycommedia/25946/9.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 7\. **Camera problems.** Not all device cameras are created equal. If you plan to use your smartphone as a portable scanner, take a closer look at its camera specs. It should produce a sharp picture across the entire frame, be able to adjust white balance reasonably well, not distort object boundaries, and perform well in different lighting environments. Smartphones tend to be equipped with better cameras than tablets.  
 ![bad quality of photo finescanner](https://static1.abbyy.com/abbyycommedia/25947/10.jpg)
@@ -146,13 +148,6 @@ Unsurprisingly, the quality of OCR is heavily dependent on the quality of docume
 To sum up: uniform non-white backgrounds, even natural lighting and steady hands will give you a picture that’s perfectly suitable for OCR. Modern cameras (and users) are very good, but we hope these tips you will help you move a few steps closer to perfection.
 
 ![TextGrabber FineScanner OCR](https://static1.abbyy.com/abbyycommedia/25948/11.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **App of the Week: Keeping Track of Your Tasks with Asana**
 
@@ -165,22 +160,15 @@ There has never been a shortage of task managing apps, but my app of choice is [
 2\. It takes just a few taps to add a new task: tap the **plus** icon, type in a descriptive name for the task, and then tap the **Create Task** button. You can always refine your task later by setting due dates, providing explanations, adding subtasks and links to projects, supplying tags, and setting priorities, either manually or automatically.  
 ![app asana control tasks ios android](https://static1.abbyy.com/abbyycommedia/25949/13.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 3\. Asana offers a neat and uncluttered UI on all of the supported platforms.
 
 Actually, Asana is actively evolving towards a project management tool with all the necessary PM features, including teams, discussions, projects, dashboards where you can add and remove project cards, etc. All the features are very well documented in detailed [Asana guides](https://asana.com/guide) (these are all in English, but it shouldn’t be a problem for most users). With all this horsepower under the hood, the app is equally useful as a personal task manager.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **First-Hand Experience:** Advice From a Colleague
@@ -201,10 +189,10 @@ We hope you find these tips useful. As always, your comments, ideas, and suggest
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -268,5 +256,21 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/new-current-state-of-vr-hardware/"><u>[New] Current State of VR Hardware</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/solved-dts-audio-is-unavailable-for-the-specified-audio-device/"><u>[Solved] DTS Audio Is Unavailable for the Specified Audio Device</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-the-evolution-of-video-capturing-insights-into-the-latest-apeaksoft-software/"><u>[Updated] 2024 Approved The Evolution of Video Capturing Insights Into the Latest Apeaksoft Software</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-frame-your-life-with-iphones-top-10-photo-rules/"><u>[Updated] Frame Your Life with iPhone's Top 10 Photo Rules</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlock-creative-potential-access-free-sfx-in-2024/"><u>[Updated] Unlock Creative Potential, Access Free SFX, In 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-your-gateway-to-enhanced-web-analytics-and-personalized-marketing/"><u>Cookiebot: Your Gateway to Enhanced Web Analytics and Personalized Marketing</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cutting-delivery-times-for-global-top-tier-brewery-karlstejn-group-with-advanced-abbyy-systems/"><u>Cutting Delivery Times for Global Top-Tier Brewery Karlstejn Group with Advanced ABBYY Systems</u></a></li>
+<li><a href="https://solve-info.techidaily.com/elevate-your-business-with-abbyy-flexicapture-for-a-digitally-advanced-future/"><u>Elevate Your Business with ABBYY FlexiCapture for a Digitally Advanced Future</u></a></li>
+<li><a href="https://solve-info.techidaily.com/experience-tailored-navigation-with-cookiebot-technology/"><u>Experience Tailored Navigation with Cookiebot Technology</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-lava-yuva-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Simple and Effective Ways to Change Your Country on YouTube App Of your Lava Yuva 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/leveraging-cookiebot-solutions-boosting-online-traffic-and-conversion-rates/"><u>Leveraging Cookiebot Solutions: Boosting Online Traffic & Conversion Rates</u></a></li>
+<li><a href="https://solve-info.techidaily.com/natasha-mann-leading-visionary-on-the-abbyy-board/"><u>Natasha Mann - Leading Visionary on the ABBYY Board</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-9-zte-blade-a73-5g-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>Top 9 ZTE Blade A73 5G Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-tips-resolving-acrocefexe-crashes-effectively/"><u>Troubleshooting Tips: Resolving acrocef.exe Crashes Effectively</u></a></li>
+</ul></div>
 

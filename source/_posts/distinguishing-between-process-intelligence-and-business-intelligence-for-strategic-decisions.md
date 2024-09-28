@@ -1,7 +1,7 @@
 ---
 title: Distinguishing Between Process Intelligence and Business Intelligence for Strategic Decisions
-date: 2024-09-20T16:06:19.329Z
-updated: 2024-09-23T17:15:33.376Z
+date: 2024-09-22T20:30:16.848Z
+updated: 2024-09-27T20:13:54.551Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/48994c9ff35faf512b4c69833faf0e7ff28b80b0df78e2f2b0d58f413fb2991f.jpg
@@ -62,31 +62,17 @@ Was BI Ihnen nicht sagen kann, zumindest nicht ohne einen großen Aufwand an ben
 
 Können Sie beispielsweise feststellen, ob die Fälle, in denen bestimmte Verkäufer die höchste Anzahl von Aufträgen erhielten, mit effizienten Kundeninteraktionen zusammenfielen, bei denen Anfragen umgehend bearbeitet wurden? Und können Sie umgekehrt feststellen, ob niedrige Auftragsraten mit langsamen Reaktionszeiten oder möglicherweise übersehenen Kundenanfragen korrelierten, bei denen der Versuch komplett ignoriert wurde? Hier versagt BI, da sie nicht in der Lage ist, diese Verbindungen herzustellen und aufzudecken.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Hauptunterschiede zwischen Process Intelligence und Business Intelligence
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Schwerpunkt
 
 **Process Intelligence** konzentriert sich auf die Analyse und Optimierung von Geschäftsprozessen, wobei der gesamte Prozesslebenszyklus betrachtet wird. **Business Intelligence** konzentriert sich auf die eingehende Analyse einzelner Prozessschritte.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Datenquellen
@@ -102,10 +88,10 @@ Können Sie beispielsweise feststellen, ob die Fälle, in denen bestimmte Verkä
 Zu den Tools von **Process Intelligence** gehören Process Mining, Task Mining, Analytik, Überwachung, Vorhersage und Simulation. Tools für **Business Intelligence** sind in der Regel Dashboards, Berichte, Datenanalysen und andere Visualisierungsfunktionen.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Wesentliche Gemeinsamkeiten zwischen Process Intelligence und Business Intelligence
@@ -113,6 +99,13 @@ Zu den Tools von **Process Intelligence** gehören Process Mining, Task Mining, 
 Process Intelligence und Business Intelligence weisen durchaus Ähnlichkeiten auf: Beide nutzen Unternehmensdaten zur visuellen Darstellung von Erkenntnissen, die das Management, die Analyse und die Entscheidungsprozesse unterstützen. Dieselben Data Warehouses können sowohl in PI- als auch in BI-Tools genutzt werden, die gewonnenen Erkenntnisse variieren jedoch je nach den Fähigkeiten und Einschränkungen der jeweiligen Plattform. Dieses Wissen ist sowohl für Studienanfänger als auch für Fachleute von grundlegender Bedeutung, denn es bildet die Grundlage für[informierte Entscheidungen und die Optimierung von Geschäftsabläufen](https://tools.techidaily.com/abbyy/products/) in einer datengesteuerten Welt.
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/process-intelligence-vs-business-intelligence/process-intelligence-and-business-intelligence-differences-and-similarities-de.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Process Intelligence und Business Intelligence: Was ist am besten?
 
@@ -125,6 +118,13 @@ Für diejenigen, die neu im Bereich Process Intelligence und Process Mining sind
 [Process Mining](https://tools.techidaily.com/abbyy/products/) [Intelligente Automatisierung](https://tools.techidaily.com/abbyy/products/) [Digitale Transformation](https://tools.techidaily.com/abbyy/products/) 
 
 ![Scott Opitz ABBYY](https://static1.abbyy.com/abbyycommedia/25562/02a-scottopitz-99x99.png)
+
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Scott Opitz
 
@@ -197,5 +197,26 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-unlocking-whatsapps-vocal-messaging-secrets/"><u>[Updated] 2024 Approved Unlocking WhatsApp's Vocal Messaging Secrets</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-begin-webcam-footage-recording-with-vlc-for-2024/"><u>[Updated] Begin Webcam Footage Recording with VLC for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-macpc-vmix-bridge-software/"><u>[Updated] MacPC VMix Bridge Software</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-fb-chronicles-the-hidden-viewer/"><u>2024 Approved FB Chronicles The Hidden Viewer</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-guidelines-for-accurate-dating-of-digital-pictures/"><u>2024 Approved Guidelines for Accurate Dating of Digital Pictures</u></a></li>
+<li><a href="https://solve-info.techidaily.com/abbyy-solutions-mastering-photo-editing-barcode-scanning-and-social-media-integration-with-advanced-currency-tools/"><u>ABBYY Solutions: Mastering Photo Editing, Barcode Scanning & Social Media Integration with Advanced Currency Tools</u></a></li>
+<li><a href="https://solve-info.techidaily.com/abbyy-welcomes-paul-nizov-as-their-latest-appointment-chief-information-security-officer/"><u>ABBYY Welcomes Paul Nizov as Their Latest Appointment: Chief Information Security Officer</u></a></li>
+<li><a href="https://solve-info.techidaily.com/abbyys-revolutionary-approach-zur-dokumentenverarbeitung-und-kategorisierung/"><u>ABBYY's Revolutionary Approach Zur Dokumentenverarbeitung Und Kategorisierung</u></a></li>
+<li><a href="https://solve-info.techidaily.com/boost-efficiency-through-customized-artificial-intelligence-frameworks/"><u>Boost Efficiency Through Customized Artificial Intelligence Frameworks</u></a></li>
+<li><a href="https://solve-info.techidaily.com/boost-your-site-with-cookiebot-technology-tailored-visitor-insights-and-personalization/"><u>Boost Your Site with Cookiebot Technology: Tailored Visitor Insights and Personalization</u></a></li>
+<li><a href="https://solve-info.techidaily.com/boost-your-sites-traffic-with-advanced-cookiebot-technology/"><u>Boost Your Site's Traffic with Advanced Cookiebot Technology</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-driven-data-collection-and-user-tracking-solutions/"><u>Cookiebot-Driven Data Collection and User Tracking Solutions</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-driven-data-collection-optimizing-user-experience/"><u>Cookiebot-Driven Data Collection: Optimizing User Experience</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-driven-insights-advanced-analytics-powering-your-business-intelligence/"><u>Cookiebot-Driven Insights: Advanced Analytics Powering Your Business Intelligence</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-apple-iphone-13-pro-to-roku-drfone-by-drfone-ios/"><u>How to Mirror Apple iPhone 13 Pro to Roku? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-vivo-v29-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your Vivo V29 | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-game-changing-displays-the-creme-de-la-creme-of-4k-monitors/"><u>In 2024, Game-Changing Displays The Crème De La Crème of 4K Monitors</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-apps-from-oppo-a18-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Apps from Oppo A18 to Another | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unlocking-your-audience-youtube-subscriber-insights-for-2024/"><u>Unlocking Your Audience YouTube Subscriber Insights for 2024</u></a></li>
+</ul></div>
 

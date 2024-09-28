@@ -1,7 +1,7 @@
 ---
 title: ABBYY at Handelsblatt's Annual Conference - Focus on Banking Technology
-date: 2024-09-19T16:26:57.215Z
-updated: 2024-09-23T17:08:55.487Z
+date: 2024-09-20T23:27:33.323Z
+updated: 2024-09-28T00:18:55.678Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b7b45cfdc35344213e5101907c39a4f8622c548d37868126691840befd4a8d38.jpg
@@ -72,12 +72,39 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-capture-every-detail-on-mac-free/"><u>[New] Capture Every Detail on Mac - Free</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-mobile-media-posting-videos-not-retweets-for-2024/"><u>[Updated] Mobile Media Posting Videos, Not Retweets for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-exclusive-selection-optimal-drones-available/"><u>2024 Approved Exclusive Selection Optimal Drones Available</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-navigate-the-digital-world-prime-twitters-converters/"><u>2024 Approved Navigate the Digital World Prime Twitters Converters</u></a></li>
+<li><a href="https://solve-info.techidaily.com/ebook-by-abby/"><u>保険金要求手続き管理: 最適な効果的手法はどこで学べますか？ | eBook by ABBY</u></a></li>
+<li><a href="https://solve-info.techidaily.com/discover-abbyys-best-digital-intelligence-narratives-from-202-2-top-six-picks-unveiled-in-our-latest-post/"><u>Discover ABBYY's Best Digital Intelligence Narratives From 202 2 - Top Six Picks Unveiled in Our Latest Post!</u></a></li>
+<li><a href="https://solve-info.techidaily.com/discover-culinary-convenience-with-abbyys-recipe-digitization-and-photo-enchantment-featured-on-our-blog/"><u>Discover Culinary Convenience with ABBYY's Recipe Digitization and Photo Enchantment - Featured on Our Blog</u></a></li>
+<li><a href="https://solve-info.techidaily.com/distinguishing-between-process-intelligence-and-business-intelligence-for-strategic-decisions/"><u>Distinguishing Between Process Intelligence and Business Intelligence for Strategic Decisions</u></a></li>
+<li><a href="https://solve-info.techidaily.com/driving-engagement-through-smart-data-insights-enhanced-by-cookiebot-technology/"><u>Driving Engagement Through Smart Data Insights: Enhanced by Cookiebot Technology</u></a></li>
+<li><a href="https://solve-info.techidaily.com/elevate-user-experience-with-the-precision-of-cookiebot-technology-integration/"><u>Elevate User Experience with the Precision of Cookiebot Technology Integration</u></a></li>
+<li><a href="https://solve-info.techidaily.com/elevate-your-web-tracking-optimize-seo-using-the-power-of-cookiebot-technology/"><u>Elevate Your Web Tracking: Optimize SEO Using the Power of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-info.techidaily.com/empower-your-site-with-cookiebot-technology-advanced-analytics-and-targeting-made-simple/"><u>Empower Your Site with Cookiebot Technology: Advanced Analytics and Targeting Made Simple</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhance-online-engagement-with-cookiebot-technology/"><u>Enhance Online Engagement with Cookiebot Technology</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-samsung-galaxy-a54-5g-to-mac-drfone-by-drfone-android/"><u>How to Mirror Samsung Galaxy A54 5G to Mac? | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-copyright-conduct-for-instagram-artists/"><u>In 2024, Copyright Conduct for Instagram Artists</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-creatives-making-marvel-virtual-worlds-vivid/"><u>In 2024, Creatives Making Marvel Virtual Worlds Vivid</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/resolving-dnssddll-is-missing-errors-a-step-by-step-guide/"><u>Resolving 'dnssd.dll Is Missing' Errors: A Step-by-Step Guide</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1723862786377-title-in-depth-performance-analysis-of-the-asus-rog-strix-xg27acs-at-an-unmatched-180hz-for-gamers/"><u>Title: In-Depth Performance Analysis of the Asus ROG Strix XG27ACS at an Unmatched 180Hz for Gamers</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-conversation-guide-for-podcast-enthusiasts-for-2024/"><u>Updated Conversation Guide for Podcast Enthusiasts for 2024</u></a></li>
+</ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
