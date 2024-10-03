@@ -1,7 +1,7 @@
 ---
 title: Cutting Delivery Times for Global Top-Tier Brewery Karlstejn Group with Advanced ABBYY Systems
-date: 2024-09-11T19:11:25.735Z
-updated: 2024-09-14T17:51:42.811Z
+date: 2024-10-01T03:41:41.049Z
+updated: 2024-10-03T09:36:52.589Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ecd5393b4b11cd27ce9b151fec19432ec4c563d2b818d2405502179fc7ce1c3d.jpg
@@ -19,11 +19,25 @@ Transportation & Logistics | Food and Beverage | Forms Processing | Document Pro
 
 [お客様のストーリーに戻る](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 世界有数のビール会社 カールスバーグ・グループ、ABBYYのソリューションにより、製品を出荷するまでの時間を短縮
 
 食品および飲料 | 各種帳票処理／データキャプチャ 
 
 ![Costain Transforms Its Finance Department Using ABBYY Content Intelligence](https://static4.abbyy.com/abbyycommedia/36081/15063-carlsberg-556x303.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### お客様の概要
 
@@ -83,11 +97,25 @@ ABBYYのIDPソリューションを納品書のスキャンプロセスに導入
 
 [![Download the PDF version](https://static4.abbyy.com/abbyycommedia/36083/15063-carlsberg-360x162.png)](https://static2.abbyy.com/abbyycommedia/36785/carlsberg-group-breweries-case-study-ja.pdf "PDF版") [PDF版](https://static2.abbyy.com/abbyycommedia/36785/carlsberg-group-breweries-case-study-ja.pdf "PDF版") 
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [資料を読む](https://static2.abbyy.com/abbyycommedia/36785/carlsberg-group-breweries-case-study-ja.pdf "PDF版") 
 
 [More about ABBYY](https://tools.techidaily.com/abbyy/products/) 
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Ready to talk to an expert?
 
@@ -108,12 +136,19 @@ We'd love to help you along your automation journey.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120862/26400?prodsku=Saturn" target="_top" id="2120862">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120862" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120862/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://win-howtos.techidaily.com/g-is-the-acceleration-due-to-gravity-approximately-981-ms2/"><u> (G ) Is the Acceleration Due to Gravity (Approximately 9.81 M/S (^2 ))</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-reviewing-the-future-moto-z2s-intelligent-features/"><u>[New] 2024 Approved Reviewing The Future Moto Z2's Intelligent Features</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-educators-essentials-the-leading-10-devices-for-lecture-recording/"><u>[Updated] 2024 Approved Educators' Essentials The Leading 10 Devices for Lecture Recording</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-elevate-your-online-sound-experience-with-these-5-steps/"><u>[Updated] 2024 Approved Elevate Your Online Sound Experience with These 5 Steps</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-honor-90-pro-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Honor 90 Pro Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/mastering-the-procurement-and-payments-journey-a-definitive-guide/"><u>Mastering the Procurement and Payments Journey: A Definitive Guide</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/next-gen-storytelling-10-sci-fi-films-transporting-you-elsewhere/"><u>Next Gen Storytelling 10 Sci-Fi Films Transporting You Elsewhere</u></a></li>
+<li><a href="https://solve-info.techidaily.com/optimized-with-the-help-of-cookiebot-enhanced-website-analytics/"><u>Optimized with the Help of Cookiebot: Enhanced Website Analytics</u></a></li>
+<li><a href="https://solve-info.techidaily.com/revolutionizing-document-automation-through-abbyy-vance-harnessing-power-of-computer-vision-and-large-language-models/"><u>Revolutionizing Document Automation Through ABBYY Vance - Harnessing Power of Computer Vision and Large Language Models</u></a></li>
+<li><a href="https://solve-info.techidaily.com/revolutionizing-public-sector-the-impact-of-artificer-intelligence-in-citizen-identification/"><u>Revolutionizing Public Sector: The Impact of Artificer Intelligence in Citizen Identification</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/snapcutxp-review-complete-evaluation-of-video-editing-software-for-2024/"><u>SnapCutXp Review – Complete Evaluation of Video Editing Software for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/be-monetization-tips-how-many-views-do-you-really-need-to-make-money/"><u>YouTube Monetization Tips How Many Views Do You Really Need to Make Money</u></a></li>
+</ul></div>
 

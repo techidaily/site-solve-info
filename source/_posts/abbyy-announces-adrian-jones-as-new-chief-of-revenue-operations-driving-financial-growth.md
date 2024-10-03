@@ -1,7 +1,7 @@
 ---
 title: ABBYY Announces Adrian Jones as New Chief of Revenue Operations, Driving Financial Growth
-date: 2024-09-24T01:10:38.640Z
-updated: 2024-09-28T01:45:22.956Z
+date: 2024-10-02T03:17:36.055Z
+updated: 2024-10-03T10:01:59.190Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f0922cdea4398af9eb93c3915c9d932ac3a495368c2166a8e69e3bccbb692700.jpg
@@ -32,10 +32,10 @@ Jones ist derzeit als Senior Advisor für das Private-Equity-Unternehmen Warburg
 1 IDC, Worldwide Intelligent Process Automation Market Shares, 2020: Solid Growth Across Cloud Segments, Doc # US47469221, June 2021.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Über ABBYY
@@ -45,10 +45,10 @@ ABBYY ermöglicht es, mit seiner Digital Intelligence Plattform die gesamten Ges
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Pressekontakt:
@@ -56,10 +56,10 @@ ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeich
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Bianca Stupp
@@ -85,22 +85,18 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-a-comprehensible-guide-on-saving-instagram-story-content-for-2024/"><u>[New] A Comprehensible Guide on Saving Instagram Story Content for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-leading-5-monitors-unleashing-full-spectrum-colors/"><u>[Updated] In 2024, Leading 5 Monitors Unleashing Full Spectrum Colors</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-innovative-approaches-to-network-broadcast-with-vlc/"><u>[Updated] Innovative Approaches to Network Broadcast with VLC</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/3-ways-to-unlock-your-iphone-14-plus-for-free-by-drfone-ios/"><u>3 Ways to Unlock Your iPhone 14 Plus for Free</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-personalization-enhancing-your-websites-user-experience/"><u>Cookiebot-Driven Personalization: Enhancing Your Website's User Experience</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-solutions-for-enhanced-user-engagement/"><u>Cookiebot-Driven Solutions for Enhanced User Engagement</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-success-optimizing-your-website-with-advanced-analytics/"><u>Cookiebot-Driven Success: Optimizing Your Website with Advanced Analytics</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enabled-enhancing-your-websites-engagement-and-conversion-rates/"><u>Cookiebot-Enabled: Enhancing Your Website's Engagement & Conversion Rates</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-user-experience-tailored-content-and-targeting/"><u>Cookiebot-Enhanced User Experience: Tailored Content & Targeting</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-fueled-personalization-enhance-user-experience-with-smart-marketing-automation/"><u>Cookiebot-Fueled Personalization: Enhance User Experience with Smart Marketing Automation</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-user-experience-through-smart-analytics/"><u>Cookiebot: Enhanced User Experience Through Smart Analytics</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhancing-user-experience-with-personalization-and-data-driven-marketing/"><u>Cookiebot: Enhancing User Experience with Personalization and Data-Driven Marketing</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/deciphering-and-crafting-accurate-slug-line-annotations-for-2024/"><u>Deciphering and Crafting Accurate Slug Line Annotations for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/film-lovers-ultimate-selection-of-stop-motion-works-for-2024/"><u>Film Lovers' Ultimate Selection of Stop-Motion Works for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-nubia-z50s-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Nubia Z50S Pro | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-transform-your-account-with-these-10-must-have-ig-tools/"><u>In 2024, Transform Your Account with These 10 Must-Have IG Tools</u></a></li>
-<li><a href="https://win-forum.techidaily.com/solving-the-windows-class-registration-issue-a-step-by-step-guide/"><u>Solving the Windows Class Registration Issue: A Step-by-Step Guide</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-seamlessly-stream-and-save-youtube-lives-from-every-device/"><u>[New] Seamlessly Stream and Save YouTube Lives From Every Device</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-blueprint-of-successful-video-endorsements/"><u>[New] The Blueprint of Successful Video Endorsements</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-step-by-step-on-streaming-google-meet-directly-to-youtube-channel-for-2024/"><u>[Updated] Step by Step on Streaming Google Meet Directly to YouTube Channel for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-lenovos-secrets-to-effortless-screenshots/"><u>2024 Approved Lenovo's Secrets to Effortless Screenshots</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/breaking-down-the-mechanics-of-meme-dominance-for-2024/"><u>Breaking Down the Mechanics of Meme Dominance for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/five-steps-to-diagnose-and-repair-recurring-mouse-disconnection-glitches/"><u>Five Steps to Diagnose and Repair Recurring Mouse Disconnection Glitches</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-compreenas-a-step-by-step-process-to-apply-luts-in-photoshop-cc/"><u>In 2024, Compreenas a Step-by-Step Process to Apply LUTs in Photoshop CC</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/movavi-prodotto-mov-da-file-mp4mpeg-4-gratuito-e-online-trasformazione-facile/"><u>Movavi Prodotto MOV Da File MP4/MPEG-4 Gratuito E Online: Trasformazione Facile</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/navigating-the-world-of-hardware-with-toms-expertise-comprehensive-guides-and-reviews/"><u>Navigating the World of Hardware with Tom’s Expertise - Comprehensive Guides & Reviews</u></a></li>
+<li><a href="https://solve-info.techidaily.com/transform-your-videos-comprehensive-tutorial-on-changing-ogm-to-mp4/"><u>Transform Your Videos: Comprehensive Tutorial on Changing OGM to MP4</u></a></li>
+<li><a href="https://solve-info.techidaily.com/trouble-free-guide-watching-dvd-movies-on-your-pc/"><u>Trouble-Free Guide: Watching DVD Movies on Your PC</u></a></li>
+<li><a href="https://solve-info.techidaily.com/trouble-free-techniques-for-adding-mkv-videos-into-sony-vegas/"><u>Trouble-Free Techniques for Adding MKV Videos Into Sony Vegas</u></a></li>
+<li><a href="https://solve-info.techidaily.com/troubleshooting-downloads-how-to-successfully-retrieve-abema-previously-abematv-streaming-content/"><u>Troubleshooting Downloads: How to Successfully Retrieve ABEMA (Previously AbemaTV) Streaming Content</u></a></li>
 </ul></div>
 

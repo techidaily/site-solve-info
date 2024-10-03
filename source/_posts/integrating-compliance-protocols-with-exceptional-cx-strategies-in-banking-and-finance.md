@@ -1,7 +1,7 @@
 ---
 title: Integrating Compliance Protocols with Exceptional CX Strategies in Banking & Finance
-date: 2024-09-25T19:28:02.099Z
-updated: 2024-09-27T17:25:57.238Z
+date: 2024-09-30T20:40:40.591Z
+updated: 2024-10-02T21:30:04.802Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/010139d6077f90333f3025af8c182332c9900266fd1f6067fe122889069013d2.jpg
@@ -25,6 +25,20 @@ Senior Director, Chief Compliance Officer, **Intercontinental Exchange**
 
 ![John Fick 88x88](https://static2.abbyy.com/abbyycommedia/34665/johnfick-88x88.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### John Fick
 
 Vice President & Manager, Fraud and Investigations, **Columbia Bank**  
@@ -32,10 +46,10 @@ Vice President & Manager, Fraud and Investigations, **Columbia Bank**
 ![Evan Gordon 88x88](https://static1.abbyy.com/abbyycommedia/34664/evangordon-88x88.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Evan Gordon
@@ -45,39 +59,19 @@ Chief Compliance Officer, **APG**
 ![Cherylchiodi 99X99](https://static4.abbyy.com/abbyycommedia/31818/cherylchiodi-99x99.png)
 
 <!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Cheryl Chiodi
 
 Solutions Marketing Manager, Financial Services, **ABBYY**  
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Overview
 
 Optimizing customer experience is essential for financial institutions going into 2022\. Unfortunately, some of the actions that reduce friction for customers can increase risk for your business. Finding a balance between compliance, risk, and optimized CX is tricky. But it's one of the key challenges for financial institutions as they look to the future.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Watch it now!
 
@@ -88,19 +82,26 @@ At a recent virtual roundtable, panelists in the financial services space came t
 * Leveraging Digital Intelligence to improve the customer experience.
 * Using automation to find key areas of vulnerability and process bottlenecks.
 
-### Fill in the form to register for the webinar now
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+### Fill in the form to register for the webinar now
 
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Thank you for registering!
 
@@ -109,13 +110,6 @@ All personal information collected via this method is under full scope of all pr
 Please check your inbox, we have sent you a confirmation email.
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
@@ -182,18 +176,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-ascend-youtube-rankings-through-optimal-dating/"><u>[New] 2024 Approved Ascend YouTube Rankings Through Optimal Dating</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-perfecting-your-podcast-top-5-mac-friendly-recorder-recommendations/"><u>[Updated] In 2024, Perfecting Your Podcast Top 5 Mac-Friendly Recorder Recommendations</u></a></li>
-<li><a href="https://solve-info.techidaily.com/bypassing-powerpoints-video-not-included-error-simple-no-cost-fixes-revealed/"><u>Bypassing PowerPoint’s 'Video Not Included Error: Simple, No-Cost Fixes Revealed!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/comprehensive-guide-to-upcoming-anime-releases-top-picks-and-previews/"><u>Comprehensive Guide to Upcoming Anime Releases: Top Picks and Previews</u></a></li>
-<li><a href="https://solve-info.techidaily.com/converting-audio-files-understanding-the-distinct-features-of-m4a-and-m4b-a-comprehensive-guide/"><u>Converting Audio Files: Understanding the Distinct Features of M4A & M4B - A Comprehensive Guide</u></a></li>
-<li><a href="https://discover-best.techidaily.com/cookiebot-enabled-enhance-your-sites-analytics-and-personalization/"><u>Cookiebot-Enabled: Enhance Your Site's Analytics and Personalization</u></a></li>
-<li><a href="https://solve-info.techidaily.com/discover-the-best-places-to-legally-get-your-favorite-cartoon-movies-now-download-and-enjoy-anywhere/"><u>Discover the Best Places to Legally Get Your Favorite Cartoon Movies - Now, Download & Enjoy Anywhere!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/dsdflacwavmp3/"><u>DSD形式の高解像度オーディオをFLAC/WAV/MP3に簡単に変換するソフトウェアガイド</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-vivo-y27-4g-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Vivo Y27 4G? | Dr.fone</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-unlock-full-potential-of-canon-cams-with-gratuitous-and-fee-based-luts/"><u>In 2024, Unlock Full Potential of Canon Cams with Gratuitous & Fee-Based LUTs</u></a></li>
-<li><a href="https://win11.techidaily.com/lowering-pc-resource-demand-fixing-wmi-usage-issues/"><u>Lowering PC Resource Demand: Fixing WMI Usage Issues</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-free-filmora-without-the-risk-safe-and-legal-alternatives/"><u>New 2024 Approved Free Filmora Without the Risk Safe and Legal Alternatives</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/troubleshooting-steps-for-preventing-futbol-manager-2019-from-crashing-down/"><u>Troubleshooting Steps for Preventing FUTBOL MANAGER 2019 From Crashing Down</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-free-youtube-revenue-predictor-tools/"><u>[New] 2024 Approved Free YouTube Revenue Predictor Tools</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-webcam-selection-guide-the-10-best-picks-unveiled-for-2024/"><u>[New] Webcam Selection Guide The 10 Best Picks Unveiled for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-quick-tips-for-transforming-pinterest-videos-into-mp3s/"><u>[Updated] Quick Tips for Transforming Pinterest Videos Into MP3s</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-comprehensive-powerdirector-24-analysis-and-tutorial/"><u>2024 Approved Comprehensive PowerDirector '24 Analysis and Tutorial</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-new-face-of-sony-updates-to-s6500-blu-rayhd-player/"><u>2024 Approved The New Face of Sony Updates to S6500 Blu-Ray/HD Player</u></a></li>
+<li><a href="https://solve-info.techidaily.com/abbyy-als-losung-zur-automatisierung-von-rechtspapierverarbeitung-fortschrittliche-rechnungsmanagement-systeme-fur-rechtsanwalte/"><u>ABBYY Als Lösung Zur Automatisierung Von Rechtspapierverarbeitung – Fortschrittliche Rechnungsmanagement-Systeme Für Rechtsanwälte</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/diy-solutions-and-software-secrets-from-the-pros-at-stellar/"><u>DIY Solutions and Software Secrets From the Pros at Stellar</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-se-drfone-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone SE? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/integrating-twitter-and-facebook-with-ease/"><u>Integrating Twitter and Facebook with Ease</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/top-rated-protective-covers-for-samsung-galaxy-z-flip-6/"><u>Top-Rated Protective Covers for Samsung Galaxy Z Flip 6</u></a></li>
+<li><a href="https://solve-info.techidaily.com/untapped-opportunities-how-british-enterprises-can-harness-automation-advantages-according-to-abbyy-insights/"><u>Untapped Opportunities: How British Enterprises Can Harness Automation Advantages, According to ABBYY Insights</u></a></li>
+<li><a href="https://solve-info.techidaily.com/verbessern-sie-die-sicherheit-von-dokumenten-bei-der-eingabe-mit-tangro-hochladen-per-process-security/"><u>Verbessern Sie Die Sicherheit Von Dokumenten Bei Der Eingabe Mit Tangro® - Hochladen per Process Security</u></a></li>
+<li><a href="https://solve-info.techidaily.com/warum-fehlt-es-bei-deutschen-firmen-oftmals-an-einem-verstandnis-fur-rpa-was-zu-misserfolgen-fuhrt-insights-von-abbyy/"><u>Warum Fehlt Es Bei Deutschen Firmen Oftmals an Einem Verständnis Für RPA, Was Zu Misserfolgen Führt – Insights Von ABBYY</u></a></li>
+<li><a href="https://solve-info.techidaily.com/abbyycfo/"><u>ジェームズ・ライター氏がABBYYの新しいCFOとして昇格</u></a></li>
 </ul></div>
 

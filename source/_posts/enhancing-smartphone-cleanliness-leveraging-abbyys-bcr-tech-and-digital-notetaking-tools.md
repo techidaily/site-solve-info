@@ -1,7 +1,7 @@
 ---
 title: "Enhancing Smartphone Cleanliness: Leveraging ABBYY's BCR Tech & Digital Notetaking Tools"
-date: 2024-09-21T02:54:59.836Z
-updated: 2024-09-27T17:52:36.810Z
+date: 2024-09-30T01:10:03.093Z
+updated: 2024-10-03T01:21:54.807Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735c9f349a630ef1e39c65837d.jpg
@@ -18,13 +18,6 @@ December 12, 2022
 ![](https://static1.abbyy.com/abbyycommedia/26767/mobile-monday-74.jpg) 
 
 Your smartphone is a magnet for germs. Today we’ll show you how to properly clean it from dirt and bacteria. We’ll also show you the automatic address and phone number correction feature in BCR and a superb note-taking app.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Smartphone Tip: Cleaning Your Phone**
 
@@ -52,13 +45,6 @@ Use the toothpick again to clean the charger port and the jack socket. Insert it
 
 ![dust in a smartphone](https://static1.abbyy.com/abbyycommedia/26768/toothpick.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Don’t worry if you do touch the contact points — as long as it’s done gently, there shouldn’t be a problem.
 
 Sometimes, due to the build-up of dirt and dust in the charger port, your phone may begin to have trouble charging, and eventually, stop recharging completely. If you do notice this problem, it may be a good idea to try and clean it yourself instead of going to a phone repair place, where they will often charge you their standard repair rates even if all they have done is clean out the charger port.
@@ -70,6 +56,19 @@ The hardest parts to clean are the speaker and microphone covers. If you try to 
 Next, take the lint-free cloth and dip one of its corners into the distilled water (distilled is preferable to normal because the latter can leave stains). Wring out the excess water so that the cloth is only slightly damp, then use it to wipe both the front and the back of the phone, as well as the sides. Then use a dry part of the cloth to wipe away any remaining smudges.
 
 ![clean screen](https://static1.abbyy.com/abbyycommedia/26769/tryapochka.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Now comes the most important part — getting rid of bacteria, and this is where the alcohol, vinegar and sanitizing wipes come in. If you are going to use vinegar, mix it with distilled water in a 1-to-1 ratio. Sanitizing wipes, on the other hand, are often oversaturated with alcohol, so best wring them out a little.
 
@@ -87,6 +86,13 @@ Now polish the screen using a soft cloth and apply the protective covering.
 
 [Last year](https://tools.techidaily.com/abbyy/products/), we showed you how to optimize your phone’s storage. Now, you can keep your mobile device healthy both on the inside _and_ on the outside!
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **ABBYY Tip: Automatic Address and Telephone Number Formatting in Business Card Reader for iOS**
 
 Frequent business travelers will have cards from business partners from all over the world. On some cards, important details like area or postal codes may be missing. [Business Card Reader for iOS](https://bcrfree.app.link/mobilemonday) can easily fill in the missing data. It will even correct spelling mistakes in the address, so you won’t have to do that manually. Poorly printed characters should not be a problem either — a phone number initially captured as something like (495) 123\_4)5\*67 will be quickly restored to +7 495 123 45 67.
@@ -98,10 +104,16 @@ Sometimes, to reach a specific contact in a company, you need to dial an extensi
 Download [Business Card Reader for iOS](https://bcrfree.app.link/mobilemonday) to have important contact information at your fingertips.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **App of the Week: GoodNotes 5**
@@ -119,10 +131,10 @@ That’s all, folks, see you next time!
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -188,24 +200,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-expert-strategies-for-effective-angle-rotations-on-android/"><u>[New] Expert Strategies for Effective Angle Rotations on Android</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-the-essential-guide-to-mc-villages-houses/"><u>[New] In 2024, The Essential Guide to MC Villages' Houses</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-streamlining-audio-exploration-how-to-add-apple-podcasts-to-your-device/"><u>[New] Streamlining Audio Exploration How to Add Apple Podcasts to Your Device</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-livestream-quality-decision-opt-for-streamlabs-or-obs-for-2024/"><u>[Updated] Livestream Quality Decision Opt for Streamlabs or OBS for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/jpeg/"><u>「JPEG画像の適切なサイズにコンバートしてディスク容量を減らす手順」</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-a-step-by-step-guide-to-professional-gopro-footage/"><u>2024 Approved A Step-by-Step Guide to Professional Gopro Footage</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-infinix-note-30-vip-racing-edition-by-drfone-android/"><u>Complete Review & Guide to Techeligible FRP Bypass and More For Infinix Note 30 VIP Racing Edition</u></a></li>
-<li><a href="https://solve-info.techidaily.com/download-your-own-portable-version-freeze-frame-edition-on-the-move-viewing/"><u>Download Your Own Portable Version: Freeze Frame Edition - On-the-Move Viewing</u></a></li>
-<li><a href="https://solve-info.techidaily.com/effortless-conversion-of-vob-video-files-to-avi-for-windows-users/"><u>Effortless Conversion of VOB Video Files to AVI for Windows Users</u></a></li>
-<li><a href="https://solve-info.techidaily.com/effortless-format-transformation-convert-3gp-videos-to-popular-file-types-mp4-avi-mkv-with-our-advanced-converter/"><u>Effortless Format Transformation: Convert 3GP Videos to Popular File Types (MP4, AVI, MKV) with Our Advanced Converter</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/elevating-visual-experience-youtubes-quality-boosting-guide/"><u>Elevating Visual Experience YouTube's Quality Boosting Guide</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/flash-forward-quick-youtube-playlists-distribution-for-2024/"><u>Flash Forward Quick Youtube Playlists Distribution for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/get-the-latest-version-of-epson-stylus-photo-es-400-scanner-driver-for-windows-machines/"><u>Get the Latest Version of Epson Stylus Photo ES-400 Scanner Driver for Windows Machines</u></a></li>
-<li><a href="https://solve-info.techidaily.com/guide-two-hassle-free-ways-to-insert-watermarks-into-youtube-content/"><u>Guide: Two Hassle-Free Ways to Insert Watermarks Into YouTube Content</u></a></li>
-<li><a href="https://solve-info.techidaily.com/how-to-successfully-play-mp4-videos-on-sony-playstation-5-with-easy-solutions/"><u>How to Successfully Play MP4 Videos on Sony PlayStation 5 with Easy Solutions!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/missing-page-alert-retrieved-with-ease-using-wonderfoxs-solutions/"><u>Missing Page Alert! Retrieved with Ease Using WonderFox's Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/obstop-5/"><u>OBSと連携し、最高の動画編集ソフトウェアをご紹介！Top 5リスト</u></a></li>
-<li><a href="https://solve-info.techidaily.com/protecting-private-viewing-how-to-enable-password-security-on-kodi-platform/"><u>Protecting Private Viewing: How To Enable Password Security on Kodi Platform</u></a></li>
-<li><a href="https://windows11.techidaily.com/quick-fix-tips-for-windows-camera-glitches/"><u>Quick-Fix Tips for Windows Camera Glitches</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-zoom-mastering-virtual-meeting-planning/"><u>[New] 2024 Approved Zoom Mastering Virtual Meeting Planning</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-perfect-harmony-how-to-add-audio-content-in-adobe-premiere/"><u>[New] Perfect Harmony How To Add Audio Content in Adobe Premiere</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-create-professional-movies-on-youtube-quickly-for-2024/"><u>[Updated] Create Professional Movies on YouTube Quickly for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/bypassing-the-hurdle-detailed-instructions-to-fix-error-0x800f081f-on-net-framework-v35-installation/"><u>Bypassing the Hurdle: Detailed Instructions to Fix Error 0X800F081F on .NET Framework v3.5 Installation</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhancing-client-interaction-through-ai-transforming-the-customer-journey-with-automation/"><u>Enhancing Client Interaction Through AI: Transforming the Customer Journey with Automation</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/1723262377399-enhancing-old-pcs-the-persistent-trend-of-modifying-agp-slots-for-new-gpus-and-improved-networking-discover-the-top-2-adapters/"><u>Enhancing Old PCs: The Persistent Trend of Modifying AGP Slots for New GPUs & Improved Networking - Discover the Top 2 Adapters</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhancing-site-performance-through-advanced-cookiebot-features/"><u>Enhancing Site Performance Through Advanced Cookiebot Features</u></a></li>
+<li><a href="https://solve-info.techidaily.com/experience-tailored-browsing-with-cookiebot-technology-driven-content/"><u>Experience Tailored Browsing with Cookiebot Technology Driven Content</u></a></li>
+<li><a href="https://solve-info.techidaily.com/expert-processing-partners-boosting-abbyy-advanced-functionality/"><u>Expert Processing Partners Boosting ABBYY Advanced Functionality</u></a></li>
+<li><a href="https://solve-info.techidaily.com/how-artificial-intelligence-boosts-roi-through-advanced-image-recognition-expert-advice-on-intelligent-capture-blog-by-abbyy/"><u>How Artificial Intelligence Boosts ROI Through Advanced Image Recognition - Expert Advice on Intelligent Capture | Blog by ABBYY</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>How to Detect and Stop mSpy from Spying on Your Apple iPhone 12 mini | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-mimicking-masterpieces-crafting-successful-parodies/"><u>In 2024, Mimicking Masterpieces Crafting Successful Parodies</u></a></li>
+<li><a href="https://solve-info.techidaily.com/introducing-neoml-abbyys-new-open-source-library-speeding-up-artifice-intelligence-innovation/"><u>Introducing NeoML: ABBYY's New Open Source Library Speeding Up Artifice Intelligence Innovation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-review-of-the-samsung-galaxy-s10-a-defining-high-end-smartphone-experience/"><u>The Ultimate Review of the Samsung Galaxy S10 - A Defining High-End Smartphone Experience</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/unlock-your-creative-potential-the-leading-12-sites-for-accessible-stock-photos/"><u>Unlock Your Creative Potential - The Leading 12 Sites for Accessible Stock Photos</u></a></li>
 </ul></div>
 

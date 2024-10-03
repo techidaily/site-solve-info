@@ -1,7 +1,7 @@
 ---
 title: Discover ABBYY's Best Digital Intelligence Narratives From 202 2 - Top Six Picks Unveiled in Our Latest Post!
-date: 2024-09-25T20:21:26.948Z
-updated: 2024-09-28T00:05:23.338Z
+date: 2024-09-26T09:21:37.046Z
+updated: 2024-10-03T03:38:49.675Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/eb6701eb360daf00501aea3027f5f407ca588034548873224d944d5de49dcde3.jpg
@@ -25,39 +25,32 @@ Here are our most interesting and favorite Digital Intelligence stories from 202
 
 ![digital transformation 2020](https://static1.abbyy.com/abbyycommedia/31574/blog-digital-intelligence-2-848x444.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 The opportunity for artificial intelligence (AI) is in targeting the end-to-end processing of documents for human-machine collaboration as an essential part of the customer journey. Customer acquisition and retention remain the essential drivers of insurance revenue and profit; however, knowing how to create experiences to acquire and keep customers happy remains challenging.
 
 A new breed of competitor—Insuretechs—target smart technologies at the customer experience and are disrupting the status quo for traditional insurers. What Fintechs did in consumer banking, Insuretechs are doing to transform insurance customer experiences. Artificial intelligence (AI) technologies show a lot of promise in transforming customer acquisition and retention, yet it’s all too easy to assume that better technologies can, in themselves, transform customer experience.
 
 [Read the article.](https://iireporter.com/the-human-touch-the-untapped-opportunity-for-making-ai-work-for-insurance/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Social Distancing Has Raised the Bar for the Digital Experience
 
 ![technology trends 2020](https://static1.abbyy.com/abbyycommedia/31572/blog-digital-intelligence-1-848x444.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 With social distancing measures in place and businesses across diverse industries that temporarily closed their store fronts, the digital experience has never been more critical for businesses and the customers who depend on them. Consumers develop brand loyalty and trust in accordance to the degree a company can best meet their needs—both in everyday circumstances and especially during a crisis. That makes it even more important for businesses to leverage [mobile capabilities](https://tools.techidaily.com/abbyy/products/) and optimize the digital experience across customer-facing operations now to serve consumer expectations. Companies that pivot the customer experience accordingly will be poised to emerge ahead of the curve in the post COVID-19 world.
 
 [Read the article.](https://www.cmswire.com/digital-experience/social-distancing-has-raised-the-bar-for-the-digital-experience/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Data Insight Plays a Key Role in How ABBYY Supplies Vital Pieces of the RPA Puzzle
@@ -77,10 +70,10 @@ COVID-19 is the defining event of 2020, and with it, ”social distancing” ent
 [Read the article.](https://www.kmworld.com/Articles/Editorial/ViewPoints/The-need-for-digital-intelligence-in-the-time-of-social-distancing--140797.aspx)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. Six Steps to Revive Your Digital Transformation Projects
@@ -90,6 +83,13 @@ COVID-19 is the defining event of 2020, and with it, ”social distancing” ent
 The pandemic shifted many IT resources toward business continuity efforts, and many workers and leaders reached the point where they were struggling to ramp up or resume digital transformation projects. Organizations looked to tap into the benefits attained from scaling end-to-end digital transformation but needed direction on the right strategies to accelerate higher-value initiatives. The challenges stem from a lack of understanding of business processes coupled with an inability to turn a company’s data into actionable, valuable information that drives strategic business decisions. ABBYY shared six fundamental steps to help implement digital transformation.
 
 [Read the article.](https://www.cmswire.com/leadership/6-steps-to-revive-your-digital-transformation-projects/)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 6\. Five Crucial Insurance Questions for the Post-COVID 'New Normal'
 
@@ -166,19 +166,21 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-grasping-the-full-potential-of-animoji-on-iphone-x/"><u>[New] Grasping the Full Potential of Animoji on iPhone X</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-essentials-of-using-igtv-effectively-and-efficiently/"><u>[Updated] 2024 Approved Essentials of Using IGTV Effectively and Efficiently</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-apex-design-studio-examination/"><u>[Updated] Apex Design Studio Examination</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/facebook-lite-video-downloading-made-easy-top-6-tools-of-2023/"><u>Facebook Lite Video Downloading Made Easy Top 6 Tools of 2023</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-infinix-zero-30-5g-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Infinix Zero 30 5G Current Location of a Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-lava-blaze-2-pro-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Lava Blaze 2 Pro to BlackBerry | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/leveraging-ai-and-analytics-for-boosting-staff-participation-and-commitment/"><u>Leveraging AI and Analytics for Boosting Staff Participation and Commitment</u></a></li>
-<li><a href="https://solve-info.techidaily.com/navigating-financial-turbulence-essential-digital-tactics-for-banking-success-with-insights-from-abbyy-leaders/"><u>Navigating Financial Turbulence: Essential Digital Tactics for Banking Success with Insights From ABBYY Leaders</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-the-nuances-of-japanese-characters/"><u>Navigating the Nuances of Japanese Characters</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimized-with-the-cutting-edge-of-traffic-management-the-cookiebot-solution/"><u>Optimized with the Cutting-Edge of Traffic Management: The Cookiebot Solution</u></a></li>
-<li><a href="https://solve-info.techidaily.com/the-smart-enterprise-chronicles-with-maxime-vermeir-delving-into-artificial-intelligence/"><u>The Smart Enterprise Chronicles with Maxime Vermeir – Delving Into Artificial Intelligence</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/top-7-file-deletion-algorithms-for-secure-data-erasure/"><u>Top 7 File Deletion Algorithms for Secure Data Erasure</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unlocking-productivity-discover-how-abbyy-intelligent-automation-boosted-efficiency-by-35-insights-from-a-comprehensive-case-study/"><u>Unlocking Productivity: Discover How ABBYY Intelligent Automation Boosted Efficiency by 35% - Insights From a Comprehensive Case Study</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unveiling-the-future-critical-findings-from-abbyys-report-on-smart-automation-progress/"><u>Unveiling the Future: Critical Findings From ABBYY's Report on Smart Automation Progress</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-secure-privacy-blur-out-details-efficiently-ps/"><u>[New] Secure Privacy Blur Out Details Efficiently PS</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-demystifying-the-process-of-high-dynamic-range-in-photoshop/"><u>[Updated] 2024 Approved Demystifying the Process of High Dynamic Range in Photoshop</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-instant-tune-livestreams-on-douyin/"><u>[Updated] Instant Tune Livestreams on Douyin</u></a></li>
+<li><a href="https://solve-info.techidaily.com/44cm44k144og44oq44gu55s76z2i6yyy55s75oml6acg44ks6kmz44gx44gp6kej6kqs77yb44cn/"><u>「サムバの画面録画手順を詳しく解説！」</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726028846182-8/"><u>【無料】動画にメロディを付けるためのトップ8ソフトウェア選び方：専門家から学ぶ！</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-channel-transformation-with-strategic-use-of-youtube-outros/"><u>2024 Approved Channel Transformation with Strategic Use of YouTube Outros</u></a></li>
+<li><a href="https://solve-info.techidaily.com/3-effective-methods-for-downloading-blob-videos-a-step-by-step-guide/"><u>3 Effective Methods for Downloading Blob Videos: A Step-by-Step Guide</u></a></li>
+<li><a href="https://solve-info.techidaily.com/4-effective-methods-to-eliminate-audio-from-your-iphone-recorded-videos/"><u>4 Effective Methods to Eliminate Audio From Your iPhone Recorded Videos</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726030243059-dvdmp4/"><u>無料DVDパス解除とMP4変換ガイド - ディスクからダウンロード</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/ais-hidden-treasure-trove-top-5-innovative-chat-functions/"><u>AI's Hidden Treasure Trove: Top 5 Innovative Chat Functions</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/convertir-archivos-mxf-a-mp4-rapida-y-facilmente-con-movie-converter-online-de-forma-gratuita/"><u>Convertir Archivos MXF a MP4 Rápida Y Fácilmente Con Movie Converter Online De Forma Gratuita</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/full-guide-on-mirroring-your-itel-a60s-to-your-pcmac-drfone-by-drfone-android/"><u>Full Guide on Mirroring Your Itel A60s to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726027651761-hp/"><u>HPラップトップマシンで効率的な動画編集テクニック</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-dive-into-dynamic-artistry-explore-14-text-animation-showcases/"><u>In 2024, Dive Into Dynamic Artistry Explore 14 Text Animation Showcases</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-incorporating-backgrounds-a-filmmakers-guide/"><u>In 2024, Incorporating Backgrounds A Filmmaker's Guide</u></a></li>
+<li><a href="https://solve-info.techidaily.com/44or44k944kz44oz5zcr44gr44gr44gk44gz44gz44kbieoajoacgoawsoobruwlleeuupluswcppluse4ruocveodleodioocpuocpplusocouobqoodhuocrplusodiplusodgplusocrplusoajq/"><u>パソコン向けにおすすめ!「最新の動画圧縮ソフトウェアとテクニック」</u></a></li>
 </ul></div>
 

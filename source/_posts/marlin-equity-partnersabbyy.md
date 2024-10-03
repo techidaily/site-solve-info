@@ -1,7 +1,7 @@
 ---
 title: Marlin Equity PartnersがABBYYに対する投資を開始 - 最新ニュース解析
-date: 2024-09-13T20:15:34.171Z
-updated: 2024-09-14T22:24:48.372Z
+date: 2024-09-30T03:25:40.072Z
+updated: 2024-10-02T19:43:36.086Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4c147f639cee2585f7f88020d64ed44f6ab3d2fb87afeca6ceadabb8d346628a.jpg
@@ -40,6 +40,13 @@ thumbnail: https://thmb.techidaily.com/4c147f639cee2585f7f88020d64ed44f6ab3d2fb8
 <https://www.marlinequity.com/marlin-completes-growth-equity-investment-in-abbyy/>
 
 [エンタープライズ](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### いいね！、シェア、再投稿
 
@@ -102,12 +109,24 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-digital-design-trends-to-avoid-in-your-youtube-banners/"><u>[New] In 2024, Digital Design Trends to Avoid in Your YouTube Banners</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-simplified-strategies-to-acquire-and-download-vimeo-videos/"><u>[New] In 2024, Simplified Strategies to Acquire & Download Vimeo Videos</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-mastering-iphone-hdr-photography-for-professional-results/"><u>[New] Mastering iPhone HDR Photography for Professional Results</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-efficient-reliable-and-free-your-ultimate-guide-to-videodownloading-pins/"><u>2024 Approved Efficient, Reliable & Free! Your Ultimate Guide to Videodownloading Pins</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-flawlessimage-advanced-bg-eraser-app/"><u>2024 Approved FlawlessImage Advanced BG Eraser App</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-driven-solutions-enhance-your-sites-seo-and-user-experience/"><u>Cookiebot-Driven Solutions: Enhance Your Site's SEO and User Experience</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-driven-solutions-enhancing-your-online-presence/"><u>Cookiebot-Driven Solutions: Enhancing Your Online Presence</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-driven-success-enhancing-your-sites-visibility-and-conversions/"><u>Cookiebot-Driven Success: Enhancing Your Site's Visibility and Conversions</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-driven-enhanced-personalization-and-user-experience/"><u>Cookiebot-Driven: Enhanced Personalization and User Experience</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-enabled-analytics-solutions-for-streamlined-user-experience-tracking/"><u>Cookiebot-Enabled Analytics Solutions for Streamlined User Experience Tracking</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-enabled-personalization-enhancing-user-experience/"><u>Cookiebot-Enabled Personalization: Enhancing User Experience</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-fueled-automated-marketing-solutions/"><u>Cookiebot-Fueled Automated Marketing Solutions</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-enhancing-user-experience-and-tracking-success-on-your-website/"><u>Cookiebot: Enhancing User Experience & Tracking Success on Your Website</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-itel-p40-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Itel P40 online without jailbreak</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-transformative-idea-capture-via-mematic-software/"><u>In 2024, Transformative Idea Capture via Mematic Software</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-filmora-torrent-download-100-safe-and-free-method/"><u>New 2024 Approved Filmora Torrent Download 100 Safe and Free Method</u></a></li>
+<li><a href="https://discover-community.techidaily.com/online-mp3-omzettingen-voor-meer-dan-80-muziekformaten-gratis-dienst-van-movavi/"><u>Online MP3 Omzettingen Voor Meer Dan 80 Muziekformaten - Gratis Dienst Van Movavi</u></a></li>
+</ul></div>
 
