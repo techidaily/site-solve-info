@@ -1,7 +1,7 @@
 ---
 title: Top Process Insight Narratives From ABBYY's Annual Digest
-date: 2024-09-29T04:18:48.630Z
-updated: 2024-10-03T08:08:42.604Z
+date: 2024-10-01T16:39:02.933Z
+updated: 2024-10-08T19:13:34.434Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a02a9911f50368d686754fe93fbecd3af42fa753760f192f422f0660350e151b.jpg
@@ -21,6 +21,13 @@ Despite decades of history and knowledge, companies often struggle to manage pro
 
 In the list below, we’ve curated our top picks for Process Intelligence articles from 2020 you might have missed: stories that pushed businesses towards a successful digital transformation, encouraged new approaches to processes, provided tips on how to be resilient, and more.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Q&A with Scott Opitz, CMO, ABBYY
 
 ![Scott Opitz ABBYY CMO](https://static1.abbyy.com/abbyycommedia/32066/1.jpg)
@@ -28,13 +35,6 @@ In the list below, we’ve curated our top picks for Process Intelligence articl
 After a 20-year tenure with the company, our Chief Marketing Officer, Jupp Stoepetie, retired in February of last year, and we announced the appointment of Scott Opitz as his successor. Workflow Magazine interviewed Opitz about his new role and talked about his biggest challenges, industry outlook, and more.
 
 [Read the article.](https://www.workflowotg.com/qa-with-scott-opitz-cmo-abbyy/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. Successful Digital Transformation Starts with a True Understanding of Processes
 
@@ -48,19 +48,6 @@ Automation has fundamentally transformed the enterprise. From streamlining workf
 
 ![successful digital transformation team meeting](https://static1.abbyy.com/abbyycommedia/32068/3.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Robotic process automation (RPA) technologies enable employees to focus less on mundane tasks and more on high-value, creative, and relationship-oriented responsibilities that directly influence the bottom line. However, despite its significant benefits, RPA technologies by themselves aren't enough to deliver automation's full potential. Anthony Macciola, Chief Innovation Officer, advises organizations to use Digital Intelligence solutions to understand the context and meaning of content in this Forbes article.
 
 [Read the article.](https://www.forbes.com/sites/forbestechcouncil/2020/06/15/understand-your-business-processes-or-risk-failing/#5fa8a87150d5)
@@ -71,18 +58,18 @@ From evolving customer demands, complex legal and regulatory environments, incre
 
 [Read the article.](https://workflowotg.com/a-new-approach-to-processes/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 5\. 3 Questions Every Leader Needs to Ask for a Resilient Supply Chain
 
 While the Coronavirus disease (COVID-19) pandemic has fundamentally disrupted virtually every industry, it is perhaps the most pronounced in the supply chain. Three out of four U.S. companies report that their supply chains have been disrupted as a result of the crisis. Shipment delays and stock shortages have become common occurrences.
 
 ![process improvement for supply chains](https://static1.abbyy.com/abbyycommedia/32065/4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 In late March, just a couple of weeks after a state of emergency was declared in the United States, it was reported that even Amazon was experiencing delivery delays as long as one month. ABBYY Vice President of Product Marketing Bruce Orcutt tells Supply & Demand Chain Executive that the supply chain needs to be able to pivot quickly in order to be resilient.
 
@@ -94,13 +81,6 @@ In today’s climate, healthcare providers must protect their profit margins and
 
 [Read the article.](https://www.healthitoutcomes.com/doc/revitalize-profit-margins-by-fixing-broken-processes-0001)
 
-<!-- affiliate ads begin -->
-<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
-  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 7\. Task & Process Mining Clear Pathway for Dynamite RPA
 
 Adrian Bridgwater, technology journalist, and his latest IDG Connect article explains that only by understanding the way digital business works at the most granular level and being able to categorize different workflows into defined discrete elements, can we manage people effectively and allow RPA bots to sit alongside their human counterparts with maximum efficiency. The article includes ABBYY as one firm operating in the “end-to-end” space.
@@ -109,9 +89,23 @@ Adrian Bridgwater, technology journalist, and his latest IDG Connect article exp
 
 ![process schema](https://static1.abbyy.com/abbyycommedia/32067/2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **_ABBYY Timeline, a cloud-based platform, uses advanced task and process mining to deliver 360-degree visibility into business operations by combining insights from people, processes, and content. Learn more [here](https://tools.techidaily.com/abbyy/products/)._**
 
 [Process Mining](https://tools.techidaily.com/abbyy/products/) [Coronavirus](https://tools.techidaily.com/abbyy/products/) [Intelligent Automation](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -176,18 +170,16 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-chorus-collective-recordings-downloads-and-evaluation/"><u>[Updated] 2024 Approved Chorus Collective Recordings, Downloads & Evaluation</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-master-the-technique-of-radial-distortion-in-adobe-ps-for-2024/"><u>[Updated] Master the Technique of Radial Distortion in Adobe PS for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/free-electronic-signature-for-pdf-v15-document-by-ldigisigner-sign-a-pdf-sign-a-pdf/"><u>Free electronic signature for PDF v1.5 document</u></a></li>
-<li><a href="https://win-web.techidaily.com/guidelines-on-how-to-save-sys-speaker-volume-without-spending-a-penny/"><u>Guidelines on How to Save Sys Speaker Volume without Spending a Penny</u></a></li>
-<li><a href="https://solve-info.techidaily.com/harnessing-idp-solutions-a-game-changer-in-modern-insurance-management/"><u>Harnessing IDP Solutions: A Game Changer in Modern Insurance Management</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-bypassing-google-account-with-vnrom-bypass-for-oppo-a1x-5g-by-drfone-android/"><u>In 2024, Bypassing Google Account With vnROM Bypass For Oppo A1x 5G</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-digital-mastery-top-10-instagram-enhancers/"><u>In 2024, Digital Mastery Top 10 Instagram Enhancers</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-samsung-galaxy-m34-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Samsung Galaxy M34 Phone Without Password?</u></a></li>
-<li><a href="https://solve-info.techidaily.com/multilingual-archive-protection-by-abbyy-finereader-securing-4000000plus-historical-documents-for-future-generations-at-the-national-library-of-latvia/"><u>Multilingual Archive Protection by ABBYY FineReader: Securing 4,000,000+ Historical Documents for Future Generations at the National Library of Latvia</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimized-with-automated-tracker-discover-the-power-of-cookiebot/"><u>Optimized with Automated Tracker: Discover the Power of Cookiebot</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimizing-real-time-data-on-top-platforms-watchos-vs-wear-os-and-achieving-a-seamless-60-fps-experience-expert-analysis-by-abbyy-gurus/"><u>Optimizing Real-Time Data on TOP Platforms: WatchOS Vs. Wear OS and Achieving a Seamless 60 FPS Experience - Expert Analysis by ABBYY Gurus</u></a></li>
-<li><a href="https://solve-info.techidaily.com/top-5-essentials-for-effective-business-process-analytics-now/"><u>Top 5 Essentials for Effective Business Process Analytics Now</u></a></li>
-<li><a href="https://solve-info.techidaily.com/peak-matrix2024-idp/"><u>アバビイ調査で優勝者を決める：エベレスト・コンソーシアムのPEAK Matrixリーダー指数2024 - IDP</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-how-to-prevent-gaps-in-live-obs-broadcasting/"><u>[New] 2024 Approved How To Prevent Gaps In Live OBS Broadcasting</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-screenflow-simplified-streamlining-your-video-projects-on-a-mac/"><u>2024 Approved ScreenFlow Simplified Streamlining Your Video Projects on a Mac</u></a></li>
+<li><a href="https://win-answers.techidaily.com/clearing-up-the-permission-denied-issue-for-smooth-fortnite-gameplay/"><u>Clearing Up the Permission Denied Issue for Smooth Fortnite Gameplay</u></a></li>
+<li><a href="https://solve-info.techidaily.com/download-the-latest-update-of-abbyy-textgrabber-for-ios-with-instantaneous-language-conversion-capability/"><u>Download the Latest Update of ABBYY TextGrabber for iOS with Instantaneous Language Conversion Capability!</u></a></li>
+<li><a href="https://solve-info.techidaily.com/driven-by-cookiebot-enhancing-your-websites-visitor-tracking/"><u>Driven by Cookiebot: Enhancing Your Website's Visitor Tracking</u></a></li>
+<li><a href="https://solve-info.techidaily.com/elevate-user-experience-with-our-cookiebot-technology-solutions/"><u>Elevate User Experience with Our Cookiebot Technology Solutions</u></a></li>
+<li><a href="https://solve-info.techidaily.com/empower-your-site-analytics-through-innovative-tracker-solutions/"><u>Empower Your Site Analytics Through Innovative Tracker Solutions</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhanced-conversion-tracking-with-the-cookiebot-integration/"><u>Enhanced Conversion Tracking with the Cookiebot Integration</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-srt-to-txt-mastery-the-2023-guide-for-rapid-changeover/"><u>In 2024, SRT to TXT Mastery The 2023 Guide for Rapid Changeover</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/online-open-source-convert-mp4-in-ogg-ohne-kosten-mit-movavi/"><u>Online Open Source: Convert MP4 in Ogg Ohne Kosten Mit Movavi</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-music-from-honor-play-40c-by-fonelab-android-recover-music/"><u>Undelete lost music from Honor Play 40C</u></a></li>
 </ul></div>
 

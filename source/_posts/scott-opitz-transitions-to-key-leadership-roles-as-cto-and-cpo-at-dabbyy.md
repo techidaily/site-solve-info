@@ -1,7 +1,7 @@
 ---
 title: Scott Opitz Transitions to Key Leadership Roles as CTO and CPO at D'Abbyy
-date: 2024-09-29T12:07:30.254Z
-updated: 2024-10-03T05:48:55.685Z
+date: 2024-10-03T18:25:53.654Z
+updated: 2024-10-08T16:05:08.344Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5c41e214e42161b19b3ba596b247b1528c5c85cbd29aaa92283a320b0b166cc8.jpg
@@ -32,10 +32,10 @@ Scott Opitz a rejoint ABBYY en 2019, lors de l’[acquisition de TimelinePI](htt
 Scott a également occupé plusieurs fonctions de direction au sein d’entreprises publiques et privées. Il est inventeur et détient 13 brevets et demandes de brevets relatifs aux technologies de Process Intelligence.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### À propos d’ABBYY
@@ -45,10 +45,10 @@ ABBYY est un acteur référent de l’Intelligent Process Automation. L’entrep
 ABBYY est une multinationale basée aux États-Unis, et dont les bureaux sont répartis au sein de 15 pays. Pour plus d’informations, veuillez consulter le site[https://www.abbyy.com/fr/](https://tools.techidaily.com/abbyy/products/).
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Contact presse
@@ -56,10 +56,10 @@ ABBYY est une multinationale basée aux États-Unis, et dont les bureaux sont r�
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Bianca Stupp
@@ -85,22 +85,16 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-earning-mastery-youtube-short-video-tips/"><u>[New] 2024 Approved Earning Mastery Youtube Short Video Tips</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-detailed-guide-to-capturing-minecraft-gameplay-events/"><u>[New] Detailed Guide to Capturing Minecraft Gameplay Events</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/astering-youtube-stat-tracking-essentials-for-2024/"><u>[New] Mastering YouTube Stat Tracking Essentials for 2024</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/updated-mastering-tiktok-livestreams-on-your-home-office-desktop-for-2024/"><u>[Updated] Mastering TikTok Livestreams on Your Home Office Desktop for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-aspect-ratio-guidelines-for-twitter-videos/"><u>2024 Approved Aspect Ratio Guidelines for Twitter Videos</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/al-domination-worlds-top-10-video-content-kings-and-queens-for-2024/"><u>Digital Domination World's Top 10 Video Content Kings & Queens for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhancing-smartphone-cleanliness-leveraging-abbyys-bcr-tech-and-digital-notetaking-tools/"><u>Enhancing Smartphone Cleanliness: Leveraging ABBYY's BCR Tech & Digital Notetaking Tools</u></a></li>
-<li><a href="https://solve-info.techidaily.com/experienced-dev-leader-mihajlo-mulic-takes-the-helm-as-senior-software-pro-at-abbyy/"><u>Experienced Dev Leader: Mihajlo Mulic Takes the Helm as Senior Software Pro at ABBYY</u></a></li>
-<li><a href="https://solve-info.techidaily.com/harnessing-the-power-of-cookiebot-for-superior-site-personalization-and-growth/"><u>Harnessing the Power of Cookiebot for Superior Site Personalization and Growth</u></a></li>
-<li><a href="https://solve-info.techidaily.com/how-process-intelligence-leads-to-success-understanding-the-top-five-advantages/"><u>How Process Intelligence Leads to Success: Understanding the Top Five Advantages</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-xiaomi-redmi-note-12-4g-phone-with-broken-screen-by-drfone-android/"><u>How to Unlock Xiaomi Redmi Note 12 4G Phone with Broken Screen</u></a></li>
-<li><a href="https://solve-info.techidaily.com/integrating-compliance-protocols-with-exceptional-cx-strategies-in-banking-and-finance/"><u>Integrating Compliance Protocols with Exceptional CX Strategies in Banking & Finance</u></a></li>
-<li><a href="https://solve-info.techidaily.com/intelligent-docx-and-pdf-automation-with-quadrants-spark-2022-matrix-solution/"><u>Intelligent DOCX & PDF Automation with Quadrant's SPARK 2022 Matrix Solution</u></a></li>
-<li><a href="https://solve-info.techidaily.com/leveraging-ai-and-analytics-for-boosting-staff-participation-and-commitment/"><u>Leveraging AI and Analytics for Boosting Staff Participation and Commitment</u></a></li>
-<li><a href="https://solve-info.techidaily.com/navigating-financial-turbulence-essential-digital-tactics-for-banking-success-with-insights-from-abbyy-leaders/"><u>Navigating Financial Turbulence: Essential Digital Tactics for Banking Success with Insights From ABBYY Leaders</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/overcome-the-opaque-obstacle-effective-fixes-for-black-screen-in-nba-2k21-on-pc-update-guide/"><u>Overcome the Opaque Obstacle: Effective Fixes for Black Screen in NBA 2K21 on PC - Update Guide</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-5-best-online-stop-motion-makers-on-2023-freeandpaid/"><u>Updated 2024 Approved 5 Best Online Stop Motion Makers on 2023 Free&Paid</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-filmcrafters-compendium-unpacked-qanda/"><u>[New] In 2024, FilmCrafters' Compendium Unpacked Q&A</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-directly-embedding-google-meet-in-youtubes-video-library/"><u>[Updated] 2024 Approved Directly Embedding Google Meet in YouTube's Video Library</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-move-contacts-from-infinix-note-30-vip-racing-edition-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Move Contacts From Infinix Note 30 VIP Racing Edition to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-driven-success-optimizing-your-website-with-advanced-analytics/"><u>Cookiebot-Driven Success: Optimizing Your Website with Advanced Analytics</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-enabled-enhancing-your-websites-engagement-and-conversion-rates/"><u>Cookiebot-Enabled: Enhancing Your Website's Engagement & Conversion Rates</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-user-experience-tailored-content-and-targeting/"><u>Cookiebot-Enhanced User Experience: Tailored Content & Targeting</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-user-experience-through-smart-analytics/"><u>Cookiebot: Enhanced User Experience Through Smart Analytics</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-guide-to-mirror-your-meizu-21-pro-to-other-android-devices-drfone-by-drfone-android/"><u>In 2024, Guide to Mirror Your Meizu 21 Pro to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/leading-ai-therapy-solutions-explore-top-5-chatgpt-applications-tackling-psychological-issues/"><u>Leading AI Therapy Solutions: Explore Top 5 ChatGPT Applications Tackling Psychological Issues</u></a></li>
+<li><a href="https://win11.techidaily.com/swift-resolution-to-windows-update-error-code-0xc1900101/"><u>Swift Resolution to Windows Update Error Code 0xC1900101</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-ultimate-guide-to-advanced-ai-prompts-expert-techniques-revealed/"><u>The Ultimate Guide to Advanced AI Prompts: Expert Techniques Revealed</u></a></li>
 </ul></div>
 

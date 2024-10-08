@@ -1,7 +1,7 @@
 ---
 title: "ABBYY Welcomes Paul Nizov as Their Latest Appointment: Chief Information Security Officer"
-date: 2024-09-29T04:09:31.568Z
-updated: 2024-10-03T06:20:49.150Z
+date: 2024-10-03T17:35:03.553Z
+updated: 2024-10-08T18:05:27.049Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/66ccde26d86877f06eba74ce71d6ed3e3e1b37f9fff9b02e8a19618a5ac1ec1e.jpg
@@ -36,16 +36,10 @@ Paul has built and managed information and cyber security programs in sectors su
 Paul holds a Juris Doctor from the SMU Dedman School of Law, a Bachelor of Science in Electrical Engineering from the University of Texas at Dallas, and the following information security certifications: CISSP and CISM. Paul is also a U.S. military veteran, having served in the U.S. Navy as a Nuclear Submarine Officer. As part of his military service, Paul graduated from Naval Nuclear Power School in Charleston, South Carolina, and Naval Nuclear Prototype in Ballston Spa, New York.
 
 <!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### About ABBYY
@@ -55,10 +49,10 @@ ABBYY empowers organizations to gain a complete understanding of their business 
 ABBYY and the ABBYY Logo are either registered trademarks or trademarks of ABBYY Software Ltd. Other product names mentioned herein may be trademarks and/or registered trademarks of their respective owners and are hereby recognized.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYY Editorial Contact
@@ -66,16 +60,10 @@ ABBYY and the ABBYY Logo are either registered trademarks or trademarks of ABBYY
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Gina Ray, APR
@@ -102,18 +90,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-embracing-the-world-one-post-at-a-time-with-insta-captions-for-2024/"><u>[New] Embracing the World, One Post at a Time with Insta Captions for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/7n/"><u>「様々な形式でも、動画解像度を簡単に切り替えるための7つの自由提�n体ツール」</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-iphones-panoramic-videos-explained-for-fb-sharing/"><u>2024 Approved IPhone's Panoramic Videos Explained for FB Sharing</u></a></li>
-<li><a href="https://solve-info.techidaily.com/ac3dtsdvd/"><u>AC3/DTSへのシンプルなDVD変換手順：ステップバイステップガイド</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/achieve-stunning-visual-impact-top-color-grading-tutorials/"><u>Achieve Stunning Visual Impact - Top Color Grading Tutorials</u></a></li>
-<li><a href="https://solve-info.techidaily.com/best-free-instagram-reel-sounds-top-4-downloading-tools/"><u>Best Free Instagram Reel Sounds: Top 4 Downloading Tools</u></a></li>
-<li><a href="https://solve-info.techidaily.com/comparing-ipod-video-converter-factory-vs-ipod-video-converter-factory-pro-features/"><u>Comparing iPod Video Converter Factory Vs. IPod Video Converter Factory Pro Features</u></a></li>
-<li><a href="https://solve-info.techidaily.com/complete-tutorial-mastering-the-art-of-cropping-avi-videos-both-on-and-off-the-web/"><u>Complete Tutorial: Mastering the Art of Cropping AVI Videos Both On and Off the Web</u></a></li>
-<li><a href="https://solve-info.techidaily.com/comprehensive-guide-how-to-easily-rip-burn-and-duplicate-your-dvdscds/"><u>Comprehensive Guide: How to Easily Rip, Burn, and Duplicate Your DVDs/CDs</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/easy-conversion-for-beginners-how-to-change-mp4-audio-to-premium-wav-with-audacity/"><u>Easy Conversion for Beginners: How to Change MP4 Audio to Premium WAV with Audacity</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/free-downloads-latest-dell-device-drivers-compatible-with-windows-7/"><u>Free Downloads: Latest Dell Device Drivers Compatible with Windows 7</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-detect-and-remove-spyware-on-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Remove Spyware on Oppo Find N3 Flip? | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/songsync-guide-tamil-ringtones-from-download-to-customize-for-2024/"><u>SongSync Guide Tamil Ringtones From Download to Customize for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-quick-and-easy-channels-personalize-your-youtube-url-now/"><u>[Updated] 2024 Approved Quick and Easy Channels Personalize Your YouTube URL Now!</u></a></li>
+<li><a href="https://solve-info.techidaily.com/44cm44k144og44oq44gu55s76z2i6yyy55s75oml6acg44ks6kmz44gx44gp6kej6kqs77yb44cn/"><u>「サムバの画面録画手順を詳しく解説！」</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726028846182-8/"><u>【無料】動画にメロディを付けるためのトップ8ソフトウェア選び方：専門家から学ぶ！</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-best-chuckle-inducing-edits-on-mobile-platforms/"><u>2024 Approved Best Chuckle-Inducing Edits on Mobile Platforms</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-best-internet-capture-devices/"><u>2024 Approved Best Internet Capture Devices</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-enhance-your-content-utilizing-the-green-screen-on-instagram/"><u>2024 Approved Enhance Your Content Utilizing the Green Screen on Instagram</u></a></li>
+<li><a href="https://solve-info.techidaily.com/3-effective-methods-for-downloading-blob-videos-a-step-by-step-guide/"><u>3 Effective Methods for Downloading Blob Videos: A Step-by-Step Guide</u></a></li>
+<li><a href="https://solve-info.techidaily.com/4-effective-methods-to-eliminate-audio-from-your-iphone-recorded-videos/"><u>4 Effective Methods to Eliminate Audio From Your iPhone Recorded Videos</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726030243059-dvdmp4/"><u>無料DVDパス解除とMP4変換ガイド - ディスクからダウンロード</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-fix-when-your-nvidia-geforce-software-wont-start/"><u>How to Fix When Your NVIDIA GeForce Software Won't Start</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726027651761-hp/"><u>HPラップトップマシンで効率的な動画編集テクニック</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/learn-how-to-setup-touch-typing-feature-on-your-windows-device/"><u>Learn How To Setup Touch Typing Feature on Your Windows Device</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-the-best-video-reverse-editors-online/"><u>New In 2024, The Best Video Reverse Editors Online</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/top-6-best-8k-cameras-for-2024/"><u>Top 6 Best 8K Cameras for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/uncomplicated-steps-to-record-instagrams-story-feed/"><u>Uncomplicated Steps to Record Instagram's Story Feed</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726027258055-windows-and-mac/"><u>Windows & Macで動画の鏡像作成手順３つ</u></a></li>
+<li><a href="https://solve-info.techidaily.com/44or44k944kz44oz5zcr44gr44gr44gk44gz44gz44kbieoajoacgoawsoobruwlleeuupluswcppluse4ruocveodleodioocpuocpplusocouobqoodhuocrplusodiplusodgplusocrplusoajq/"><u>パソコン向けにおすすめ!「最新の動画圧縮ソフトウェアとテクニック」</u></a></li>
 </ul></div>
 

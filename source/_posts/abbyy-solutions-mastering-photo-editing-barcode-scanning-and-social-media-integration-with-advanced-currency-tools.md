@@ -1,7 +1,7 @@
 ---
 title: "ABBYY Solutions: Mastering Photo Editing, Barcode Scanning & Social Media Integration with Advanced Currency Tools"
-date: 2024-10-02T11:34:08.723Z
-updated: 2024-10-03T07:20:22.748Z
+date: 2024-10-07T17:39:23.173Z
+updated: 2024-10-08T17:19:54.771Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a516821dc0dcd8fb768903303922c214d1ad710be56ca1c3f04be97b27b5dc47.jpg
@@ -19,13 +19,6 @@ July 16, 2018
 
 Do you want to become a photographer? Go ahead! Innovative devices today surely have what it takes to make you one. In today’s news: discovering hidden functions of smartphone cameras, adding info from social networks to BCR, and converting currencies!
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **iOS Tip: Features of the iPhone Camera**
 
 Apple devices are famous for their brilliant quality of photos. [Camera](https://support.apple.com/en-us/HT207260) app has as many as seven modes for taking photos: photo, portrait, pano, video, slow-mo, and time-lapse. Let’s get into details.
@@ -37,10 +30,10 @@ This is the most widely-used mode among iPhone users. It opens by default when y
 ![iOS iPhone Camera photo mode](https://static1.abbyy.com/abbyycommedia/26345/ios10-iphone7-camera-photo-mode-502x1024.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [iPhone 6S](https://www.apple.com/iphone/) and newer models let you take Live Photos that go live when you long-tap on them.
@@ -56,10 +49,16 @@ Loop turns your Live Photo into a video loop, Bounce makes your photo rock back 
 ![Long Exposure iPhone 6S Live Photos](https://static1.abbyy.com/abbyycommedia/26346/long-exposure.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Planning to take a group photo? Try Timer that sets the countdown (from 3 to 10 seconds) and lets you create amazing photos where all of your friends will make it in the shot.
@@ -85,6 +84,13 @@ This mode for wide angle photos lets you fit anything in your shot.
 When you enable the Pano mode, your camera will display a guide bar in the middle of the screen to help you take a photo. Want to start from the right? Simply click the arrow and change its direction.
 
 ![ios iphone camera pano mode](https://static1.abbyy.com/abbyycommedia/26348/ios10-iphone7-camera-pano-mode-502x1024.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Video mode**
 
@@ -124,13 +130,6 @@ Want to add a blurry background on Samsung S8? There is no need to install third
 
 ![Dynamic focus Camera Android Samsung S8](https://static1.abbyy.com/abbyycommedia/26351/dynamic-focus-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Dual Pixel technology**
 
 [Dual Pixel](https://www.gsmarena.com/samsungs%5Fdual%5Fpixel%5Ftech%5Fis%5Flike%5Fcanons%5Fdual%5Fpixel%5Fauto%5Ffocus-news-16805.php) enables you to take focused pictures in motion and in places with bad lighting. This technology will catch every moment even if you are on the move.
@@ -140,6 +139,13 @@ Want to add a blurry background on Samsung S8? There is no need to install third
 Samsung surely follows modern trends. The frontal camera of Samsung [S8](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.samsung.com%2Fglobal%2Fgalaxy%2Fgalaxy-s8%2F) now allows you to add stickers to a face. This idea was borrowed from [apps and messengers](https://www.gottabemobile.com/best-selfie-apps/). As far as Samsung S9 is concerned, the tech giant took some time at the [MWC 2018](https://www.mobileworldcongress.com/) mobile congress and announced AR Emoji similar to iOS Animoji and Mimoji. And of course, it features a so-called face smoother that selfie fans will certainly appreciate. It evens out face tone and adds artificial lighting or makes your eyes look lighter.
 
 ![Samsung S8 Selfie photo Android](https://static1.abbyy.com/abbyycommedia/26352/stickers.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Object recognition**
 
@@ -170,10 +176,10 @@ If your [BCR](http://qrs.ly/ip56xfe)contact lacked a photo, it will be added fro
 [BCR](http://qrs.ly/ip56xfe) will save a link to a Facebook or LinkedIn profile in a business card so that you can open a social network page at anytime.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **App of the Week: Valuta+ Currency Converter**
@@ -183,10 +189,10 @@ Are you planning on going abroad but still afraid that you won’t know the exch
 ![App Valuta+ Currency Converter ios](https://static1.abbyy.com/abbyycommedia/26353/currency1-1.png)![iphone android application valuta+ currency](https://static1.abbyy.com/abbyycommedia/26354/currency2-1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 This user-friendly app converts over 170 currencies, works offline, and has a favorites list.
@@ -281,22 +287,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-film-flair-in-frame-up-smart-setup-tips-for-stellar-videos/"><u>[New] Film Flair in Frame-Up Smart Setup Tips for Stellar Videos</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-unlock-the-full-content-masterful-techniques-to-download-igtv-videos/"><u>[Updated] 2024 Approved Unlock the Full Content Masterful Techniques to Download IGTV Videos</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-mastering-hdr-photos-advanced-techniques-in-photoshop/"><u>[Updated] Mastering HDR Photos Advanced Techniques in Photoshop</u></a></li>
-<li><a href="https://solve-info.techidaily.com/44cm44k144og44oq44gu55s76z2i6yyy55s75oml6acg44ks6kmz44gx44gp6kej6kqs77yb44cn/"><u>「サムバの画面録画手順を詳しく解説！」</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1726028846182-8/"><u>【無料】動画にメロディを付けるためのトップ8ソフトウェア選び方：専門家から学ぶ！</u></a></li>
-<li><a href="https://solve-info.techidaily.com/3-effective-methods-for-downloading-blob-videos-a-step-by-step-guide/"><u>3 Effective Methods for Downloading Blob Videos: A Step-by-Step Guide</u></a></li>
-<li><a href="https://solve-info.techidaily.com/4-effective-methods-to-eliminate-audio-from-your-iphone-recorded-videos/"><u>4 Effective Methods to Eliminate Audio From Your iPhone Recorded Videos</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1726030243059-dvdmp4/"><u>無料DVDパス解除とMP4変換ガイド - ディスクからダウンロード</u></a></li>
-<li><a href="https://solve-info.techidaily.com/4k-5/"><u>無料の4Kビデオファイナライザー: トップ5 フルハイビジョンへの変換ツール</u></a></li>
-<li><a href="https://solve-info.techidaily.com/54sh5paz44ox44ot44kw44op44og44gr44ki44kl6zplusz5aow44oh44o844k57wx5zci44gu5pa55rov/"><u>無料プログラムによる音声データ統合の方法</u></a></li>
-<li><a href="https://driver-download.techidaily.com/download-techkey-bluetooth-drivers-compatible-with-windows-1178/"><u>Download Techkey Bluetooth Drivers Compatible with Windows 11/7/8</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-realme-c51-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Realme C51 Location on Skout | Dr.fone</u></a></li>
-<li><a href="https://fox-that.techidaily.com/how-to-handle-when-your-phone-displays-numbers-rather-than-contact-names/"><u>How to Handle When Your Phone Displays Numbers Rather Than Contact Names</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-definitive-manual-on-hand-based-tracking/"><u>In 2024, The Definitive Manual on Hand-Based Tracking</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/tinyvid-masterpiece-for-2024/"><u>TinyVid Masterpiece for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/toms-tech-hub-expert-guides-on-pc-components-and-gadgets/"><u>Tom's Tech Hub: Expert Guides on PC Components & Gadgets</u></a></li>
-<li><a href="https://solve-info.techidaily.com/44or44k944kz44oz5zcr44gr44gr44gk44gz44gz44kbieoajoacgoawsoobruwlleeuupluswcppluse4ruocveodleodioocpuocpplusocouobqoodhuocrplusodiplusodgplusocrplusoajq/"><u>パソコン向けにおすすめ!「最新の動画圧縮ソフトウェアとテクニック」</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-step-up-and-snap-top-10-must-try-viral-tiktok-stunts/"><u>[New] 2024 Approved Step Up and Snap Top 10 Must-Try Viral TikTok Stunts</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-best-dramatic-writing-site/"><u>[New] Best Dramatic Writing Site</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-how-to-solve-delayed-or-failed-video-sending-in-facebooks-mobile-messaging-service/"><u>[New] In 2024, How to Solve Delayed or Failed Video Sending in Facebook's Mobile Messaging Service</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nveiling-the-leading-youtube-to-mp3-tools/"><u>[New] Unveiling the Leading YouTube to Mp3 Tools</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-lasting-freedom-how-to-banish-youtube-shorts-permanently/"><u>2024 Approved Lasting Freedom How To Banish YouTube Shorts Permanently</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/apple-airpods-max-review/"><u>Apple AirPods Max Review</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/battle-of-the-green-thumbs-and-brains-the-ultimate-neighborville-game-guide/"><u>Battle of the Green Thumbs and Brains - The Ultimate Neighborville Game Guide.</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726026473894-bilibili/"><u>Bilibiliビデオでロゴを取り除くためのステップバイステップマニュアル</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/filters-to-feeds-optimizing-your-360-video-for-youtube-publishing-for-2024/"><u>From Filters to Feeds Optimizing Your 360 Video for YouTube Publishing for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigate-the-future-top-rated-computing-brands-to-watch/"><u>Navigate the Future: Top-Rated Computing Brands to Watch</u></a></li>
+<li><a href="https://solve-info.techidaily.com/troubleshooting-downloads-how-to-successfully-retrieve-abema-previously-abematv-streaming-content/"><u>Troubleshooting Downloads: How to Successfully Retrieve ABEMA (Previously AbemaTV) Streaming Content</u></a></li>
+<li><a href="https://solve-info.techidaily.com/ultimate-guide-to-downloading-movies-from-dvds-onto-your-pc-step-by-step-process/"><u>Ultimate Guide to Downloading Movies From DVDs Onto Your PC - Step by Step Process</u></a></li>
+<li><a href="https://solve-info.techidaily.com/ultimate-guide-mastering-video-compression-with-adobe-media-encoder/"><u>Ultimate Guide: Mastering Video Compression with Adobe Media Encoder</u></a></li>
+<li><a href="https://solve-info.techidaily.com/understanding-handbrakes-capabilities-for-merging-multiple-video-streams-insights-and-solutions/"><u>Understanding Handbrake's Capabilities for Merging Multiple Video Streams: Insights & Solutions</u></a></li>
+<li><a href="https://solve-info.techidaily.com/understanding-resolution-upgrades-does-true-4k-offer-significant-advantages-over-1080p/"><u>Understanding Resolution Upgrades: Does True 4K Offer Significant Advantages Over 1080P?</u></a></li>
+<li><a href="https://solve-info.techidaily.com/windows-11youtubesd/"><u>Windows 11でパソコンからYouTube音楽をSDカードへ転送するための完全ガイド</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726026566647-3/"><u>ダウンロード無しで音声抽出: ムービーからのトラック3方法紹介</u></a></li>
 </ul></div>
 

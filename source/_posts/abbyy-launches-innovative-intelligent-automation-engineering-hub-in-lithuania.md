@@ -1,7 +1,7 @@
 ---
 title: ABBYY Launches Innovative Intelligent Automation Engineering Hub in Lithuania
-date: 2024-09-26T22:39:31.199Z
-updated: 2024-09-28T07:05:43.363Z
+date: 2024-10-02T17:49:08.657Z
+updated: 2024-10-08T16:15:43.416Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0c6d2fd1a73159563e57dda315b30eb330741092cc6760e2a82edb3563c1b5c8.jpg
@@ -26,10 +26,10 @@ Das Unternehmen für intelligente Automatisierung ABBYY hat ein neues Büro in V
 Das neue Engineering Center von ABBYY ist die 15\. globale Niederlassung des Unternehmens.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Über ABBYY
@@ -43,10 +43,10 @@ ABBYY ist ein globales Unternehmen mit Sitz in den USA und Niederlassungen in 15
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Pressekontakt:
@@ -54,10 +54,10 @@ ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeich
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Bianca Stupp
@@ -83,17 +83,18 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-a-curated-selection-of-top-6-nft-maker-applications/"><u>[New] In 2024, A Curated Selection of Top 6 NFT Maker Applications</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-unveiling-premium-screen-recorders-in-tech/"><u>[New] Unveiling Premium Screen Recorders in Tech</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-journey-beyond-the-frantic-crafting-epic-slow-motion-content-for-instragram/"><u>[Updated] 2024 Approved Journey Beyond the Frantic Crafting Epic Slow Motion Content for Instragram</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1-ultimate-guide-mastering-picture-in-picture-recording-techniques/"><u>1. Ultimate Guide: Mastering Picture-in-Picture Recording Techniques</u></a></li>
-<li><a href="https://solve-info.techidaily.com/wmaflac/"><u>簡単ガイド: WMA音楽データをFLAC形式にするためのプログラムとオンラインツール</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/descargue-e-instale-el-conversor-de-archivos-online-gratis-para-convertir-3g2-a-formatos-de-video-mpeg/"><u>Descargue E Instale El Conversor De Archivos Online Gratis Para Convertir 3G2 a Formatos De Video MPEG</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/expert-fixes-to-overcome-recent-oculus-error-messages/"><u>Expert Fixes to Overcome Recent Oculus Error Messages</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/step-by-step-solutions-restoring-functionality-to-your-broken-macbook-pro-keys/"><u>Step-by-Step Solutions: Restoring Functionality to Your Broken MacBook Pro Keys</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-true-performance-of-bose-quietcontrol-30-headphones/"><u>The True Performance of Bose QuietControl 30 Headphones</u></a></li>
-<li><a href="https://solve-info.techidaily.com/ultimate-avchd-transformation-techniques-mastering-the-art-of-formatting-and-uninterrupted-viewing/"><u>Ultimate AVCHD Transformation Techniques - Mastering the Art of Formatting and Uninterrupted Viewing</u></a></li>
-<li><a href="https://solve-info.techidaily.com/ultimate-guide-to-the-top-11-video-format-changers-for-pc-including-browser-based-solutions/"><u>Ultimate Guide to the Top 11 Video Format Changers for PC, Including Browser-Based Solutions!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/ultimate-resource-top-platforms-for-streaming-live-and-recorded-musical-performances/"><u>Ultimate Resource: Top Platforms for Streaming Live and Recorded Musical Performances</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-mastery-guide-sync-videos-to-facebook-pc-and-android-way/"><u>[Updated] 2024 Approved Mastery Guide Sync Videos to Facebook - PC & Android Way</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-masterpiece-in-motion-capture-sonys-x1000-action-gear/"><u>2024 Approved Masterpiece in Motion Capture Sony's X1000 Action Gear</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-most-acclaimed-ipad-recording-software-3p/"><u>2024 Approved Most Acclaimed iPad Recording Software 3P</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/adding-accurate-dates-to-photographic-records-for-2024/"><u>Adding Accurate Dates to Photographic Records for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/elevate-user-experience-using-cookiebot-analytics-technology/"><u>Elevate User Experience Using Cookiebot Analytics Technology</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhance-user-experience-and-analytics-via-the-advanced-cookiebot-integration-features/"><u>Enhance User Experience & Analytics via the Advanced Cookiebot Integration Features</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhance-your-web-analytics-using-the-cookiebot-platform/"><u>Enhance Your Web Analytics Using the Cookiebot Platform</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhanced-conversion-rates-optimized-with-cookiebot-technology/"><u>Enhanced Conversion Rates: Optimized with Cookiebot Technology</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Tecno Pova 6 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-poco-c65-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & Poco C65 | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-the-updated-method-to-bypass-nokia-c210-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Nokia C210 FRP</u></a></li>
+<li><a href="https://fox-that.techidaily.com/silent-apple-troubleshooting-no-audio-output-on-your-iphone/"><u>Silent Apple: Troubleshooting No Audio Output on Your iPhone</u></a></li>
+<li><a href="https://games-able.techidaily.com/transformative-game-masters-6-ways-to-leverage-chatgpt/"><u>Transformative Game Masters: 6 Ways to Leverage ChatGPT</u></a></li>
 </ul></div>
 

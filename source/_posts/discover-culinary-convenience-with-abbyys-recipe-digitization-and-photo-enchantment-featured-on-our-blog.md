@@ -1,7 +1,7 @@
 ---
 title: Discover Culinary Convenience with ABBYY's Recipe Digitization and Photo Enchantment - Featured on Our Blog
-date: 2024-10-01T01:28:02.363Z
-updated: 2024-10-02T19:06:53.132Z
+date: 2024-10-05T18:33:36.923Z
+updated: 2024-10-08T17:03:33.533Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1296bc6cf3d8ba602cee83fbaf9d9aae0f41d750526e3d62954932be609de318.jpg
@@ -41,33 +41,40 @@ This feature can also be useful when you are looking to reinstall an app but can
 
 **What was your first ever app? Do you still use it today? Share your answer in the comments below** 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Android Tip: Which App Came First?**
 
 To take a glimpse into the past, you need to first open Google Play. Then, tap the three bars in the top left corner **→ My apps & games → Library**.
 
 ![google play download history](https://static1.abbyy.com/abbyycommedia/26738/gplay1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 You will see a list of all the apps that have been installed on any phone using your Google account. If an app has since been deleted, you can reinstall it, provided it is still available on Google Play. You can choose to view the list either in chronological or in alphabetical order.
 
 ![library in google play](https://static1.abbyy.com/abbyycommedia/26739/gplay2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 This download history will be useful for those who are looking to find an app that they have deleted and now cannot remember the name of.
 
 **What was your first ever app? Do you still use it today? Share your answer in the comments below** 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **ABBYY Tip: FineScanner as a Culinary Assistant**
 
@@ -76,19 +83,6 @@ Aside from assisting you in the office, [FineScanner](http://qrs.ly/mg4z2wm) can
 One of our customers has shared his experience with using [FineScanner](http://qrs.ly/mg4z2wm) to digitize recipes. Instead of going through the arduous task of using pen and paper to write down ingredients for recipes from his collection of over a hundred cookbooks, and almost as many _New York Times_ cutouts, he simply scans the text of a recipe and then uses the [AnyList](https://itunes.apple.com/us/app/id522167641) app to make a shopping list.
 
 Read the customer’s full review [here](https://appfollow.io/app/1363/review/19707474?s=abbyy&utm%5Fsource=reviews&utm%5Fmedium=slack&utm%5Fcampaign=permalink).
-
-<!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **App of the Week: Enlight Pixaloop**
 
@@ -100,6 +94,13 @@ Cinemagraphs can be created using [Enlight Pixaloop](https://www.pixaloopapp.com
 
 ![making moving photos](https://static1.abbyy.com/abbyycommedia/26626/app2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [You can download the app for iOS here](https://itunes.apple.com/ru/app/enlight-photoloop/id1381206010?l=en&mt=8) and surprise your friends with cool-looking cinemagraphs.
 
 That’s all, folks! See you next time!
@@ -107,13 +108,6 @@ That’s all, folks! See you next time!
 P.S. You can find the previous issue of this newsletter [here](https://tools.techidaily.com/abbyy/products/).
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -179,22 +173,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-earning-equations-decoding-the-mathematics-behind-youtube-income-monitoring/"><u>[New] 2024 Approved Earning Equations Decoding the Mathematics Behind YouTube Income Monitoring</u></a></li>
-<li><a href="https://solve-info.techidaily.com/7n/"><u>「様々な形式でも、動画解像度を簡単に切り替えるための7つの自由提�n体ツール」</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-melodic-mambos-macaws/"><u>2024 Approved Melodic Mambos Macaws</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-pro-skills-screen-capturing-skype-conversations/"><u>2024 Approved Pro Skills Screen Capturing Skype Conversations</u></a></li>
-<li><a href="https://solve-info.techidaily.com/4k-5/"><u>無料の4Kビデオファイナライザー: トップ5 フルハイビジョンへの変換ツール</u></a></li>
-<li><a href="https://solve-info.techidaily.com/54sh5paz44ox44ot44kw44op44og44gr44ki44kl6zplusz5aow44oh44o844k57wx5zci44gu5pa55rov/"><u>無料プログラムによる音声データ統合の方法</u></a></li>
-<li><a href="https://solve-info.techidaily.com/ac3dtsdvd/"><u>AC3/DTSへのシンプルなDVD変換手順：ステップバイステップガイド</u></a></li>
-<li><a href="https://win-forum.techidaily.com/advanced-tricks-to-bypass-restrictions-and-remove-folders-on-modern-windows-systems/"><u>Advanced Tricks to Bypass Restrictions and Remove Folders on Modern Windows Systems</u></a></li>
-<li><a href="https://solve-info.techidaily.com/best-free-instagram-reel-sounds-top-4-downloading-tools/"><u>Best Free Instagram Reel Sounds: Top 4 Downloading Tools</u></a></li>
-<li><a href="https://solve-info.techidaily.com/comparing-ipod-video-converter-factory-vs-ipod-video-converter-factory-pro-features/"><u>Comparing iPod Video Converter Factory Vs. IPod Video Converter Factory Pro Features</u></a></li>
-<li><a href="https://solve-info.techidaily.com/complete-tutorial-mastering-the-art-of-cropping-avi-videos-both-on-and-off-the-web/"><u>Complete Tutorial: Mastering the Art of Cropping AVI Videos Both On and Off the Web</u></a></li>
-<li><a href="https://solve-info.techidaily.com/comprehensive-guide-how-to-easily-rip-burn-and-duplicate-your-dvdscds/"><u>Comprehensive Guide: How to Easily Rip, Burn, and Duplicate Your DVDs/CDs</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/how-to-repair-the-corrupted-fixservice-error-in-windows-10-systems/"><u>How to Repair the Corrupted FixService Error in Windows 10 Systems</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-infinix-hot-30i-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Infinix Hot 30i Phone without Google Account?</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Lenovo ThinkPhone? | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-memes-unleashed-ranking-the-best-templates-10/"><u>In 2024, Memes Unleashed Ranking the Best Templates #10</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/mastering-langchain-llm-a-comprehensive-guide-for-newcomers/"><u>Mastering LangChain LLM: A Comprehensive Guide for Newcomers</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-the-ultimate-review-bandicam-versus-other-screen-recorders/"><u>[New] 2024 Approved The Ultimate Review Bandicam Versus Other Screen Recorders</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-navigating-thumbnail-sizes-for-youtube-content-excellence/"><u>[Updated] Navigating Thumbnail Sizes for YouTube Content Excellence</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726028846182-8/"><u>【無料】動画にメロディを付けるためのトップ8ソフトウェア選び方：専門家から学ぶ！</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-find-your-ideal-wedding-timer-on-android-and-ios-platforms-here/"><u>2024 Approved Find Your Ideal Wedding Timer on Android & iOS Platforms Here</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-seamless-fileshift-android-media-to-iphone/"><u>2024 Approved Seamless Fileshift Android Media to iPhone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/3-effective-methods-for-downloading-blob-videos-a-step-by-step-guide/"><u>3 Effective Methods for Downloading Blob Videos: A Step-by-Step Guide</u></a></li>
+<li><a href="https://solve-info.techidaily.com/4-effective-methods-to-eliminate-audio-from-your-iphone-recorded-videos/"><u>4 Effective Methods to Eliminate Audio From Your iPhone Recorded Videos</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726030243059-dvdmp4/"><u>無料DVDパス解除とMP4変換ガイド - ディスクからダウンロード</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726026473894-bilibili/"><u>Bilibiliビデオでロゴを取り除くためのステップバイステップマニュアル</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726027651761-hp/"><u>HPラップトップマシンで効率的な動画編集テクニック</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-pattern-locks-are-unsafe-secure-your-motorola-edge-2023-phone-now-with-these-tips-by-drfone-android/"><u>In 2024, Pattern Locks Are Unsafe Secure Your Motorola Edge 2023 Phone Now with These Tips</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/online-gratis-cr2-moveit/"><u>Online Gratis CR2 펑차 매니폴드 - MoveIt!</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/top-10-iphone-virtual-reality-games-to-beat-your-high-scores/"><u>Top 10 iPhone Virtual Reality Games to Beat Your High Scores</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-multi-device-support-is-coming-zuckerberg-confirms/"><u>WhatsApp Multi-Device Support Is Coming, Zuckerberg Confirms</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721475231945-why-isnt-my-iphone-alarm-working-fix-it-now/"><u>Why Isn't My iPhone Alarm Working? Fix It Now!</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726027258055-windows-and-mac/"><u>Windows & Macで動画の鏡像作成手順３つ</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726026566647-3/"><u>ダウンロード無しで音声抽出: ムービーからのトラック3方法紹介</u></a></li>
 </ul></div>
 

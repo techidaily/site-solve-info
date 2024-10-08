@@ -1,7 +1,7 @@
 ---
 title: "Multilingual Archive Protection by ABBYY FineReader: Securing 4,000,000+ Historical Documents for Future Generations at the National Library of Latvia"
-date: 2024-09-27T21:29:15.782Z
-updated: 2024-10-03T10:35:05.471Z
+date: 2024-10-05T18:00:40.353Z
+updated: 2024-10-08T18:32:26.159Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0eb94f402f1ee7bc7c28262c8a96cc0803ff0569b6db1d88604f12db459af942.jpg
@@ -26,16 +26,16 @@ Other | Digital Archiving
 [![library-of-latvia-pic1](https://static4.abbyy.com/abbyycommedia/15839/library-of-latvia-pic1.jpg)](https://www.youtube.com/watch?v=WQ1MUHmEjLA) 
 
 <!-- affiliate ads begin -->
-<span id="1983582">
+<span id="1982596">
 					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Customer Overview
@@ -43,16 +43,10 @@ Other | Digital Archiving
 ![National Library of Latvia](https://static2.abbyy.com/abbyycommedia/15438/nll-logo.jpg) 
 
 <!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 | Name                  | National Library of Latvia                                            |
@@ -95,15 +89,22 @@ The National Library of Latvia (NLL) has amassed 4.5 million paper units, includ
 ##### pages of ancient and modern books and periodicals
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 20
 
 ##### different languages
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1 year
 
@@ -149,13 +150,6 @@ After the processing, the documents were exported into various formats (PDF, JPE
 
 [![PDF Version](https://static4.abbyy.com/abbyycommedia/15840/library-of-latvia-pic2.jpg)](https://static3.abbyy.com/abbyycommedia/21239/case-study-latvia-national-library-education-en.pdf "PDF version") [PDF version](https://static3.abbyy.com/abbyycommedia/21239/case-study-latvia-national-library-education-en.pdf "PDF version") 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [read more](https://static3.abbyy.com/abbyycommedia/21239/case-study-latvia-national-library-education-en.pdf "PDF version") 
 
 ###### Like, share or repost
@@ -187,16 +181,19 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/updated-imovie-soundscapes-enrich-your-visual-symphony/"><u>[Updated] IMovie Soundscapes Enrich Your Visual Symphony</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-a-beginners-pathway-building-a-simple-youtube-signup/"><u>[Updated] In 2024, A Beginner’s Pathway Building a Simple YouTube Signup</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1726028704861-dvd-dvd/"><u>「DVDをスマートデバイスに変換 : タブレット上でDVD視聴する方法」</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1726029928893-wav/"><u>「WAV」フォーマットで動画・音楽を変換する方法</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1726029250121-mp4/"><u>動画ファイルMP4での音声交換テクニック解説</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1726029199958-windows4/"><u>最新ベスト画面記録アプリケーションWindows用上位4名 - 導入ガイド</u></a></li>
-<li><a href="https://techtrends.techidaily.com/a-step-by-step-fix-for-nonfunctional-apps-on-samsung-tvs/"><u>A Step-by-Step Fix for Nonfunctional Apps on Samsung TVs</u></a></li>
-<li><a href="https://howto.techidaily.com/best-methods-for-xiaomi-redmi-note-12-proplus-5g-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Xiaomi Redmi Note 12 Pro+ 5G Wont Turn On | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-android-unlock-code-sim-unlock-your-honor-100-pro-phone-and-remove-locked-screen-by-drfone-android/"><u>In 2024, Android Unlock Code Sim Unlock Your Honor 100 Pro Phone and Remove Locked Screen</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unlocking-new-ocr-features-with-abbyy-finereader-engine-update-to-version-12/"><u>Unlocking New OCR Features with ABBYY FineReader Engine Update to Version 12</u></a></li>
-<li><a href="https://driver-download.techidaily.com/up-to-date-drivers-for-scansnap-s1300i-quick-download-and-installation-tutorial/"><u>Up-to-Date Drivers for ScanSnap S1300i: Quick Download and Installation Tutorial!</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-advance-your-vimeo-video-speed/"><u>[New] In 2024, Advance Your Vimeo Video Speed</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-vcs-vision-recorder-check-detailed-scrutiny/"><u>[New] In 2024, VCS Vision Recorder Check Detailed Scrutiny</u></a></li>
+<li><a href="https://discover-community.techidaily.com/1-movavi-wmv-avi/"><u>1. 自由瀏覽：使用Movavi 將 WMV 影片轉為 AVI - 免費線上轉換工具</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/bridging-the-gap-integrating-spotify-and-youtube-music-playlists/"><u>Bridging the Gap Integrating Spotify and YouTube Music Playlists</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhanced-site-engagement-through-cookiebots-smart-visitor-tracking-solutions/"><u>Enhanced Site Engagement Through Cookiebot's Smart Visitor Tracking Solutions</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhanced-user-experience-with-advanced-traffic-analysis-technology/"><u>Enhanced User Experience with Advanced Traffic Analysis Technology</u></a></li>
+<li><a href="https://solve-info.techidaily.com/experience-seamless-conversion-with-our-cookiebot-technology-integration/"><u>Experience Seamless Conversion with Our Cookiebot Technology Integration</u></a></li>
+<li><a href="https://solve-info.techidaily.com/exploring-the-real-effects-of-covid-on-workers-one-in-four-considering-resignation-due-to-inefficient-corporate-procedures/"><u>Exploring the Real Effects of Covid on Workers: One in Four Considering Resignation Due to Inefficient Corporate Procedures</u></a></li>
+<li><a href="https://solve-info.techidaily.com/gartners-magic-quadrant-recognizes-abbyy-as-a-standout-named-leader-in-ocr-technology/"><u>Gartner's Magic Quadrant Recognizes ABBYY as a Standout Named Leader in OCR Technology</u></a></li>
+<li><a href="https://solve-info.techidaily.com/harnessing-idp-solutions-a-game-changer-in-modern-insurance-management/"><u>Harnessing IDP Solutions: A Game Changer in Modern Insurance Management</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-two-ways-to-keep-your-insta-reels-accessible-anytime/"><u>In 2024, Two Ways to Keep Your Insta Reels Accessible Anytime</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/invisible-online-a-step-by-step-tutorial-for-private-browsing-on-chrome-edge-firefox-safari-and-opera/"><u>Invisible Online: A Step-by-Step Tutorial for Private Browsing on Chrome, Edge, Firefox, Safari, and Opera</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722961064118-latest-samsung-850-evo-drive-software-and-drivers-get-them-here/"><u>Latest Samsung 850 EVO Drive Software and Drivers – Get Them Here!</u></a></li>
+<li><a href="https://fox-info.techidaily.com/the-elite-screen-hunt-10-monitors-for-your-mac-for-2024/"><u>The Elite Screen Hunt #10 Monitors for Your Mac for 2024</u></a></li>
 </ul></div>
 

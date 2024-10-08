@@ -1,7 +1,7 @@
 ---
 title: "Unveiling the Future: Critical Findings From ABBYY's Report on Smart Automation Progress"
-date: 2024-10-02T10:47:12.759Z
-updated: 2024-10-02T16:58:11.307Z
+date: 2024-10-07T19:12:09.133Z
+updated: 2024-10-08T18:06:00.407Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a33821f7d1add97134f0556ceb5947dead1c89e2bf8e16eab36445ca53259ede.jpg
@@ -45,10 +45,10 @@ More details about AI investments, ROI expected and achieved, budget priorities,
 ![](https://static1.abbyy.com/abbyycommedia/37805/infographic-economic-challenges-survey-en.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Methodology
@@ -56,16 +56,10 @@ More details about AI investments, ROI expected and achieved, budget priorities,
 This research was conducted by Sapio Research in July 2023 on behalf of ABBYY. 1000 IT decision makers from 17 industries including financial services, healthcare, transportation/logistics/supply chain, insurance, retail, government/public sector, and healthcare were surveyed across the US, UK, Germany, and France to understand how the current global economic stagnation is impacting investments in intelligent automation. The survey also looked at what technologies, if any, organizations plan to adopt in the near future.
 
 <!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### About ABBYY
@@ -75,16 +69,10 @@ ABBYY puts your information to work. We combine innovation and experience to tra
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
 <!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYY Editorial Contact
@@ -92,16 +80,10 @@ ABBYY can either be a registered trademark or a trademark and can also be a logo
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Gina Ray
@@ -127,22 +109,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-prime-video-game-editors-simplified-top-picks-for-newbies/"><u>[New] 2024 Approved Prime Video Game Editors Simplified Top Picks for Newbies</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-mastering-youtube-captions-3-effective-methods-to-download-srt-files/"><u>[New] Mastering YouTube Captions 3 Effective Methods to Download SRT Files</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-mastering-remote-conferences-with-5-elite-recorders/"><u>[Updated] Mastering Remote Conferences with 5 Elite Recorders</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-announces-appointment-of-weronika-niemczyk-as-senior-hr-director-and-people-strategy-head/"><u>ABBYY Announces Appointment of Weronika Niemczyk as Senior HR Director and People Strategy Head</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-launches-innovative-intelligent-automation-engineering-hub-in-lithuania/"><u>ABBYY Launches Innovative Intelligent Automation Engineering Hub in Lithuania</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-welcomes-ulf-persson-as-their-latest-chief-executive-officer/"><u>ABBYY Welcomes Ulf Persson as Their Latest Chief Executive Officer</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-chosen-as-the-premier-partner-of-everest-groups-idp-with-peak-matrix/"><u>ABBYY: Chosen as the Premier Partner of Everest Group's IDP with Peak Matrix</u></a></li>
-<li><a href="https://solve-info.techidaily.com/analysez-lefficacite-de-votre-processus-dadjudication-livre-electronique-abbyy-guide-complet/"><u>Analysez L'Efficacité De Votre Processus D'Adjudication : Livre Électronique ABBYY - Guide Complet</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/how-doordash-is-advancing-with-aerial-technology-for-swift-meal-deliveries/"><u>How DoorDash Is Advancing with Aerial Technology for Swift Meal Deliveries</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-itel-p55-by-drfone-android/"><u>In 2024, Complete Review & Guide to Techeligible FRP Bypass and More For Itel P55</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-motorola-defy-2-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Motorola Defy 2 | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-enable-usb-debugging-on-a-locked-vivo-y100i-phone-by-drfone-android/"><u>In 2024, How To Enable USB Debugging on a Locked Vivo Y100i Phone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/the-double-edged-sword-chatgpt-advanced/"><u>The Double-Edged Sword: ChatGPT Advanced</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-elite-cutting-edge-tools-for-app-editing/"><u>[New] 2024 Approved Elite Cutting-Edge Tools for App Editing</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/movavi-aifcwav/"><u>免費在線Movavi AIFC到WAV音頻轉換解決方案 - 無界限選擇性改變</u></a></li>
+<li><a href="https://games-able.techidaily.com/boosting-game-performance-on-series-sx-through-expertly-setup-vrr-settings/"><u>Boosting Game Performance on Series S/X Through Expertly Setup VRR Settings</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-and-set-up-your-usb-cam-driver-in-no-time/"><u>Download & Set Up Your USB Cam Driver in No Time</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-tecno-camon-20-pro-5g-drfone-by-drfone-virtual-android/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On Tecno Camon 20 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-conquer-the-elements-ranking-7-waterproof-cams/"><u>In 2024, Conquer the Elements Ranking #7 Waterproof Cams</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-new-multiple-ways-how-to-remove-icloud-activation-lock-on-your-apple-iphone-6s-plus-by-drfone-ios/"><u>In 2024, New Multiple Ways How To Remove iCloud Activation Lock On your Apple iPhone 6s Plus</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-tips-and-tricks-for-setting-up-your-oneplus-ace-2-pro-phone-pattern-lock-by-drfone-android/"><u>In 2024, Tips and Tricks for Setting Up your OnePlus Ace 2 Pro Phone Pattern Lock</u></a></li>
+<li><a href="https://solve-info.techidaily.com/sofia-tarasova-expert-collaborator-in-randd-and-product-innovation/"><u>Sofia Tarasova - Expert Collaborator in R&D & Product Innovation</u></a></li>
+<li><a href="https://solve-info.techidaily.com/transformez-votre-interface-avec-le-nouveau-sdk-dabbyy-lance-un-outil-mobile-baptise-capture-pour-une-meilleure-ux/"><u>Transformez Votre Interface Avec Le Nouveau SDK D'ABBYY Lance : Un Outil Mobile Baptisé Capture Pour Une Meilleure UX</u></a></li>
+<li><a href="https://solve-info.techidaily.com/understanding-web-pages-optimizing-your-sites-content-and-structure/"><u>Understanding Web Pages: Optimizing Your Site's Content and Structure</u></a></li>
 <li><a href="https://solve-info.techidaily.com/unleashing-potent-digital-advertising-solutions-with-cutting-edge-cookiebot-platforms/"><u>Unleashing Potent Digital Advertising Solutions with Cutting-Edge Cookiebot Platforms</u></a></li>
 <li><a href="https://solve-info.techidaily.com/unraveling-the-mystery-how-map-books-connect-to-boosting-process-intelligence-insights-from-abbyy/"><u>Unraveling the Mystery: How Map Books Connect to Boosting Process Intelligence - Insights From ABBYY</u></a></li>
-<li><a href="https://games-able.techidaily.com/unveiling-the-future-of-gaming-basilisk-v3-pro-reviewed/"><u>Unveiling the Future of Gaming - Basilisk V3 Pro Reviewed</u></a></li>
 <li><a href="https://solve-info.techidaily.com/utilizing-cookiebot-technology-for-enhanced-user-personalization-and-seo-success/"><u>Utilizing Cookiebot Technology for Enhanced User Personalization & SEO Success</u></a></li>
 </ul></div>
 

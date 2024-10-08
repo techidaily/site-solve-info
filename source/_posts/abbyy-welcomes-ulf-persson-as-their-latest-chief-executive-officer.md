@@ -1,7 +1,7 @@
 ---
 title: ABBYY Welcomes Ulf Persson as Their Latest Chief Executive Officer
-date: 2024-09-27T06:46:25.890Z
-updated: 2024-09-27T19:02:33.417Z
+date: 2024-10-05T19:16:41.494Z
+updated: 2024-10-08T18:48:27.278Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c80fad792e3cb229a3e653969139437b39335328a63ecf71a877586d96fe497a.jpg
@@ -56,26 +56,27 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ow-to-make-a-cool-youtube-video-intro-in-imovie/"><u>[New] How to Make a Cool YouTube Video Intro in iMovie?</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-top-techniques-for-professional-voice-capture/"><u>[New] Top Techniques for Professional Voice Capture</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-digital-dominance-youtubes-best-female-gamers/"><u>[Updated] 2024 Approved Digital Dominance YouTube's Best Female Gamers</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1726028728450-3/"><u>「最新ビデオ合成ツールベストセレクション：日本版3つのおすすめソフトウェア！」</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1726026907580-windows-1011/"><u>動画編集ツールとしてWindows 10/11「フォト」を利用するガイド</u></a></li>
-<li><a href="https://solve-info.techidaily.com/audacitym4a/"><u>AudacityでM4Aファイルが開けない場合の解決策</u></a></li>
-<li><a href="https://howto.techidaily.com/cellular-network-not-available-for-voice-calls-on-itel-a60-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Cellular Network Not Available for Voice Calls On Itel A60 | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/discovering-the-past-a-guide-on-accessing-archived-twitch-broadcasts/"><u>Discovering the Past: A Guide on Accessing Archived Twitch Broadcasts</u></a></li>
-<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-oppo-a1-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Oppo A1 5G | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-bypassing-google-account-with-vnrom-bypass-for-oneplus-ace-2v-by-drfone-android/"><u>In 2024, Bypassing Google Account With vnROM Bypass For OnePlus Ace 2V</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-conquer-chrome-multitasking-learn-to-utilize-pip-effectively/"><u>In 2024, Conquer Chrome Multitasking Learn to Utilize PIP Effectively</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Honor X50i? | Dr.fone</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-getting-the-pokemon-go-gps-signal-not-found-11-error-in-vivo-y100-drfone-by-drfone-virtual/"><u>In 2024, Getting the Pokemon Go GPS Signal Not Found 11 Error in Vivo Y100 | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1726030611184-powerdirector/"><u>PowerDirectorで効果的なビデオ編集:組み込み技術ガイド</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-briefing-on-simple-strategies-for-crafting-snapchat-duos/"><u>[Updated] 2024 Approved Briefing on Simple Strategies for Crafting Snapchat Duos</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-installation-route-to-windows-movie-maker-6-version-6/"><u>[Updated] In 2024, Installation Route to Windows Movie Maker 6 Version 6</u></a></li>
+<li><a href="https://techidaily.com/all-things-you-need-to-know-about-wipe-datafactory-reset-for-vivo-y100i-drfone-by-drfone-reset-android-reset-android/"><u>All Things You Need to Know about Wipe Data/Factory Reset For Vivo Y100i | Dr.fone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhanced-conversion-rates-with-cookiebot-technology/"><u>Enhanced Conversion Rates with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhanced-conversion-rates-with-our-cookiebot-driven-technology/"><u>Enhanced Conversion Rates with Our Cookiebot-Driven Technology</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhanced-marketing-insights-through-cookiebot-technology/"><u>Enhanced Marketing Insights Through Cookiebot Technology</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhanced-marketing-success-with-cookiebot-technology/"><u>Enhanced Marketing Success with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhanced-user-experience-with-cookiebots-smart-data-tracking-solutions/"><u>Enhanced User Experience with Cookiebot's Smart Data Tracking Solutions</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhanced-user-tracking-with-cookiebot-technology/"><u>Enhanced User Tracking with Cookiebot Technology</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/fixed-preventing-nvidia-install-errors/"><u>Fixed: Preventing NVIDIA Install Errors</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/image-rendering-error-corrected-22/"><u>Image Rendering Error Corrected: #22</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/preventing-and-addressing-live-pause-issues-fb-for-2024/"><u>Preventing and Addressing Live Pause Issues (FB) for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/sage-scripts-for-soundplays/"><u>Sage Scripts for Soundplays</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-best-free-language-learning-apps-of-the-year-2024-our-top-picks/"><u>The Best Free Language-Learning Apps of the Year 2024 - Our Top Picks!</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-some-people-want-to-make-instagram-instagram-again/"><u>Why Some People Want to Make Instagram Instagram Again</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

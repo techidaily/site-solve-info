@@ -1,7 +1,7 @@
 ---
 title: "Experienced Dev Leader: Mihajlo Mulic Takes the Helm as Senior Software Pro at ABBYY"
-date: 2024-10-01T23:33:09.518Z
-updated: 2024-10-03T08:51:38.477Z
+date: 2024-10-04T18:19:26.530Z
+updated: 2024-10-08T18:42:22.790Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/150327f2d987016a4ee34ba4bcfca25233b747d0406c31e769e57594f793215f.jpg
@@ -39,20 +39,13 @@ The added perk is that I can work from different locations, which is a huge bonu
 
 ![Vienna, Austria - Mihajlo Mulic, Senior Software Developer at ABBYY](https://static1.abbyy.com/abbyycommedia/38050/mihajlo-mulic-abbyy-vienna.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Berlin, Germany - Mihajlo Mulic](https://static1.abbyy.com/abbyycommedia/38044/mihajlo-mulic-abbyy-berlin.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Your work journey is quite diverse; what was your previous experience before ABBYY, and how did you find your way into this area of Software Development?
@@ -67,6 +60,13 @@ The most exciting part, without a doubt, is the people. I have the privilege of 
 
 My job is very dynamic in nature, there are different problems to solve each day, and it keeps things exciting. You're constantly challenged to solve problems, innovate, and improve solutions.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### What do you find most challenging in your role?
 
 Haha! The most challenging part is, ironically, solving different problems every day. In the short term, it can sometimes feel intense, but in the long run, it's what leads to personal and professional growth.
@@ -76,22 +76,22 @@ The beginning, transitioning into a new role or company, is often the toughest. 
 ![Santorini, Greece - ABBYY Software Developers - Mihajlo Mulic](https://static1.abbyy.com/abbyycommedia/38045/mihajlo-mulic-abbyy-santorini.png)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Your top advice to someone looking to follow a career path in Software Development?
 
 My advice is simple: cultivate curiosity and patience. **Curiosity keeps you asking questions and exploring, while patience enables you to tackle complex problems. Both are crucial for continuous learning, a must in the fast-evolving landscape of software engineering.**
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Work-life balance is important—how would you define it for yourself?
 
@@ -100,13 +100,6 @@ Work-life balance is something quite individual, and ABBYY's [flexible working a
 Sometimes this means staying late to finish a task, but sometimes it could mean taking a longer lunch break without worrying that I have to be back at my desk by a specific time. This way the work gets done, and my personal life does not suffer.
 
 ![](https://static1.abbyy.com/abbyycommedia/38047/mihajlo-mulic-family-1.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![](https://static1.abbyy.com/abbyycommedia/38048/mihajlo-mulic-family-2.png)
 
@@ -117,10 +110,10 @@ Not long after I was born, my parents opened a bookstore (pictured below), and i
 ![](https://static1.abbyy.com/abbyycommedia/38049/mihajlo-mulic-library.png)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Since then, I've really broadened my reading horizons. I even got impatient waiting for translations and started diving into books in English. One that stands out is _The Wheel of Time_ series, which just got its television adaptation that is fantastic. Although, I'd say it's worth reading the books first.
@@ -134,10 +127,10 @@ Aside from reading and watching movies/series, I really enjoy running, traveling
 Want to follow Mihajlo's footsteps and join one of our tech hubs? You're in luck! Check out our [careers page](https://tools.techidaily.com/abbyy/products/) for opportunities to join our team in Serbia, Cyprus, Hungary, and more.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Interested in joining the ABBYY team? Please check the vacancies below and apply!
@@ -157,6 +150,13 @@ Share
 [ABBYY Spotlight: Sofia Tarasova, People Partner for the Research and Development and Product Development teams](https://tools.techidaily.com/abbyy/products/) 
 
 ![](https://static2.abbyy.com/abbyycommedia/37579/milos-savic_cover_848x444-2.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [ABBYY Spotlight: Milos Savic, Security Compliance Officer](https://tools.techidaily.com/abbyy/products/) 
 
@@ -219,19 +219,17 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-hourly-heavy-hitters-top-ten-youtube-video-rankings-in-a-day/"><u>[New] 2024 Approved Hourly Heavy Hitters Top Ten YouTube Video Rankings in a Day</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/rafting-curls-and-contours-creating-a-personalized-beauty-channel/"><u>[New] Crafting Curls and Contours Creating a Personalized Beauty Channel</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-diving-deep-into-the-detail-of-minecraft-design/"><u>[New] In 2024, Diving Deep Into the Detail of Minecraft Design</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-secrets-to-capturing-engaging-and-dynamic-presentations/"><u>[Updated] In 2024, Secrets to Capturing Engaging and Dynamic Presentations</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-moneyminded-cloud-vault-capacious-cost-effective/"><u>2024 Approved MoneyMinded Cloud Vault - Capacious, Cost-Effective</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-navigating-through-the-best-pc-vr-headset-lineup-of-2023/"><u>2024 Approved Navigating Through the Best PC VR Headset Lineup of 2023</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-changefake-your-nubia-red-magic-8s-pro-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your Nubia Red Magic 8S Pro Location on Viber | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/how-to-delete-suggestions-for-you-on-instagram/"><u>How to Delete 'Suggestions for You' On Instagram</u></a></li>
-<li><a href="https://solve-info.techidaily.com/junges-management-gefahrdet-durch-ineffiziente-geschaftspraktiken-und-veraltete-technologie-abbyy-umfrage-zeigt-schnelle-demotivierung-gegenuber-alteren-kol9/"><u>Junges Management Gefährdet Durch Ineffiziente Geschäftspraktiken Und Veraltete Technologie: ABBYY Umfrage Zeigt Schnelle Demotivierung Gegenüber Älteren Kollegen</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-instagram-video-magic-techniques-to-elevate-your-social-media-impact/"><u>[New] 2024 Approved Instagram Video Magic Techniques to Elevate Your Social Media Impact</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-your-screens-guide-to-smart-stocks/"><u>[Updated] Your Screen's Guide to Smart Stocks</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/breathtaking-stunts-and-jumps-2022-fig-skates/"><u>Breathtaking Stunts and Jumps - 2022 Fig Skates</u></a></li>
+<li><a href="https://win-answers.techidaily.com/eliminating-fps-drops-essential-fixes-for-forza-horizon-5-lag-problems/"><u>Eliminating FPS Drops: Essential Fixes for Forza Horizon 5 Lag Problems</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-is-a-sim-network-unlock-pin-get-your-realme-narzo-60-5g-phone-network-ready-by-drfone-android/"><u>In 2024, What Is a SIM Network Unlock PIN? Get Your Realme Narzo 60 5G Phone Network-Ready</u></a></li>
 <li><a href="https://solve-info.techidaily.com/launching-intelligent-transit-solutions-insights-from-the-abbyy-blog/"><u>Launching Intelligent Transit Solutions: Insights From the ABBYY Blog</u></a></li>
 <li><a href="https://solve-info.techidaily.com/les-avantages-dutiliser-locr-dabbevillier-pour-les-amateurs-de-vin-la-solution-la-plus-appreciee-par-vivino/"><u>Les Avantages D'utiliser L'OCR D'Abbevillier Pour Les Amateurs De Vin: La Solution La Plus Appréciée Par Vivino</u></a></li>
 <li><a href="https://solve-info.techidaily.com/leveraging-cookiebot-technology-for-superior-visitor-insights-and-site-optimization/"><u>Leveraging Cookiebot Technology for Superior Visitor Insights and Site Optimization</u></a></li>
 <li><a href="https://solve-info.techidaily.com/mastering-modern-banking-challenges-proven-abbyy-strategies-for-thriving-through-crisis-and-beyond/"><u>Mastering Modern Banking Challenges: Proven ABBYY Strategies for Thriving Through Crisis and Beyond</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-best-bang-for-your-buck-an-in-depth-look-at-the-hp-omen-obelisk-gaming-rig/"><u>The Best Bang for Your Buck? An In-Depth Look at the HP OMEN Obelisk Gaming Rig</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-unleash-fcpxs-power-the-best-10-plugins-for-video-editing-pros-for-2024/"><u>New Unleash FCPXs Power The Best 10 Plugins for Video Editing Pros for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/norton-rose-llp-utilise-le-serveur-de-reconnaissance-dabbyy-pour-la-digitalisation-centrale-des-documents/"><u>Norton Rose LLP Utilise Le Serveur De Reconnaissance D'ABBYY Pour La Digitalisation Centrale Des Documents</u></a></li>
+<li><a href="https://techidaily.com/unlock-android-phone-if-you-forget-the-spark-20c-password-or-pattern-lock-by-drfone-android-unlock-android-unlock/"><u>Unlock android phone if you forget the Spark 20C password or pattern lock</u></a></li>
 </ul></div>
 

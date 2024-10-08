@@ -1,7 +1,7 @@
 ---
 title: ジェームズ・ライター氏がABBYYの新しいCFOとして昇格
-date: 2024-09-26T22:48:11.175Z
-updated: 2024-10-03T00:30:46.089Z
+date: 2024-10-07T16:57:56.113Z
+updated: 2024-10-08T18:35:08.292Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b00431bdf0c9ec5881d711d0e.jpg
@@ -28,10 +28,10 @@ ABBYY社の最高財務責任者（CFO）に就任したJames Ritterは次のよ
 Ritterは、WPP、Ferrovial、BigCommerceなど複数の世界企業で上級管理職を務めてきました。2021年6月に財務担当バイスプレジデントとしてABBYYに入社する前は、国際的な企業向けソフトウェア会社であるAccruentのVPコントローラーでした。ローワン大学で会計学士号を取得し、公認会計士の資格を持つとともに、現在はボストン大学のクエストロムビジネススクールのMBA課程で学んでおり、テキサス州在住です。
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYYについて
@@ -41,10 +41,16 @@ Ritterは、WPP、Ferrovial、BigCommerceなど複数の世界企業で上級管
 ABBYYとABBYYのロゴは、ABBYY Software Ltd.の登録商標または商標です。本記事に記載されているその他の製品名は、各所有者の商標または登録商標の場合があります。
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 報道関係者お問い合わせ先
@@ -70,20 +76,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-a-detailed-walkthrough-embedding-online-video-into-ms-presentations/"><u>[New] A Detailed Walkthrough Embedding Online Video Into MS Presentations</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/new-best-of-android-collage-a-curation-of-superiority/"><u>[New] Best-Of Android Collage A Curation of Superiority</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-essential-free-nintendo-switch-games/"><u>[New] Essential Free Nintendo Switch Games</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-master-your-creative-process-essential-affects-plugin-guide/"><u>[Updated] 2024 Approved Master Your Creative Process Essential Affects Plugin Guide</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-digital-arcade-over-a-hundred-game-channels/"><u>[Updated] In 2024, Digital Arcade Over a Hundred Game Channels</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-omnicharge-omni-20-a-multifaceted-portable-charger-with-qi-wireless-technology/"><u>Comprehensive Review of the Omnicharge Omni 20 - A Multifaceted Portable Charger with Qi Wireless Technology</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/econoumbrellakit-studio-lights-on-a-low-budget/"><u>EconoUmbrellaKit: Studio Lights on a Low Budget</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-screen-to-poco-c50-phones-drfone-by-drfone-android/"><u>In 2024, How to Mirror PC Screen to Poco C50 Phones? | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/protecting-private-viewing-how-to-enable-password-security-on-kodi-platform/"><u>Protecting Private Viewing: How To Enable Password Security on Kodi Platform</u></a></li>
-<li><a href="https://solve-info.techidaily.com/simple-steps-transforming-dv-videos-into-avi-format-on-your-pc/"><u>Simple Steps: Transforming DV Videos Into AVI Format on Your PC</u></a></li>
-<li><a href="https://solve-info.techidaily.com/step-by-step-guide-to-transforming-windows-media-files-into-mp4-players/"><u>Step-by-Step Guide to Transforming Windows Media Files Into MP4 Players</u></a></li>
-<li><a href="https://solve-info.techidaily.com/step-by-step-guide-adding-and-extracting-subtitles-in-m2ts-video-format/"><u>Step-by-Step Guide: Adding and Extracting Subtitles in M2TS Video Format</u></a></li>
-<li><a href="https://solve-info.techidaily.com/step-by-step-guide-converting-mkv-video-track-into-mp4m4a-audio-file/"><u>Step-by-Step Guide: Converting MKV Video Track Into MP4/M4A Audio File</u></a></li>
-<li><a href="https://solve-info.techidaily.com/step-by-step-tutorial-on-recording-google-duo-sessions-including-sound/"><u>Step-by-Step Tutorial on Recording Google Duo Sessions Including Sound</u></a></li>
-<li><a href="https://solve-info.techidaily.com/stream-recording-guide-efficiently-archiving-twitch-broadcasts-from-your-desktop-computer/"><u>Stream Recording Guide: Efficiently Archiving Twitch Broadcasts From Your Desktop Computer</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-natural-beauty-video-suggestions/"><u>[Updated] In 2024, Natural Beauty Video Suggestions</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/achieving-distraction-free-video-conferencing-with-skype/"><u>Achieving Distraction-Free Video Conferencing with Skype</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-complete-guide-for-apple-iphone-14-pro-lock-screen-by-drfone-ios/"><u>In 2024, Complete Guide For Apple iPhone 14 Pro Lock Screen</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-samsung-galaxy-f34-5g-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Samsung Galaxy F34 5G to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-strategic-hash-tags-chart-your-way-to-60000-in-views/"><u>In 2024, Strategic Hash Tags Chart Your Way to $60,000 in Views</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/new-in-2024-master-deepface-live-download-and-train-your-live-model/"><u>New In 2024, Master Deepface Live Download and Train Your Live Model</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/pokemon-go-cooldown-chart-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>Pokémon Go Cooldown Chart On Apple iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/revolutionize-your-it-infrastructure-using-ai-essential-strategies-by-abbyy-experts/"><u>Revolutionize Your IT Infrastructure Using AI: Essential Strategies by ABBYY Experts</u></a></li>
+<li><a href="https://solve-info.techidaily.com/smart-integration-of-ai-and-robotics-in-modern-medicine-infographic-guide/"><u>Smart Integration of AI and Robotics in Modern Medicine - Infographic Guide</u></a></li>
+<li><a href="https://solve-info.techidaily.com/streamlined-workflow-integration-with-pipefy-and-abbyy-document-automation/"><u>Streamlined Workflow Integration with Pipefy & ABBYY Document Automation</u></a></li>
+<li><a href="https://solve-info.techidaily.com/texthelp-und-abbyy-revolutionarer-support-fur-menschen-mit-leseschwache-oder-dysgraphie/"><u>Texthelp Und ABBYY: Revolutionärer Support Für Menschen Mit Leseschwäche Oder Dysgraphie</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/the-ultimate-checklist-for-top-tier-instagram-reels-for-2024/"><u>The Ultimate Checklist for Top-Tier Instagram Reels for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ltimate-copyright-strategy-for-online-video-creators-for-2024/"><u>The Ultimate Copyright Strategy for Online Video Creators for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/unleash-potential-with-our-cookiebot-integrated-services/"><u>Unleash Potential with Our Cookiebot Integrated Services</u></a></li>
+<li><a href="https://solve-info.techidaily.com/untapped-opportunities-how-british-enterprises-can-harness-automation-advantages-according-to-abbyy-insights/"><u>Untapped Opportunities: How British Enterprises Can Harness Automation Advantages, According to ABBYY Insights</u></a></li>
+<li><a href="https://solve-info.techidaily.com/verbessern-sie-die-sicherheit-von-dokumenten-bei-der-eingabe-mit-tangro-hochladen-per-process-security/"><u>Verbessern Sie Die Sicherheit Von Dokumenten Bei Der Eingabe Mit Tangro® - Hochladen per Process Security</u></a></li>
+<li><a href="https://solve-info.techidaily.com/warum-fehlt-es-bei-deutschen-firmen-oftmals-an-einem-verstandnis-fur-rpa-was-zu-misserfolgen-fuhrt-insights-von-abbyy/"><u>Warum Fehlt Es Bei Deutschen Firmen Oftmals an Einem Verständnis Für RPA, Was Zu Misserfolgen Führt – Insights Von ABBYY</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Photography Tips & Task Management Secrets Revealed on ABBYY Blog
-date: 2024-10-01T09:21:13.371Z
-updated: 2024-10-03T11:47:18.511Z
+date: 2024-10-07T18:19:32.855Z
+updated: 2024-10-08T18:16:32.791Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1b264feb60401b06f1b5b9d369aaa689e44f7f3921972fa9eb3d747a1df53b5a.jpg
@@ -30,8 +30,22 @@ In most cases, you get a promo code in the form of a link. You just tap it on yo
 1\. Open the App Store app on your device (that’s where you download your apps)  
 ![Redeem App Store Promo Code iPhone iPad](https://static1.abbyy.com/abbyycommedia/25934/img_3980-e1505138773195.png)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 2\. Click "Updates", and then - the icon (blue silhouette in a circle) or your photo in the upper right corner.  
 ![Redeem App Store Promo Code iPhone iPad](https://static1.abbyy.com/abbyycommedia/30514/1-angl.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 3\. Sign in with your Apple ID.
 
@@ -39,10 +53,10 @@ In most cases, you get a promo code in the form of a link. You just tap it on yo
 ![Enter your gift card download code iPhone](https://static1.abbyy.com/abbyycommedia/30515/4-angl.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 5\. That’s it! Your app will start downloading immediately.  
@@ -63,10 +77,10 @@ Here’s how you do it:
 3\. Enter your account password once again, then paste your promo code into the field at the bottom and you’re done.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Android Tip: How to Redeem Your Google Play Promo Code**
@@ -77,13 +91,6 @@ The procedure is similar for Android-powered devices. Here again, you are most l
 
 2\. Tap the **Redeem** icon.  
 ![reedeem Google Play promo](https://static1.abbyy.com/abbyycommedia/31172/1-1.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 3\. Enter your promo code.  
 ![redeem promo code Google Play](https://static1.abbyy.com/abbyycommedia/31173/2.png)
@@ -99,20 +106,6 @@ There’s also an alternative route: you can use the web version of Google Play 
 
 ![redeem activate promo code android](https://static1.abbyy.com/abbyycommedia/25940/f445d31baebfda3cef1cda1b51f7860f-e1505142714275.png)
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
-  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **ABBYY Tip: How to Take Photos Like a Pro**
 
 Unsurprisingly, the quality of OCR is heavily dependent on the quality of document photos you feed to the system. Smart robots, Big Data and even deep machine learning are helpless if the text on the photo is downright illegible. The good news is that it only takes one minute of careful preparation, and then ABBYY technology will work its magic to complete the process. There are several common image defects that make the OCR engine wince from pain. Here’s a few tips how you can keep the recognition engine happy and get excellent results.
@@ -120,15 +113,15 @@ Unsurprisingly, the quality of OCR is heavily dependent on the quality of docume
 1\. **Poor lighting.** The more light you have, the better. It also helps if the light is evenly distributed. Taking snapshots at night while sitting in a car with business cards or documents placed in your lap will almost certainly not work. No technology, however intelligent, will be able to capture text which you can hardly read yourself. Naturally, there are occasions when you just have no choice, but if there’s no urgency, you’d do wise to wait for daylight and take a picture in a less shaky environment.  
 ![abbyy ocr poor lighting](https://static1.abbyy.com/abbyycommedia/25941/4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 2\. **Wrong focus point** is another image defect that may make you want to rip your hair out. Why is it that sometimes the camera will focus on any object in sight save the text that you need to capture? Digital cameras use special technology to determine the distance to the subject. To perform reliably, it needs sufficient lighting and high-contrast objects. Besides, it is often fine-tuned for portraits and common indoor and outdoor scenes. If your camera has hard time focusing on the text, give it a helping hand by pointing the lens to some high-contrast (e.g. black and white) area. It’s best to give the camera some time to focus on the text instead of taking a few hasty snapshots in the hope that you can improve their sharpness later.  
 ![fix wrong focus point taking photos](https://static1.abbyy.com/abbyycommedia/31175/5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 3\. **Blur** is caused by camera shake. It is more likely to occur in dark environments, because the camera will keep the shutter open until the sensor gets enough light. Even if you have the steady hands of a neurosurgeon, your heartbeats may transfer to the camera and cause blur. So, if your camera is not equipped with optical image stabilization, shoot like a marksman: hold the camera steady in your hands, hold your breath and softly press the shutter release button. If you need to take lots of pictures in one session, we would advise using a flexible clamp mount. We use one ourselves and can confirm that it does the trick.  
 ![finescanner text analyse blurred photo](https://static1.abbyy.com/abbyycommedia/25942/6.jpg)
@@ -136,15 +129,15 @@ Unsurprisingly, the quality of OCR is heavily dependent on the quality of docume
 4\. **Shadows and glare.** These, too, are also caused by uneven or insufficient lighting. Using the flash may help, but its trickier with small objects like business cards. Hot spots may occur where you least expect them. If your text is printed on glossy paper, position the camera so that you don’t see the direct reflection of the lamp on the document. Light should be evenly distributed over the document. Look out for shadows. Remember that your arms can obstruct the light and cause shadows too. If this is the case, you may want to reposition the camera, move to another room or add an extra light source.  
 ![textgrabber ocr abbyy glare](https://static1.abbyy.com/abbyycommedia/25943/7.jpg)![finescanner text recognition image shadows](https://static1.abbyy.com/abbyycommedia/25944/8.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 5\. **“Difficult” backgrounds.** These can cause some headache. The background is not the subject, but it often attempts to pull the focus to itself. The general rule of thumb is to shoot against uniform backgrounds and have as few other objects in the frame as possible. Avoid white backgrounds, though.  
 ![finescanner text analyse background](https://static1.abbyy.com/abbyycommedia/25945/img_5353-e1505149724965.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 6\. **Poor angle.** If you shoot at an angle, rather than positioning the camera directly above the document, make sure that the angle is not too steep. Otherwise, the image correction algorithms may become helpless. The trapezoid correction mechanism can work wonders, but it’s not omnipotent and won’t be able to restore the document to its normal rectangular self if you shoot it from a prone position.  
 ![finescanner text analyse poor angle](https://static1.abbyy.com/abbyycommedia/25946/9.jpg)
@@ -155,6 +148,13 @@ Unsurprisingly, the quality of OCR is heavily dependent on the quality of docume
 To sum up: uniform non-white backgrounds, even natural lighting and steady hands will give you a picture that’s perfectly suitable for OCR. Modern cameras (and users) are very good, but we hope these tips you will help you move a few steps closer to perfection.
 
 ![TextGrabber FineScanner OCR](https://static1.abbyy.com/abbyycommedia/25948/11.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **App of the Week: Keeping Track of Your Tasks with Asana**
 
@@ -170,6 +170,13 @@ There has never been a shortage of task managing apps, but my app of choice is [
 3\. Asana offers a neat and uncluttered UI on all of the supported platforms.
 
 Actually, Asana is actively evolving towards a project management tool with all the necessary PM features, including teams, discussions, projects, dashboards where you can add and remove project cards, etc. All the features are very well documented in detailed [Asana guides](https://asana.com/guide) (these are all in English, but it shouldn’t be a problem for most users). With all this horsepower under the hood, the app is equally useful as a personal task manager.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **First-Hand Experience:** Advice From a Colleague
 
@@ -187,13 +194,6 @@ Start reviewing interim results early on in the process. Even if it’s just pre
 We hope you find these tips useful. As always, your comments, ideas, and suggestions are very welcome and will be considered with great attention. See you next Monday!
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -258,16 +258,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/ed-how-to-guide-perfect-your-youtube-video-looping-game-for-2024/"><u>[Updated] How-To Guide Perfect Your YouTube Video Looping Game for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-simplified-guide-to-implementing-speech-transcription-in-powerpoint/"><u>2024 Approved Simplified Guide to Implementing Speech Transcription in PowerPoint</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyys-intelligent-capture-connector-now-ready-on-uipath-marketplace-enhance-automation-with-advanced-ocr-technology/"><u>ABBYY's Intelligent Capture Connector Now Ready on UiPath Marketplace, Enhance Automation with Advanced OCR Technology!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/ai-driven-process-improvement-and-efficient-paperwork-management-in-government-sectors/"><u>AI-Driven Process Improvement & Efficient Paperwork Management in Government Sectors</u></a></li>
-<li><a href="https://solve-info.techidaily.com/automated-insurance-underwriting-with-data-driven-techniques/"><u>Automated Insurance Underwriting with Data-Driven Techniques</u></a></li>
-<li><a href="https://solve-info.techidaily.com/automated-web-analytics-with-cookiebot-technology/"><u>Automated Web Analytics with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-site-engagement-with-cookiebot-technology-integration/"><u>Boost Site Engagement with Cookiebot Technology Integration</u></a></li>
-<li><a href="https://fox-links.techidaily.com/capture-perfection-iphone-x8plus-ultimate-lens-tools/"><u>Capture Perfection IPhone X/8+ Ultimate Lens Tools</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/1722971581564-effortless-installation-get-your-latest-amd-ati-radeon-hd-graphics-card-drivers-installed-today/"><u>Effortless Installation: Get Your Latest AMD ATI Radeon HD Graphics Card Drivers Installed Today!</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-unveiling-the-latest-in-non-fbx-gameplay-tracking/"><u>In 2024, Unveiling the Latest in Non-FBX Gameplay Tracking</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ring-youtube-video-transformation-into-animated-gifs-no-save-for-2024/"><u>Mastering YouTube Video Transformation Into Animated GIFs (No Save) for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-downloading-made-simple-discover-the-4-aces/"><u>[New] In 2024, Downloading Made Simple Discover the 4 Aces</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unbeatable-prices-for-top-6-action-cams-under-100/"><u>[New] Unbeatable Prices for Top 6 Action Cams Under $100</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-enhance-your-gaming-sims-4-on-camera-techniques/"><u>[Updated] In 2024, Enhance Your Gaming Sims 4 on Camera Techniques</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-and-update-with-ease-dell-xps-13-device-drivers/"><u>Download and Update with Ease: Dell XPS 13 Device Drivers</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-bypass-the-required-apple-store-verification-for-iphone-se-drfone-by-drfone-ios/"><u>How To Bypass the Required Apple Store Verification For iPhone SE | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-factory-unlock-your-telstra-iphone-se-2022-by-drfone-ios/"><u>How To Factory Unlock Your Telstra iPhone SE (2022)</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/mastering-idea-generation-a-guide-to-brainstorming-with-mindmaps-and-chatgpt/"><u>Mastering Idea Generation: A Guide to Brainstorming with Mindmaps & ChatGPT</u></a></li>
+<li><a href="https://solve-info.techidaily.com/mastering-the-procurement-and-payments-journey-a-definitive-guide/"><u>Mastering the Procurement and Payments Journey: A Definitive Guide</u></a></li>
+<li><a href="https://driver-install.techidaily.com/no-fuss-no-trouble-w7-wi-fi-extender/"><u>No Fuss, No Trouble: W7 Wi-Fi Extender</u></a></li>
+<li><a href="https://solve-info.techidaily.com/optimized-with-the-help-of-cookiebot-enhanced-website-analytics/"><u>Optimized with the Help of Cookiebot: Enhanced Website Analytics</u></a></li>
+<li><a href="https://solve-info.techidaily.com/revolutionizing-document-automation-through-abbyy-vance-harnessing-power-of-computer-vision-and-large-language-models/"><u>Revolutionizing Document Automation Through ABBYY Vance - Harnessing Power of Computer Vision and Large Language Models</u></a></li>
+<li><a href="https://solve-info.techidaily.com/revolutionizing-public-sector-the-impact-of-artificer-intelligence-in-citizen-identification/"><u>Revolutionizing Public Sector: The Impact of Artificer Intelligence in Citizen Identification</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/step-by-step-solutions-for-enhancing-iphone-speaker-volume-during-calls/"><u>Step-by-Step Solutions for Enhancing iPhone Speaker Volume During Calls</u></a></li>
+<li><a href="https://solve-info.techidaily.com/top-process-insight-narratives-from-abbyys-annual-digest/"><u>Top Process Insight Narratives From ABBYY's Annual Digest</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: アバビイ調査で優勝者を決める：エベレスト・コンソーシアムのPEAK Matrixリーダー指数2024 - IDP
-date: 2024-10-02T12:16:59.706Z
-updated: 2024-10-03T07:46:52.517Z
+date: 2024-10-05T17:23:39.341Z
+updated: 2024-10-08T16:08:26.535Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ac7b7d7eb1b61e878d4715837135fe97081096b41d9601e6ca5eb36f744ec4b7.jpg
@@ -14,10 +14,10 @@ thumbnail: https://thmb.techidaily.com/ac7b7d7eb1b61e878d4715837135fe97081096b41
 ## 6年連続6回目： エベレストグループ、PEAK Matrix®評価でABBYYをインテリジェント文書処理（IDP）製品のリーダーに選出
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYYは、エベレストグループの2024年度PEAK Matrix®評価で再びインテリジェント文書処理（IDP）製品 のリーダーに選ばれました。 
@@ -25,10 +25,10 @@ thumbnail: https://thmb.techidaily.com/ac7b7d7eb1b61e878d4715837135fe97081096b41
 ![PEAK_Matrix_2024_-_Intelligent_Document_Processing__IDP__-_ABBYY](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/resource-center/content-images/peak_matrix_2024_-_intelligent_document_processing__idp__-_abbyy.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 あらゆるインテリジェントオートメーションプラットフォームに統合可能な、業界唯一のローコード/ノーコードIDPプラットフォームであるABBYY Vantageを擁するABBYYは、その卓越したビジョンと能力、さらに市場への影響力が高く評価されています。Vantageは、ABBYY Marketplaceで提供される、ものの数分で使い始めることのできる事前構築済みのAIモデルを使用して、定型および非定型文書を処理する機能を備えています。 
@@ -42,10 +42,10 @@ ABBYYは、エベレストグループのインテリジェント文書処理（
 _**Vaibhav Bansal, Vice President, Everest Group**_
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## ABBYYにご関心をお寄せいただき、誠にありがとうございます。 
@@ -119,18 +119,14 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-troubleshooting-iphone-and-android-fb-messenger-stuck-on-videos-for-2024/"><u>[New] Troubleshooting iPhone & Android FB Messenger Stuck on Videos for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-overcoming-non-detectable-obs-camera-link/"><u>2024 Approved Overcoming Non-Detectable OBS Camera Link</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/affordable-propella-7s-40-a-review-of-its-lightweight-and-agile-features/"><u>Affordable Propella 7S 4.0 - A Review of Its Lightweight and Agile Features</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-fix-icloud-lock-on-your-apple-iphone-14-plus-and-ipad-by-drfone-ios/"><u>In 2024, How to fix iCloud lock on your Apple iPhone 14 Plus and iPad</u></a></li>
-<li><a href="https://solve-info.techidaily.com/obstop-5/"><u>OBSと連携し、最高の動画編集ソフトウェアをご紹介！Top 5リスト</u></a></li>
-<li><a href="https://solve-info.techidaily.com/protecting-private-viewing-how-to-enable-password-security-on-kodi-platform/"><u>Protecting Private Viewing: How To Enable Password Security on Kodi Platform</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/reweaving-broken-streams-into-coherent-videos/"><u>Reweaving Broken Streams Into Coherent Videos</u></a></li>
-<li><a href="https://solve-info.techidaily.com/simple-steps-transforming-dv-videos-into-avi-format-on-your-pc/"><u>Simple Steps: Transforming DV Videos Into AVI Format on Your PC</u></a></li>
-<li><a href="https://solve-info.techidaily.com/step-by-step-guide-to-transforming-windows-media-files-into-mp4-players/"><u>Step-by-Step Guide to Transforming Windows Media Files Into MP4 Players</u></a></li>
-<li><a href="https://solve-info.techidaily.com/step-by-step-guide-adding-and-extracting-subtitles-in-m2ts-video-format/"><u>Step-by-Step Guide: Adding and Extracting Subtitles in M2TS Video Format</u></a></li>
-<li><a href="https://solve-info.techidaily.com/step-by-step-guide-converting-mkv-video-track-into-mp4m4a-audio-file/"><u>Step-by-Step Guide: Converting MKV Video Track Into MP4/M4A Audio File</u></a></li>
-<li><a href="https://driver-error.techidaily.com/take-back-the-magic-of-seamless-connectivity-a-simple-fixed-to-bluetooth-issues-on-latest-os-update-guide-inside/"><u>Take Back the Magic of Seamless Connectivity- A Simple Fixed to Bluetooth Issues on Latest OS Update [Guide Inside!]</u></a></li>
-<li><a href="https://location-social.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-samsung-galaxy-m54-5g-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your Samsung Galaxy M54 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-the-art-of-minimizing-lag-with-additional-ram-for-minecraft/"><u>[New] The Art of Minimizing Lag with Additional RAM for Minecraft</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-unbeatable-6-apps-for-crafting-perfect-reels-on-instagram-for-2024/"><u>[New] Unbeatable 6 Apps for Crafting Perfect Reels on Instagram for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-boosting-youtube-videos-activating-av1-support/"><u>[Updated] 2024 Approved Boosting YouTube Videos Activating AV1 Support</u></a></li>
+<li><a href="https://solve-info.techidaily.com/3gppmp3-seo/"><u>「安全で高速・簡単な3GPPファイルのMP3への大容量変換ガイド – SEO向け最適化タイトル」</u></a></li>
+<li><a href="https://solve-info.techidaily.com/a-step-by-step-guide-to-embedding-audio-onto-video-clips-with-vlc-software/"><u>A Step-by-Step Guide to Embedding Audio Onto Video Clips with VLC Software</u></a></li>
+<li><a href="https://solve-info.techidaily.com/best-methods-to-reduce-size-of-mov-video-files-using-popular-compression-software-across-devices-and-services/"><u>Best Methods to Reduce Size of MOV Video Files Using Popular Compression Software Across Devices and Services</u></a></li>
+<li><a href="https://solve-info.techidaily.com/capcutwindows/"><u>CapCutアプリケーションでWindows上で動画劇場化マスタリー術</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-stepwise-approach-transform-fish-voices-on-pcs/"><u>In 2024, Stepwise Approach Transform Fish Voices on PCs</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/wmvmpeg-movavi/"><u>WMV/MPEG 파일을 원근 상호 의미 전송을 위해 인터넷 공간에서 무가스로 변환하기 - Movavi</u></a></li>
 </ul></div>
 

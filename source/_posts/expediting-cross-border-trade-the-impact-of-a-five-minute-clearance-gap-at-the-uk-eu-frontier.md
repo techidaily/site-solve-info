@@ -1,7 +1,7 @@
 ---
 title: "Expediting Cross-Border Trade: The Impact of a Five-Minute Clearance Gap at the UK-EU Frontier"
-date: 2024-10-01T23:12:15.940Z
-updated: 2024-10-02T18:08:58.092Z
+date: 2024-10-04T17:37:55.862Z
+updated: 2024-10-08T16:04:12.514Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f4ca93c2e74735632031e3a4405d77d7b0983d4143ac728b22e36df439e2bb35.jpg
@@ -29,16 +29,23 @@ Joe Corcoran, Lead Consultant CustomsTrack
 * The process is lengthy and cumbersome. Manual keying of data into national customs systems is error-prone, slow, and costly.
 * Delays at customs due to missing or incorrect information is an issue, particularly for manufacturers of FMCG.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Solution
 
 * ABBYY’s intelligent document processing (IDP) solution extracts data from commercial invoices and packing lists with close to 100 percent accuracy. It sends the data to the CustomsTrack solution to automatically create export and import customs declarations for filing with national customs systems.
 * With the CustomsTrack solution, international enterprises can take control over customs operations, eliminating the need for customs brokerage services, which add cost and complexity to the process.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Value
@@ -56,6 +63,19 @@ Joe Corcoran, Lead Consultant CustomsTrack
 
 ![FC_1](https://content.abbyy.com/-/media/project/abbyy/abbyy/products/flexicapture/fc_1.jpg?h=392&iar=0&w=696)
 
+<!-- affiliate ads begin -->
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### ABBYY Solutions for Accounts Payable Automation
 
 [Learn more](https://tools.techidaily.com/abbyy/products/)
@@ -63,10 +83,10 @@ Joe Corcoran, Lead Consultant CustomsTrack
 ![overview image](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/ap-automation/overview-image.jpg?h=800&iar=0&w=1392)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### PDF Version
@@ -74,20 +94,6 @@ Joe Corcoran, Lead Consultant CustomsTrack
 [Read the document](https://content.abbyy.com/-/media/Project/Abbyy/Abbyy/Insights/Customer-Stories/PDFs/CustomsTrack-case-study-intelligent-document-processing-en.pdf)
 
 ![laptop mug](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/newsroom/news-images/laptop-mug.jpg?h=836&iar=0&w=1486)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Ready to speak with an expert?
 
@@ -108,20 +114,22 @@ Joe Corcoran, Lead Consultant CustomsTrack
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-hands-free-strategies-for-logging-online-meetings/"><u>[New] In 2024, Hands-Free Strategies for Logging Online Meetings</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-adopt-the-best-practices-of-live-streaming-with-google-meet-youtube-for-2024/"><u>[Updated] Adopt the Best Practices of Live Streaming with Google Meet Youtube for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-convert-youtube-tracks-to-mp3-safely-the-3-best-ways-for-2024/"><u>[Updated] How To Convert YouTube Tracks to MP3 Safely - The 3 Best Ways for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-leveraging-popularity-a-comprehensive-guide-to-instagram-influencer-advertising/"><u>2024 Approved Leveraging Popularity A Comprehensive Guide to Instagram Influencer Advertising</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/alter-twitter-video-headline-image/"><u>Alter Twitter Video Headline Image</u></a></li>
-<li><a href="https://review-topics.techidaily.com/play-hevc-h265-on-14-ultra-is-it-possible-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Play HEVC H.265 on 14 Ultra, is it possible?</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-recording-techniques-for-stellar-voice-over-audio-for-2024/"><u>[New] Recording Techniques for Stellar Voice-Over Audio for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-digital-dollars-earn-from-youtubers-in-8-ways/"><u>[Updated] Digital Dollars Earn From YouTubers in 8 Ways</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-vimeo-video-segmentation-adding-chapters-for-clarity/"><u>[Updated] Vimeo Video Segmentation Adding Chapters for Clarity</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-access-your-iphone-14-plus-when-you-forget-the-passcode-by-drfone-ios/"><u>How to Access Your iPhone 14 Plus When You Forget the Passcode?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-infinix-gt-10-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Infinix GT 10 Pro? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-minimize-external-noise-find-a-quiet-environment-to-minimize-distractions-that-can-hinder-understanding/"><u>In 2024, Minimize External Noise Find a Quiet Environment to Minimize Distractions that Can Hinder Understanding</u></a></li>
+<li><a href="https://solve-info.techidaily.com/nagarro-achieves-a-60-cut-in-bill-payment-cycle-with-abbyy-for-enhanced-customer-accessibility/"><u>Nagarro Achieves a 60% Cut in Bill Payment Cycle with ABBYY for Enhanced Customer Accessibility</u></a></li>
+<li><a href="https://solve-info.techidaily.com/no-coding-experience-required-build-your-own-apps-in-minutes-not-months/"><u>No Coding Experience Required? Build Your Own Apps in Minutes, Not Months!</u></a></li>
+<li><a href="https://blog-min.techidaily.com/online-flv-wmv-movavi/"><u>Online 자리에서 가장 금쪽한 FLV, WMV 포맷터를 제공합니다 - Movavi 변환</u></a></li>
+<li><a href="https://solve-info.techidaily.com/optimize-your-site-with-cookiebot-technology-for-tailored-user-experiences/"><u>Optimize Your Site with Cookiebot Technology for Tailored User Experiences</u></a></li>
+<li><a href="https://solve-info.techidaily.com/optimized-with-cookiebot-technology-for-smarter-online-engagement-tracking/"><u>Optimized with Cookiebot Technology for Smarter Online Engagement Tracking</u></a></li>
+<li><a href="https://solve-info.techidaily.com/proprietary-website-personalization-using-cookiebot-technology/"><u>Proprietary Website Personalization Using Cookiebot Technology</u></a></li>
+<li><a href="https://solve-info.techidaily.com/reshaping-fiscal-processes-in-response-to-the-modern-eras-challenges-effective-techniques-for-thriving/"><u>Reshaping Fiscal Processes in Response to the Modern Era's Challenges: Effective Techniques for Thriving</u></a></li>
 <li><a href="https://solve-info.techidaily.com/revolutionize-your-analytics-capabilities-innovative-solutions-by-cookiebot/"><u>Revolutionize Your Analytics Capabilities – Innovative Solutions by Cookiebot</u></a></li>
 <li><a href="https://solve-info.techidaily.com/sofia-tarasova-expert-collaborator-in-randd-and-product-innovation/"><u>Sofia Tarasova - Expert Collaborator in R&D & Product Innovation</u></a></li>
-<li><a href="https://solve-info.techidaily.com/transformez-votre-interface-avec-le-nouveau-sdk-dabbyy-lance-un-outil-mobile-baptise-capture-pour-une-meilleure-ux/"><u>Transformez Votre Interface Avec Le Nouveau SDK D'ABBYY Lance : Un Outil Mobile Baptisé Capture Pour Une Meilleure UX</u></a></li>
-<li><a href="https://solve-info.techidaily.com/understanding-web-pages-optimizing-your-sites-content-and-structure/"><u>Understanding Web Pages: Optimizing Your Site's Content and Structure</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unleashing-potent-digital-advertising-solutions-with-cutting-edge-cookiebot-platforms/"><u>Unleashing Potent Digital Advertising Solutions with Cutting-Edge Cookiebot Platforms</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/unmatched-streaming-excellence-top-1enas-comparative-analysis/"><u>Unmatched Streaming Excellence Top 1Enas Comparative Analysis</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unraveling-the-mystery-how-map-books-connect-to-boosting-process-intelligence-insights-from-abbyy/"><u>Unraveling the Mystery: How Map Books Connect to Boosting Process Intelligence - Insights From ABBYY</u></a></li>
-<li><a href="https://driver-download.techidaily.com/update-your-hp-scanjet-printer-drivers-on-windows-1087-free-download-guide/"><u>Update Your HP Scanjet Printer Drivers on Windows 10/8/7: Free Download Guide</u></a></li>
-<li><a href="https://solve-info.techidaily.com/utilizing-cookiebot-technology-for-enhanced-user-personalization-and-seo-success/"><u>Utilizing Cookiebot Technology for Enhanced User Personalization & SEO Success</u></a></li>
+<li><a href="https://fox-zero.techidaily.com/step-by-step-guide-modifying-cabinet-access-block-cab-options-in-system-setup/"><u>Step-by-Step Guide: Modifying Cabinet Access Block (CAB) Options in System Setup</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-iphone-15-plus-by-drfone-ios/"><u>Top 11 Free Apps to Check IMEI on iPhone 15 Plus</u></a></li>
 </ul></div>
 

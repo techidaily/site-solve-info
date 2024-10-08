@@ -1,7 +1,7 @@
 ---
 title: ABBYY at Handelsblatt's Annual Conference - Focus on Banking Technology
-date: 2024-09-25T21:38:32.650Z
-updated: 2024-10-02T23:33:11.645Z
+date: 2024-10-03T16:50:12.831Z
+updated: 2024-10-08T18:28:00.711Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b7b45cfdc35344213e5101907c39a4f8622c548d37868126691840befd4a8d38.jpg
@@ -74,28 +74,31 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-instagram-aesthetics-unleashed-leading-enhancers/"><u>[Updated] In 2024, Instagram Aesthetics Unleashed Leading Enhancers</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-must-know-windows-10-tips-and-tricks-for-2024/"><u>[Updated] Must-Know Windows 10 Tips and Tricks for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-balancing-content-creation-and-employment/"><u>2024 Approved Balancing Content Creation and Employment</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-oppo-reno-8t-by-drfone-android/"><u>Complete Review & Guide to Techeligible FRP Bypass and More For Oppo Reno 8T</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/in-2024-4-ways-to-transfer-messages-from-apple-iphone-6s-to-iphone-including-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 4 Ways to Transfer Messages from Apple iPhone 6s to iPhone Including iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-explore-the-boundaries-of-visual-storytelling-in-windows-photos-plus-story-remix/"><u>In 2024, Explore the Boundaries of Visual Storytelling in Windows Photos + Story Remix</u></a></li>
-<li><a href="https://solve-info.techidaily.com/ultimate-guide-to-downloading-movies-from-dvds-onto-your-pc-step-by-step-process/"><u>Ultimate Guide to Downloading Movies From DVDs Onto Your PC - Step by Step Process</u></a></li>
-<li><a href="https://solve-info.techidaily.com/ultimate-guide-mastering-video-compression-with-adobe-media-encoder/"><u>Ultimate Guide: Mastering Video Compression with Adobe Media Encoder</u></a></li>
-<li><a href="https://solve-info.techidaily.com/understanding-handbrakes-capabilities-for-merging-multiple-video-streams-insights-and-solutions/"><u>Understanding Handbrake's Capabilities for Merging Multiple Video Streams: Insights & Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/understanding-resolution-upgrades-does-true-4k-offer-significant-advantages-over-1080p/"><u>Understanding Resolution Upgrades: Does True 4K Offer Significant Advantages Over 1080P?</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-gaming-evolution-top-7-stardew-valley-enhancements-7/"><u>[Updated] Gaming Evolution Top 7 Stardew Valley Enhancements (#7)</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-depth-guide-to-simple-high-dynamic-range/"><u>[Updated] In-Depth Guide to Simple High Dynamic Range</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-inside-outlook-unveiling-vrs-downfalls/"><u>2024 Approved Inside Outlook Unveiling VR's Downfalls</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-blueprint-for-effortless-youtube-video-posting-on-fb/"><u>2024'S Blueprint for Effortless YouTube Video Posting on FB</u></a></li>
+<li><a href="https://solve-info.techidaily.com/guide-to-seamlessly-transform-img-images-into-smooth-playing-mp4-videos-compatible-with-every-device/"><u>Guide to Seamlessly Transform IMG Images Into Smooth-Playing MP4 Videos Compatible with Every Device</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-call-history-on-xperia-5-v-by-fonelab-android-recover-call-logs/"><u>How to restore wiped call history on Xperia 5 V?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-vivo-x-flip-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Vivo X Flip to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-in-ar-games-on-samsung-galaxy-f34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Simulate GPS Movement in AR games On Samsung Galaxy F34 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/insiders-choice-best-picks-for-snappable-soundtracks-for-2024/"><u>Insider's Choice Best Picks for Snappable Soundtracks for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/itunes-enthusiasts-tutorial-how-to-convert-and-import-dvd-content-seamlessly/"><u>ITunes Enthusiast's Tutorial: How to Convert & Import DVD Content Seamlessly</u></a></li>
+<li><a href="https://solve-info.techidaily.com/mp33gp/"><u>MP3形式への3GPファイル変換手順集</u></a></li>
+<li><a href="https://solve-info.techidaily.com/mp35/"><u>MP3音量変更手順：5秘技を解明する</u></a></li>
+<li><a href="https://solve-info.techidaily.com/podcast-conversion-mastery-discover-the-three-most-efficient-techniques-for-mp3-creation/"><u>Podcast Conversion Mastery: Discover the Three Most Efficient Techniques for MP3 Creation</u></a></li>
+<li><a href="https://facebook.techidaily.com/preventing-purchasing-perils-escaping-exaggerated-offers-in-the-social-commerce-world/"><u>Preventing Purchasing Perils: Escaping Exaggerated Offers in the Social Commerce World</u></a></li>
+<li><a href="https://solve-info.techidaily.com/repeat-your-success-top-3-methods-for-looping-videos-on-youtube/"><u>Repeat Your Success: Top 3 Methods for Looping Videos on YouTube</u></a></li>
+<li><a href="https://solve-info.techidaily.com/simple-steps-adding-black-stripes-or-bars-to-your-videos-on-windows/"><u>Simple Steps: Adding Black Stripes or Bars to Your Videos on Windows</u></a></li>
+<li><a href="https://solve-info.techidaily.com/simple-steps-free-techniques-to-convert-and-rotate-your-avi-files/"><u>Simple Steps: Free Techniques to Convert and Rotate Your AVI Files!</u></a></li>
+<li><a href="https://solve-info.techidaily.com/step-by-step-guide-converting-video-from-mpg-to-mp4-for-windows-11-users/"><u>Step-by-Step Guide: Converting Video From MPG to MP4 for Windows 11 Users</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/the-complete-zoomers-guide-achieving-exceptional-video-and-audio-recordings-on-zoom-for-2024/"><u>The Complete Zoomer's Guide Achieving Exceptional Video & Audio Recordings on Zoom for 2024</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

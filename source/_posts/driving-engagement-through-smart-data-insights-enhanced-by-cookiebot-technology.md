@@ -1,7 +1,7 @@
 ---
 title: "Driving Engagement Through Smart Data Insights: Enhanced by Cookiebot Technology"
-date: 2024-09-27T16:32:49.417Z
-updated: 2024-10-03T08:50:02.090Z
+date: 2024-10-01T16:34:57.581Z
+updated: 2024-10-08T17:36:33.967Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e8b3883133d6f512c5920076f733b9da53c8a6ea2a98528d0cbb835531035bed.jpg
@@ -24,10 +24,10 @@ We learned that 82.1% of respondents switched to a remote work setting during th
 ![](https://static1.abbyy.com/abbyycommedia/29708/productivity-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Have you been more productive?
@@ -37,10 +37,10 @@ Our survey found that 43% of respondents noted they were more productive working
 ![](https://static1.abbyy.com/abbyycommedia/29709/productivity-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _“Mixed - more productive some days, less productive other days”_  
@@ -54,19 +54,19 @@ As for the motivation while working from home, 36.2% of our users haven’t noti
 
 ![](https://static1.abbyy.com/abbyycommedia/29710/productivity-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How long did your typical work day last?
 
 A typical work day during the quarantine mostly lasted 8 – 10 hours (33.8%). Of our respondents, 25.7% worked 6 – 8 hours a day, and 19.6% worked 4 – 6 hours.
 
 ![](https://static1.abbyy.com/abbyycommedia/29711/productivity-4.jpg)  
 Compared to pre-COVID, 43.2% of respondents worked longer hours for personal reasons while staying home, and 27.3% worked shorter hours for personal reasons. Here’s what some respondents shared:
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _“Longer hours because of dissolution of work boundaries.”_  
 _“Working at home while providing full time care has resulted in extremely long work days to complete my workload.”_  
@@ -84,10 +84,10 @@ Participants of the survey pointed out many advantages of remote work. The most 
 ![](https://static1.abbyy.com/abbyycommedia/29712/productivity-5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Also, some of our users shared their advantages:
@@ -106,6 +106,13 @@ _“The lack of in-person communication, in general, makes it less fun to work f
 _“I spend longer periods sitting and not moving around every so often.”_  
 _“Workstation not as powerful as in the Office.”_ 
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Work-life balance
 
 The majority of respondents (56%) also noted that working from home has impacted their work-life balance positively. Only 16.3% stated that their work-life balance had been negatively impacted by the lockdown.
@@ -114,10 +121,10 @@ The majority of respondents (56%) also noted that working from home has impacted
 While 40.6% of respondents preferred dispersing work and relaxation throughout the day, 24.8% experienced trouble switching from work to relaxation.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Was it more stressful?
@@ -132,17 +139,17 @@ The lockdown made people use their gadgets more, with 65.1% of respondents menti
 
 ![](https://static1.abbyy.com/abbyycommedia/29716/productivity-9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 We also asked our users what are their favorite off-screen ways of relaxation. The most important was, to our surprise, watching TV shows and movies, mentioned by 50.6% of respondents. Here are other activities:
 
 ![](https://static1.abbyy.com/abbyycommedia/29717/productivity-10.jpg)  
 Digital Detox, which is a popular term today, is practiced by 21.9%, and 28.8% try to rest from their gadgets, but sometimes fail.  
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 We also wanted to learn if our users follow any blogs or podcasts on meditation, yoga, mindfulness practice, etc. Only 22.2% of survey participants do. Here are some of the named blogs and podcasts; maybe you’ll find something useful for yourself:
 
@@ -158,13 +165,6 @@ The majority of respondents (51.5%) are 40 – 59 years old. They are specialist
 Thank you everyone that participated in our survey!
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) [Coronavirus](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -229,17 +229,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-top-9-camera-extras-for-professional-level-vlogging-on-smartphones/"><u>[New] In 2024, Top 9 Camera Extras for Professional-Level Vlogging on Smartphones</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-photographicperfection-how-to-fine-tune-insta-images-and-videos/"><u>[New] PhotographicPerfection How to Fine-Tune Insta Images & Videos</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/concern-is-rising-that-equities-have-become-overvalued-and-too-expensive-to-be-worth-buying-in-the-long-run-despite-recent-gains/"><u>Concern Is Rising that Equities Have Become Overvalued and Too Expensive to Be Worth Buying in the Long Run, Despite Recent Gains.</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-music-from-xiaomi-13t-pro-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Music from Xiaomi 13T Pro to iPod | Dr.fone</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-quick-steps-to-record-iphoneipad-screens-for-online-videos/"><u>In 2024, Quick Steps to Record iPhone/iPad Screens for Online Videos</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-remove-the-lock-screen-fingerprint-of-your-honor-v-purse-by-drfone-android/"><u>In 2024, Remove the Lock Screen Fingerprint Of Your Honor V Purse</u></a></li>
-<li><a href="https://solve-info.techidaily.com/master-the-shift-from-dvd-to-digital-expert-tips-for-watching-movies-on-your-kindle-fire-devices/"><u>Master the Shift From DVD to Digital: Expert Tips for Watching Movies on Your Kindle Fire Devices</u></a></li>
-<li><a href="https://solve-info.techidaily.com/mastering-format-transformation-seamless-techniques-for-switching-videoaudio-files/"><u>Mastering Format Transformation: Seamless Techniques for Switching Video/Audio Files</u></a></li>
-<li><a href="https://solve-info.techidaily.com/mkvyoutube-youtubemkv/"><u>MKV形式でYouTube動画を安全にダウンロードする簡単方法 - YouTubeからMKVへの変換テクニック</u></a></li>
-<li><a href="https://solve-info.techidaily.com/pcvimeo/"><u>PCで効率よく編集し直せるVimeo動画のトリミングガイド</u></a></li>
-<li><a href="https://windows11.techidaily.com/windows-whisperer-learning-to-activate-the-hidden-character-tracker/"><u>Windows Whisperer: Learning to Activate the Hidden Character Tracker</u></a></li>
-<li><a href="https://solve-info.techidaily.com/myspace/"><u>マストから MySpace 音楽をダウンロード・セーブする独自のテクニック</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-key-techniques-boosting-video-reach-across-both-platforms/"><u>[Updated] 2024 Approved Key Techniques Boosting Video Reach Across Both Platforms</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-decoding-sonys-screenshot-system-an-in-depth-look-at-ps4-recording/"><u>[Updated] Decoding Sony's Screenshot System An In-Depth Look at PS4 Recording</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-solutions-for-enabling-audio-in-obs-broadcasts/"><u>[Updated] In 2024, Solutions for Enabling Audio in OBS Broadcasts</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-integrating-secondary-shots-a-filmmakers-blueprint/"><u>[Updated] Integrating Secondary Shots A Filmmaker's Blueprint</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-scripting-signal-sequences/"><u>[Updated] Scripting Signal Sequences</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-cost-effective-premium-screen-capture-software-for-chromebook/"><u>2024 Approved Cost-Effective Premium Screen Capture Software for Chromebook</u></a></li>
+<li><a href="https://solve-info.techidaily.com/comparing-ipod-video-converter-factory-vs-ipod-video-converter-factory-pro-features/"><u>Comparing iPod Video Converter Factory Vs. IPod Video Converter Factory Pro Features</u></a></li>
+<li><a href="https://solve-info.techidaily.com/complete-tutorial-mastering-the-art-of-cropping-avi-videos-both-on-and-off-the-web/"><u>Complete Tutorial: Mastering the Art of Cropping AVI Videos Both On and Off the Web</u></a></li>
+<li><a href="https://solve-info.techidaily.com/comprehensive-guide-how-to-easily-rip-burn-and-duplicate-your-dvdscds/"><u>Comprehensive Guide: How to Easily Rip, Burn, and Duplicate Your DVDs/CDs</u></a></li>
+<li><a href="https://solve-info.techidaily.com/discover-the-ultimate-list-of-no-cost-avi-video-editors-compatible-with-pc-and-mac-systems/"><u>Discover the Ultimate List of No-Cost AVI Video Editors Compatible with PC and Mac Systems</u></a></li>
+<li><a href="https://solve-info.techidaily.com/effective-techniques-for-transforming-hevc-videos-into-the-versatile-mkv-container/"><u>Effective Techniques for Transforming HEVC Videos Into the Versatile MKV Container</u></a></li>
+<li><a href="https://solve-info.techidaily.com/efficient-avi-file-conversion-to-h265-achieving-optimal-quality-with-reduced-file-size/"><u>Efficient AVI File Conversion to H.265: Achieving Optimal Quality with Reduced File Size</u></a></li>
+<li><a href="https://solve-info.techidaily.com/free-conversion-guide-transforming-your-dvds-into-mp4-format-on-windows-10-and-11/"><u>Free Conversion Guide: Transforming Your DVDs Into MP4 Format on Windows 10 & 11</u></a></li>
+<li><a href="https://solve-info.techidaily.com/grublpc/"><u>GRUBLゲーム画面をPCで高解像度に記録するガイド</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-track-imei-number-of-tecno-pova-5-through-google-earth-by-drfone-android/"><u>How To Track IMEI Number Of Tecno Pova 5 Through Google Earth?</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/inside-look-exploring-all-features-of-apples-latest-artificial-intelligence-from-wwdc-2024/"><u>Inside Look: Exploring All Features of Apple's Latest Artificial Intelligence From WWDC 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-6-best-large-language-models/"><u>The 6 Best Large Language Models</u></a></li>
 </ul></div>
 

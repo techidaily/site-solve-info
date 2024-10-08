@@ -1,7 +1,7 @@
 ---
 title: Discover ABBYY's Best Digital Intelligence Narratives From 202 2 - Top Six Picks Unveiled in Our Latest Post!
-date: 2024-09-26T09:21:37.046Z
-updated: 2024-10-03T03:38:49.675Z
+date: 2024-10-05T18:36:38.110Z
+updated: 2024-10-08T18:25:30.443Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/eb6701eb360daf00501aea3027f5f407ca588034548873224d944d5de49dcde3.jpg
@@ -31,13 +31,6 @@ A new breed of competitor—Insuretechs—target smart technologies at the custo
 
 [Read the article.](https://iireporter.com/the-human-touch-the-untapped-opportunity-for-making-ai-work-for-insurance/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Social Distancing Has Raised the Bar for the Digital Experience
 
 ![technology trends 2020](https://static1.abbyy.com/abbyycommedia/31572/blog-digital-intelligence-1-848x444.jpg)
@@ -45,13 +38,6 @@ A new breed of competitor—Insuretechs—target smart technologies at the custo
 With social distancing measures in place and businesses across diverse industries that temporarily closed their store fronts, the digital experience has never been more critical for businesses and the customers who depend on them. Consumers develop brand loyalty and trust in accordance to the degree a company can best meet their needs—both in everyday circumstances and especially during a crisis. That makes it even more important for businesses to leverage [mobile capabilities](https://tools.techidaily.com/abbyy/products/) and optimize the digital experience across customer-facing operations now to serve consumer expectations. Companies that pivot the customer experience accordingly will be poised to emerge ahead of the curve in the post COVID-19 world.
 
 [Read the article.](https://www.cmswire.com/digital-experience/social-distancing-has-raised-the-bar-for-the-digital-experience/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Data Insight Plays a Key Role in How ABBYY Supplies Vital Pieces of the RPA Puzzle
 
@@ -61,20 +47,27 @@ They discussed how ABBYY’s platform identifies process flows, the importance o
 
 [Read the article](https://siliconangle.com/2020/05/12/data-insight-plays-a-key-role-in-how-abbyy-supplies-vital-pieces-of-the-rpa-puzzle-cubeconversations/) or watch the video below.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. The Need for Digital Intelligence in the Time of Social Distancing
 
 ![social distancing](https://static1.abbyy.com/abbyycommedia/31669/blog-1262271993-848x444.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 COVID-19 is the defining event of 2020, and with it, ”social distancing” entered our vocabulary for modern commerce, recasting interpersonal and business interactions. Now as part of our social consciousness, social distancing is fueling a growing reliance on virtualization and technologically mediated relationships. While the urgency of social distancing is already putting our technology and process readiness to the test, it raises an important question about how people, process, and content interact in this new normal. Social distancing has made the customer experience an imperative, driving digital transformation by replacing human-to-human with app-defined interactions.
 
 [Read the article.](https://www.kmworld.com/Articles/Editorial/ViewPoints/The-need-for-digital-intelligence-in-the-time-of-social-distancing--140797.aspx)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\. Six Steps to Revive Your Digital Transformation Projects
 
@@ -84,16 +77,16 @@ The pandemic shifted many IT resources toward business continuity efforts, and m
 
 [Read the article.](https://www.cmswire.com/leadership/6-steps-to-revive-your-digital-transformation-projects/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 6\. Five Crucial Insurance Questions for the Post-COVID 'New Normal'
 
 ![process improvement in insurance](https://static1.abbyy.com/abbyycommedia/31573/blog-digital-intelligence-cover-848x444.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Only several months into the coronavirus pandemic, it became clear that the crisis had rewritten the rules for customer engagement, business processes, and technology. Insurers understood that the customer experience is critical during the claims process, otherwise they risk customer attrition. While a number of factors play a role in resolving claims, one of the most important drivers of a positive customer experience is an insurer’s operational processes. It’s vital for insurers to evaluate how to become more digitally efficient, how to enhance the customer experience by connecting historically disparate processes, and ways they can effectively bring critical customer data directly into core operational processes.
 
@@ -102,6 +95,13 @@ We shared five questions to help leaders at insurance companies evaluate if ther
 [Read the article.](https://www.dig-in.com/opinion/covid-19-5-tips-for-insurers-to-thrive)
 
 [Intelligent Automation](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -166,21 +166,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-support.techidaily.com/new-secure-privacy-blur-out-details-efficiently-ps/"><u>[New] Secure Privacy Blur Out Details Efficiently PS</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-demystifying-the-process-of-high-dynamic-range-in-photoshop/"><u>[Updated] 2024 Approved Demystifying the Process of High Dynamic Range in Photoshop</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-instant-tune-livestreams-on-douyin/"><u>[Updated] Instant Tune Livestreams on Douyin</u></a></li>
-<li><a href="https://solve-info.techidaily.com/44cm44k144og44oq44gu55s76z2i6yyy55s75oml6acg44ks6kmz44gx44gp6kej6kqs77yb44cn/"><u>「サムバの画面録画手順を詳しく解説！」</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1726028846182-8/"><u>【無料】動画にメロディを付けるためのトップ8ソフトウェア選び方：専門家から学ぶ！</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-channel-transformation-with-strategic-use-of-youtube-outros/"><u>2024 Approved Channel Transformation with Strategic Use of YouTube Outros</u></a></li>
-<li><a href="https://solve-info.techidaily.com/3-effective-methods-for-downloading-blob-videos-a-step-by-step-guide/"><u>3 Effective Methods for Downloading Blob Videos: A Step-by-Step Guide</u></a></li>
-<li><a href="https://solve-info.techidaily.com/4-effective-methods-to-eliminate-audio-from-your-iphone-recorded-videos/"><u>4 Effective Methods to Eliminate Audio From Your iPhone Recorded Videos</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1726030243059-dvdmp4/"><u>無料DVDパス解除とMP4変換ガイド - ディスクからダウンロード</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/ais-hidden-treasure-trove-top-5-innovative-chat-functions/"><u>AI's Hidden Treasure Trove: Top 5 Innovative Chat Functions</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/convertir-archivos-mxf-a-mp4-rapida-y-facilmente-con-movie-converter-online-de-forma-gratuita/"><u>Convertir Archivos MXF a MP4 Rápida Y Fácilmente Con Movie Converter Online De Forma Gratuita</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/full-guide-on-mirroring-your-itel-a60s-to-your-pcmac-drfone-by-drfone-android/"><u>Full Guide on Mirroring Your Itel A60s to Your PC/Mac | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1726027651761-hp/"><u>HPラップトップマシンで効率的な動画編集テクニック</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-dive-into-dynamic-artistry-explore-14-text-animation-showcases/"><u>In 2024, Dive Into Dynamic Artistry Explore 14 Text Animation Showcases</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-incorporating-backgrounds-a-filmmakers-guide/"><u>In 2024, Incorporating Backgrounds A Filmmaker's Guide</u></a></li>
-<li><a href="https://solve-info.techidaily.com/44or44k944kz44oz5zcr44gr44gr44gk44gz44gz44kbieoajoacgoawsoobruwlleeuupluswcppluse4ruocveodleodioocpuocpplusocouobqoodhuocrplusodiplusodgplusocrplusoajq/"><u>パソコン向けにおすすめ!「最新の動画圧縮ソフトウェアとテクニック」</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-quick-and-simple-free-fb-video-to-mp4-hd-conversion-tutorial-online/"><u>[New] 2024 Approved Quick and Simple Free FB Video to MP4 (HD) Conversion Tutorial Online</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-becoming-a-trendsetter-youtube-video-tactics/"><u>[Updated] In 2024, Becoming a Trendsetter YouTube Video Tactics</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-hack-swiftly-delete-your-youtube-comments/"><u>[Updated] The Ultimate Hack Swiftly Delete Your YouTube Comments</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fixing-roblox-crashes-in-under-a-minute-top-techniques-of-2024/"><u>Fixing Roblox Crashes in Under a Minute - Top Techniques of 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/how-to-stand-out-in-snapchat-spotlight-for-2024/"><u>How to Stand Out in Snapchat Spotlight for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-can-life360-track-you-when-your-honor-magic-5-pro-is-off-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track You When Your Honor Magic 5 Pro is off? | Dr.fone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/troubleshooting-downloads-how-to-successfully-retrieve-abema-previously-abematv-streaming-content/"><u>Troubleshooting Downloads: How to Successfully Retrieve ABEMA (Previously AbemaTV) Streaming Content</u></a></li>
+<li><a href="https://windows11.techidaily.com/troubleshooting-unresponsive-programs-in-windows-os/"><u>Troubleshooting Unresponsive Programs in Windows OS</u></a></li>
+<li><a href="https://solve-info.techidaily.com/ultimate-guide-to-downloading-movies-from-dvds-onto-your-pc-step-by-step-process/"><u>Ultimate Guide to Downloading Movies From DVDs Onto Your PC - Step by Step Process</u></a></li>
+<li><a href="https://solve-info.techidaily.com/ultimate-guide-mastering-video-compression-with-adobe-media-encoder/"><u>Ultimate Guide: Mastering Video Compression with Adobe Media Encoder</u></a></li>
+<li><a href="https://solve-info.techidaily.com/understanding-handbrakes-capabilities-for-merging-multiple-video-streams-insights-and-solutions/"><u>Understanding Handbrake's Capabilities for Merging Multiple Video Streams: Insights & Solutions</u></a></li>
+<li><a href="https://solve-info.techidaily.com/understanding-resolution-upgrades-does-true-4k-offer-significant-advantages-over-1080p/"><u>Understanding Resolution Upgrades: Does True 4K Offer Significant Advantages Over 1080P?</u></a></li>
+<li><a href="https://solve-info.techidaily.com/windows-11youtubesd/"><u>Windows 11でパソコンからYouTube音楽をSDカードへ転送するための完全ガイド</u></a></li>
 </ul></div>
 

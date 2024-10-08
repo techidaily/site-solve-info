@@ -1,7 +1,7 @@
 ---
 title: "Enhancing Intelligence in the Digital Age: How ABBYY + Blue Prism Revolutionize Efficiency"
-date: 2024-09-20T17:16:09.329Z
-updated: 2024-09-28T03:40:54.156Z
+date: 2024-10-03T18:58:31.605Z
+updated: 2024-10-08T17:41:30.818Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/181c9294f45ce68f5f0d47527972b22bf8dde75db019bf52748fd4efcbea9747.jpg
@@ -10,13 +10,6 @@ thumbnail: https://thmb.techidaily.com/181c9294f45ce68f5f0d47527972b22bf8dde75db
 ## Enhancing Intelligence in the Digital Age: How ABBYY + Blue Prism Revolutionize Efficiency
 
 ## 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## ABBYY | Blue Prism
 
@@ -31,6 +24,13 @@ Die Technologie von ABBYY bietet Kunden von Blue Prism die Möglichkeit, entsche
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/digital-onboarding/overview-image.jpg?h=716&iar=0&w=1272)
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/digital-document-archiving/drawer-image.jpg?h=392&iar=0&w=696)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Wie ABBYY und Blue Prism zusammenwirken
 
@@ -68,122 +68,115 @@ Der ABBYY FlexiCapture-Konnektor für Blue Prism ermöglicht die Integration der
 ![](https://content.abbyy.com/-/media/feature/basecomponents/clients/blue-prism-vector-logo_rev_120px.png?h=23&iar=0&w=120)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/webpage.svg?h=32&iar=0&w=32)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-##### Nachricht
-
-#### Ankündigung von Blue Prism Process Intelligence powered by ABBYY Timeline 
-
-Blue Prism integriert ABBYY Timeline in Blue Prism Capture, um eine vollständige Prozess- und Aufgabenerkennung als Standardfunktion anzubieten. 
-
-[Pressemeldung lesen](https://tools.techidaily.com/abbyy/products/)
-
-![](https://content.abbyy.com/-/media/feature/basecomponents/assets-thumbnails/abbyy_microscopic_web_photos_2_1486--836.jpg?h=836&iar=0&w=1486)
-
-![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/brochure.svg?h=32&iar=0&w=32)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-##### Broschüre 
-
-#### Blue Prism und die ABBYY Timeline Technology Alliance 
-
-[Broschüre lesen](https://static4.abbyy.com/abbyycommedia/33469/brochure-timeline-blueprismpartnership-en.pdf)
-
-![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/solution-brief.svg?h=32&iar=0&w=32)
-
-##### Lösungsüberblick 
-
-#### Optimieren Sie Patientenerlebnis & Patient Journey 
-
-[Lösungsüberblick herunterladen](https://static3.abbyy.com/abbyycommedia/33029/solutionbrief-blueprism-abbyy-healthcare-en.pdf)
-
-![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/webpage.svg?h=32&iar=0&w=32)
-
-##### Nachricht
-
-#### Ankündigung von Blue Prism Process Intelligence powered by ABBYY Timeline 
-
-Blue Prism integriert ABBYY Timeline in Blue Prism Capture, um eine vollständige Prozess- und Aufgabenerkennung als Standardfunktion anzubieten. 
-
-[Pressemeldung lesen](https://tools.techidaily.com/abbyy/products/)
-
-![](https://content.abbyy.com/-/media/feature/basecomponents/assets-thumbnails/abbyy_microscopic_web_photos_2_1486--836.jpg?h=836&iar=0&w=1486)
-
-![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/brochure.svg?h=32&iar=0&w=32)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-##### Broschüre 
-
-#### Blue Prism und die ABBYY Timeline Technology Alliance 
-
-[Broschüre lesen](https://static4.abbyy.com/abbyycommedia/33469/brochure-timeline-blueprismpartnership-en.pdf)
-
-![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/solution-brief.svg?h=32&iar=0&w=32)
-
-##### Lösungsüberblick 
-
-#### Optimieren Sie Patientenerlebnis & Patient Journey 
-
-[Lösungsüberblick herunterladen](https://static3.abbyy.com/abbyycommedia/33029/solutionbrief-blueprism-abbyy-healthcare-en.pdf)
-
-![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/webpage.svg?h=32&iar=0&w=32)
-
-##### Nachricht
-
-#### Ankündigung von Blue Prism Process Intelligence powered by ABBYY Timeline 
-
-Blue Prism integriert ABBYY Timeline in Blue Prism Capture, um eine vollständige Prozess- und Aufgabenerkennung als Standardfunktion anzubieten. 
-
-[Pressemeldung lesen](https://tools.techidaily.com/abbyy/products/)
-
-![](https://content.abbyy.com/-/media/feature/basecomponents/assets-thumbnails/abbyy_microscopic_web_photos_2_1486--836.jpg?h=836&iar=0&w=1486)
-
-![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/brochure.svg?h=32&iar=0&w=32)
-
-##### Broschüre 
-
-#### Blue Prism und die ABBYY Timeline Technology Alliance 
-
-[Broschüre lesen](https://static4.abbyy.com/abbyycommedia/33469/brochure-timeline-blueprismpartnership-en.pdf)
-
-![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/solution-brief.svg?h=32&iar=0&w=32)
-
-<!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/webpage.svg?h=32&iar=0&w=32)
+
+##### Nachricht
+
+#### Ankündigung von Blue Prism Process Intelligence powered by ABBYY Timeline 
+
+Blue Prism integriert ABBYY Timeline in Blue Prism Capture, um eine vollständige Prozess- und Aufgabenerkennung als Standardfunktion anzubieten. 
+
+[Pressemeldung lesen](https://tools.techidaily.com/abbyy/products/)
+
+![](https://content.abbyy.com/-/media/feature/basecomponents/assets-thumbnails/abbyy_microscopic_web_photos_2_1486--836.jpg?h=836&iar=0&w=1486)
+
+![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/brochure.svg?h=32&iar=0&w=32)
+
+##### Broschüre 
+
+#### Blue Prism und die ABBYY Timeline Technology Alliance 
+
+[Broschüre lesen](https://static4.abbyy.com/abbyycommedia/33469/brochure-timeline-blueprismpartnership-en.pdf)
+
+![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/solution-brief.svg?h=32&iar=0&w=32)
+
+##### Lösungsüberblick 
+
+#### Optimieren Sie Patientenerlebnis & Patient Journey 
+
+[Lösungsüberblick herunterladen](https://static3.abbyy.com/abbyycommedia/33029/solutionbrief-blueprism-abbyy-healthcare-en.pdf)
+
+![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/webpage.svg?h=32&iar=0&w=32)
+
+##### Nachricht
+
+#### Ankündigung von Blue Prism Process Intelligence powered by ABBYY Timeline 
+
+Blue Prism integriert ABBYY Timeline in Blue Prism Capture, um eine vollständige Prozess- und Aufgabenerkennung als Standardfunktion anzubieten. 
+
+[Pressemeldung lesen](https://tools.techidaily.com/abbyy/products/)
+
+![](https://content.abbyy.com/-/media/feature/basecomponents/assets-thumbnails/abbyy_microscopic_web_photos_2_1486--836.jpg?h=836&iar=0&w=1486)
+
+![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/brochure.svg?h=32&iar=0&w=32)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+##### Broschüre 
+
+#### Blue Prism und die ABBYY Timeline Technology Alliance 
+
+[Broschüre lesen](https://static4.abbyy.com/abbyycommedia/33469/brochure-timeline-blueprismpartnership-en.pdf)
+
+![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/solution-brief.svg?h=32&iar=0&w=32)
+
+##### Lösungsüberblick 
+
+#### Optimieren Sie Patientenerlebnis & Patient Journey 
+
+[Lösungsüberblick herunterladen](https://static3.abbyy.com/abbyycommedia/33029/solutionbrief-blueprism-abbyy-healthcare-en.pdf)
+
+![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/webpage.svg?h=32&iar=0&w=32)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+##### Nachricht
+
+#### Ankündigung von Blue Prism Process Intelligence powered by ABBYY Timeline 
+
+Blue Prism integriert ABBYY Timeline in Blue Prism Capture, um eine vollständige Prozess- und Aufgabenerkennung als Standardfunktion anzubieten. 
+
+[Pressemeldung lesen](https://tools.techidaily.com/abbyy/products/)
+
+![](https://content.abbyy.com/-/media/feature/basecomponents/assets-thumbnails/abbyy_microscopic_web_photos_2_1486--836.jpg?h=836&iar=0&w=1486)
+
+![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/brochure.svg?h=32&iar=0&w=32)
+
+##### Broschüre 
+
+#### Blue Prism und die ABBYY Timeline Technology Alliance 
+
+[Broschüre lesen](https://static4.abbyy.com/abbyycommedia/33469/brochure-timeline-blueprismpartnership-en.pdf)
+
+![](https://content.abbyy.com/-/media/project/abbyy/abbyy/resource-card-icons/solution-brief.svg?h=32&iar=0&w=32)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##### Lösungsüberblick 
@@ -191,6 +184,13 @@ Blue Prism integriert ABBYY Timeline in Blue Prism Capture, um eine vollständig
 #### Optimieren Sie Patientenerlebnis & Patient Journey 
 
 [Lösungsüberblick herunterladen](https://static3.abbyy.com/abbyycommedia/33029/solutionbrief-blueprism-abbyy-healthcare-en.pdf)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Möchten Sie mit unserem Expertenteam sprechen?
 
@@ -211,21 +211,14 @@ Blue Prism integriert ABBYY Timeline in Blue Prism Capture, um eine vollständig
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-achieve-cinematic-gaming-with-advanced-steam-recordings-for-2024/"><u>[New] Achieve Cinematic Gaming with Advanced Steam Recordings for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-master-your-youtube-identity-with-cool-titles/"><u>[New] In 2024, Master Your YouTube Identity with Cool Titles</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-transform-your-beats-with-free-dji-luts-for-minis-and-air-devices/"><u>[Updated] 2024 Approved Transform Your Beats with Free DJI LUTs for Minis & Air Devices</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-mobile-magic-instagram-covers-iphone-plus-android/"><u>[Updated] Mobile Magic Instagram Covers IPhone + Android</u></a></li>
-<li><a href="https://techidaily.com/1-idoc-scanner-app-effortless-pdf-conversion-using-ios-and-android/"><u>1. IDoc Scanner App - Effortless PDF Conversion Using iOS & Android</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-ways-to-transfer-music-from-samsung-galaxy-f04-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Transfer Music from Samsung Galaxy F04 to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/ebook-by-abby/"><u>保険金要求手続き管理: 最適な効果的手法はどこで学べますか？ | eBook by ABBY</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-fueled-personalization-enhance-user-experience-with-smart-marketing-automation/"><u>Cookiebot-Fueled Personalization: Enhance User Experience with Smart Marketing Automation</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhancing-user-experience-with-personalization-and-data-driven-marketing/"><u>Cookiebot: Enhancing User Experience with Personalization and Data-Driven Marketing</u></a></li>
-<li><a href="https://solve-info.techidaily.com/discover-abbyys-best-digital-intelligence-narratives-from-202-2-top-six-picks-unveiled-in-our-latest-post/"><u>Discover ABBYY's Best Digital Intelligence Narratives From 202 2 - Top Six Picks Unveiled in Our Latest Post!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/discover-culinary-convenience-with-abbyys-recipe-digitization-and-photo-enchantment-featured-on-our-blog/"><u>Discover Culinary Convenience with ABBYY's Recipe Digitization and Photo Enchantment - Featured on Our Blog</u></a></li>
-<li><a href="https://solve-info.techidaily.com/distinguishing-between-process-intelligence-and-business-intelligence-for-strategic-decisions/"><u>Distinguishing Between Process Intelligence and Business Intelligence for Strategic Decisions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/driving-engagement-through-smart-data-insights-enhanced-by-cookiebot-technology/"><u>Driving Engagement Through Smart Data Insights: Enhanced by Cookiebot Technology</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-oppo-reno-8t-5g-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Oppo Reno 8T 5G to iPhone 14 and 15 | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-a-locked-tecno-pova-6-pro-5g-phone-by-drfone-android/"><u>In 2024, How to Reset a Locked Tecno Pova 6 Pro 5G Phone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/kinemaster-focus-mastery-a-filmmakers-guide-to-sharper-images/"><u>Kinemaster Focus Mastery A Filmmaker's Guide to Sharper Images</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-financial-scale-one-million-youtube-viewers-pay-for-2024/"><u>[Updated] The Financial Scale One Million YouTube Viewers' Pay for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726028846182-8/"><u>【無料】動画にメロディを付けるためのトップ8ソフトウェア選び方：専門家から学ぶ！</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/5-proven-techniques-for-live-streaming-on-tiktok-desktop-for-2024/"><u>5 Proven Techniques for Live Streaming on TikTok Desktop for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-apps-from-tecno-spark-20c-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Apps from Tecno Spark 20C to Another | Dr.fone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726027651761-hp/"><u>HPラップトップマシンで効率的な動画編集テクニック</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For ZTE Blade A73 5G | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/quick-quest-from-download-to-dynamic-diversion/"><u>Quick Quest: From Download to Dynamic Diversion</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726027258055-windows-and-mac/"><u>Windows & Macで動画の鏡像作成手順３つ</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726026566647-3/"><u>ダウンロード無しで音声抽出: ムービーからのトラック3方法紹介</u></a></li>
 </ul></div>
 
