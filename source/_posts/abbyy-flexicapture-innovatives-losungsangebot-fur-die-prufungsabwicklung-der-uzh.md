@@ -1,7 +1,7 @@
 ---
 title: "ABBYY FlexiCapture: Innovatives Lösungsangebot Für Die Prüfungsabwicklung Der UZH"
-date: 2024-09-28T06:10:28.689Z
-updated: 2024-10-03T09:08:54.288Z
+date: 2024-10-09T21:03:40.922Z
+updated: 2024-10-14T16:11:35.183Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/faf1cb7ed901297d85ab9d9c8300254ef72ce23f305cb5ba36be85ff8ad3eb26.png
@@ -18,10 +18,10 @@ Education/Research
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## ABBYY FlexiCapture unterstützt die Universität Zürich bei der Prüfungskorrektur
@@ -55,10 +55,10 @@ Deutliche Zeitersparnis bei der Korrektur von Prüfungsbögen sowie starke Arbei
 **An Universitäten werden jedes Semester zahlreiche schriftliche Prüfungen mit 1.000 und mehr teilnehmenden durchgeführt – entsprechend zeitaufwändig und umfangreich sind manuelle korrekturaufgaben, mit denen Dozierende belastet werden. Ein effizientes Management der Unterlagen wird so schnell zum Prüfstein für die Verwaltung. Die Universität Zürich unterstützt diese Prozesse daher mit [ABBYY Flexicapture](https://tools.techidaily.com/abbyy/products/) zur elektronischen Verarbeitung und entlastet durch die automatisierte Formularauswertung der Prüfungen ihre Mitarbeiter.**
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Herausforderung
@@ -70,10 +70,16 @@ Kommt dann noch - wie im Falle der Universität Zürich - ein stetiger Anstieg d
 Aus diesen Gründen hat die Leitung der Universität Zürich bereits vor einigen jahren beschlossen, ein gesamtuniversitäres Projekt zur elektronischen Unterstützung schriftlicher Prüfungen zu lancieren. Im rahmen dieses Projekts sollen die organisatorischen und technischen Voraussetzungen geschaffen werden, um das Management schriftlicher Prüfungen bestmöglich mit elektronischen Mitteln zu unterstützen. Vordringliches Ziel dieses Ansatzes ist es, eine nachhaltige und spürbare entlastung der Dozierenden bei Vorbereitung, Durchführung und korrektur schriftlicher Prüfungen zu schaffen.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Lösung
@@ -112,10 +118,10 @@ Der hohe Funktionsumfang von ABBYY FlexiCapture wurde bereits in der Pilotphase 
 Teilen 
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Sind Sie bereit, mit einem Experten zu sprechen?
@@ -139,17 +145,18 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-navigating-to-facebook-video-streams-on-your-apple-tv-for-2024/"><u>[New] Navigating to Facebook Video Streams on Your Apple TV for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-sierras-best-curated-list-of-exceptional-mac-video-tools/"><u>[New] Sierra's Best Curated List of Exceptional Mac Video Tools</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-social-media-strategists-guide-top-10-ig-video-editing-apps/"><u>[New] Social Media Strategists' Guide Top 10 IG Video Editing Apps</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-expert-recommended-screen-capturing-apps-for-mac/"><u>[Updated] In 2024, Expert-Recommended Screen Capturing Apps for Mac</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-mastering-smooth-volume-changes-in-fl-studio/"><u>[Updated] Mastering Smooth Volume Changes in FL Studio</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-perfect-pairing-top-ten-kiss-off-classics-at-romances-peak-for-2024/"><u>[Updated] Perfect Pairing Top Ten Kiss-Off Classics at Romance's Peak for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-the-key-to-unlocking-next-level-site-personalization-and-insights/"><u>Cookiebot: The Key to Unlocking Next-Level Site Personalization and Insights</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cultivating-sharp-skills-insights-into-intellectual-development-from-the-abbyy-blog/"><u>Cultivating Sharp Skills: Insights Into Intellectual Development From the ABBYY Blog</u></a></li>
-<li><a href="https://solve-info.techidaily.com/deciphering-hidden-truths-how-process-mining-reveals-significant-patterns/"><u>Deciphering Hidden Truths: How Process Mining Reveals Significant Patterns</u></a></li>
-<li><a href="https://solve-info.techidaily.com/driven-by-advanced-cookie-tracking-meet-the-powerhouse-behind-digital-marketing/"><u>Driven by Advanced Cookie Tracking: Meet the Powerhouse Behind Digital Marketing</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-samsung-galaxy-m34-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Samsung Galaxy M34 Pattern Lock if Forgotten? 6 Ways</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-guide-resolving-permanent-100-on-windows-update/"><u>Troubleshooting Guide: Resolving Permanent 100% on Windows Update</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unveiling-the-hidden-treasure-troves-of-snapchat-tones/"><u>[New] Unveiling the Hidden Treasure Troves of Snapchat Tones</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-10-indispensable-instagram-video-editing-apps-for-marketers/"><u>[Updated] 10 Indispensable Instagram Video Editing Apps for Marketers</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-audio-assimilation-for-inshot-projects/"><u>2024 Approved Audio Assimilation for InShot Projects</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-fix-there-is-no-sound-on-twitter-videos/"><u>2024 Approved Fix There Is No Sound on Twitter Videos</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/elevate-your-ide-game-top-10-chatgpt-techniques-for-vs-code/"><u>Elevate Your IDE Game - Top 10 ChatGPT Techniques for VS Code</u></a></li>
+<li><a href="https://solve-info.techidaily.com/expert-processing-partners-boosting-abbyy-advanced-functionality/"><u>Expert Processing Partners Boosting ABBYY Advanced Functionality</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/high-end-horizons-the-elite-8k-camera-selection-for-2024/"><u>High-End Horizons The Elite 8K Camera Selection for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/how-artificial-intelligence-boosts-roi-through-advanced-image-recognition-expert-advice-on-intelligent-capture-blog-by-abbyy/"><u>How Artificial Intelligence Boosts ROI Through Advanced Image Recognition - Expert Advice on Intelligent Capture | Blog by ABBYY</u></a></li>
+<li><a href="https://solve-info.techidaily.com/introducing-neoml-abbyys-new-open-source-library-speeding-up-artifice-intelligence-innovation/"><u>Introducing NeoML: ABBYY's New Open Source Library Speeding Up Artifice Intelligence Innovation</u></a></li>
+<li><a href="https://solve-info.techidaily.com/junges-management-gefahrdet-durch-ineffiziente-geschaftspraktiken-und-veraltete-technologie-abbyy-umfrage-zeigt-schnelle-demotivierung-gegenuber-alteren-kol9/"><u>Junges Management Gefährdet Durch Ineffiziente Geschäftspraktiken Und Veraltete Technologie: ABBYY Umfrage Zeigt Schnelle Demotivierung Gegenüber Älteren Kollegen</u></a></li>
+<li><a href="https://solve-info.techidaily.com/launching-intelligent-transit-solutions-insights-from-the-abbyy-blog/"><u>Launching Intelligent Transit Solutions: Insights From the ABBYY Blog</u></a></li>
+<li><a href="https://solve-info.techidaily.com/les-avantages-dutiliser-locr-dabbevillier-pour-les-amateurs-de-vin-la-solution-la-plus-appreciee-par-vivino/"><u>Les Avantages D'utiliser L'OCR D'Abbevillier Pour Les Amateurs De Vin: La Solution La Plus Appréciée Par Vivino</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/top-16-applicazioni-di-chatting-facilmente-accessibili-su-webcam-gratuite-per-windows-10-una-guida-completa-da-movavi/"><u>Top 16 Applicazioni Di Chatting Facilmente Accessibili Su Webcam Gratuite per Windows 10: Una Guida Completa Da Movavi</u></a></li>
 </ul></div>
 

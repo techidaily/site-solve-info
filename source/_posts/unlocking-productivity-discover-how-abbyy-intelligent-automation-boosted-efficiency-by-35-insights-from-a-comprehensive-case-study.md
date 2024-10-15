@@ -1,7 +1,7 @@
 ---
 title: "Unlocking Productivity: Discover How ABBYY Intelligent Automation Boosted Efficiency by 35%% - Insights From a Comprehensive Case Study"
-date: 2024-10-07T17:51:35.497Z
-updated: 2024-10-08T16:20:29.634Z
+date: 2024-10-07T20:40:51.355Z
+updated: 2024-10-14T16:50:43.607Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6816402dd23c56a105ec64bc0a33bec17942a9ec34c261fc2115b1bb0464ace8.jpg
@@ -19,28 +19,29 @@ Transportation & Logistics | Accounts Payable Automation
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 35% Increase in Efficiency Thanks to ABBYY Intelligent Automation
 
 Transportation & Logistics | Accounts Payable Automation 
 
 ![Costain Transforms Its Finance Department Using ABBYY Content Intelligence](https://static1.abbyy.com/abbyycommedia/37640/clay-lacy-aviation-case-study-intelligent-document-processing-en_tn_556x303.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Customer Overview
 
 ![Clay Lacy Aviation](https://static4.abbyy.com/abbyycommedia/29983/clay-lacy-logo-210x34.jpg) 
-
-<!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 | Name         | Clay Lacy Aviation                            |
 | ------------ | --------------------------------------------- |
@@ -92,46 +93,39 @@ ABBYY’s IDP platform accelerates line item recognition, capture, and extractio
 
 [![ABBYY FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Learn more about ABBYY Vantage](https://static2.abbyy.com/abbyycommedia/24337/mailroom_automation_360x162.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY Vantage](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
-  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Learn more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Download the PDF version](https://static1.abbyy.com/abbyycommedia/37645/clay-lacy-aviation-case-study-intelligent-document-processing-en_tn_360x162.jpg)](https://static5.abbyy.com/abbyycommedia/37585/clay-lacy-aviation-case-study-intelligent-document-processing-en.pdf "PDF Version") [PDF Version](https://static5.abbyy.com/abbyycommedia/37585/clay-lacy-aviation-case-study-intelligent-document-processing-en.pdf "PDF Version") 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Read the document](https://static5.abbyy.com/abbyycommedia/37585/clay-lacy-aviation-case-study-intelligent-document-processing-en.pdf "PDF Version") 
 
 [More about ABBYY](https://tools.techidaily.com/abbyy/products/) 
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Ready to talk to an expert?
 
@@ -154,19 +148,21 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-2024-approved-transforming-single-shots-into-a-spectacular-tile-symphony/"><u>[New] 2024 Approved Transforming Single Shots Into a Spectacular Tile Symphony</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-essential-guide-to-preserving-screen-chats/"><u>[New] In 2024, Essential Guide to Preserving Screen Chats</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-inexpensive-pcs-revealed-by-best-obs-setup-for-2024/"><u>[New] Inexpensive PCs Revealed by Best OBS Setup for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-best-5-quick-video-capture-tools/"><u>[Updated] 2024 Approved Best 5 Quick Video Capture Tools</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-expert-video-upload-techniques-for-youtube-via-premiere/"><u>[Updated] In 2024, Expert Video Upload Techniques for YouTube via Premiere</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-screen-capturing-made-simple-with-apowersoft/"><u>2024 Approved Screen Capturing Made Simple with Apowersoft</u></a></li>
-<li><a href="https://facebook.techidaily.com/has-fb-shared-my-personal-details-unintentionally/"><u>Has FB Shared My Personal Details Unintentionally?</u></a></li>
-<li><a href="https://extra-information.techidaily.com/image-ingenuity-optimal-apps-and-platforms-for-frames-to-photos/"><u>Image Ingenuity Optimal Apps and Platforms for Frames to Photos</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimize-your-site-with-cookiebot-technology-for-tailored-user-experiences/"><u>Optimize Your Site with Cookiebot Technology for Tailored User Experiences</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimized-with-cookiebot-technology-for-smarter-online-engagement-tracking/"><u>Optimized with Cookiebot Technology for Smarter Online Engagement Tracking</u></a></li>
-<li><a href="https://solve-info.techidaily.com/proprietary-website-personalization-using-cookiebot-technology/"><u>Proprietary Website Personalization Using Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/reshaping-fiscal-processes-in-response-to-the-modern-eras-challenges-effective-techniques-for-thriving/"><u>Reshaping Fiscal Processes in Response to the Modern Era's Challenges: Effective Techniques for Thriving</u></a></li>
-<li><a href="https://solve-info.techidaily.com/revolutionize-your-analytics-capabilities-innovative-solutions-by-cookiebot/"><u>Revolutionize Your Analytics Capabilities – Innovative Solutions by Cookiebot</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/understanding-the-fundamental-contrasts-in-video-streaming-for-2024/"><u>Understanding the Fundamental Contrasts in Video Streaming for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-9-masterclass-in-live-gaming-streams-for-2024/"><u>[New] 9 Masterclass in Live Gaming Streams for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-how-to-expertly-archive-your-favorite-streamed-shows-hulu-for-2024/"><u>[New] How To Expertly Archive Your Favorite Streamed Shows (Hulu) for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-mastering-youtubes-sound-enhancement-techniques/"><u>[Updated] Mastering YouTube's Sound Enhancement Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/cyber-risks-in-casual-social-media-quizzes-analyzed/"><u>Cyber Risks in Casual Social Media Quizzes Analyzed</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhanced-conversion-rates-with-our-cookiebot-driven-technology/"><u>Enhanced Conversion Rates with Our Cookiebot-Driven Technology</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhanced-marketing-insights-through-cookiebot-technology/"><u>Enhanced Marketing Insights Through Cookiebot Technology</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhanced-marketing-success-with-cookiebot-technology/"><u>Enhanced Marketing Success with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhanced-user-experience-with-cookiebots-smart-data-tracking-solutions/"><u>Enhanced User Experience with Cookiebot's Smart Data Tracking Solutions</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhanced-user-tracking-with-cookiebot-technology/"><u>Enhanced User Tracking with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhancing-intelligence-in-the-digital-age-how-abbyy-plus-blue-prism-revolutionize-efficiency/"><u>Enhancing Intelligence in the Digital Age: How ABBYY + Blue Prism Revolutionize Efficiency</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhancing-websites-with-cookiebot-technology-for-better-engagement/"><u>Enhancing Websites with Cookiebot Technology for Better Engagement</u></a></li>
+<li><a href="https://win-dash.techidaily.com/geforce-rtx-3080-ti-drivers-download-the-new-release-for-win-11win-8win-7-today/"><u>GeForce RTX 3080 Ti Drivers: Download the New Release for Win 11/Win 8/Win 7 Today</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722965143168-how-to-download-and-install-drivers-on-your-hp-envy-laptop-effortless-guide/"><u>How to Download & Install Drivers on Your HP ENVY Laptop | Effortless Guide</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-itel-a70-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Itel A70 | Dr.fone</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-solutions-to-spy-on-apple-iphone-15-plus-with-and-without-jailbreak-drfone-by-drfone-virtual-ios/"><u>In 2024, Solutions to Spy on Apple iPhone 15 Plus with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/top-strategies-for-captivating-apparel-photo-shoots/"><u>Top Strategies for Captivating Apparel Photo Shoots</u></a></li>
 </ul></div>
 

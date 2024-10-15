@@ -1,7 +1,7 @@
 ---
 title: Sofia Tarasova - Expert Collaborator in R&D & Product Innovation
-date: 2024-10-01T11:37:32.704Z
-updated: 2024-10-03T01:13:56.057Z
+date: 2024-10-08T18:00:57.598Z
+updated: 2024-10-14T23:46:24.244Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0b724e890933179083e665890982beb41082b155ef2ba061d1c67bef15f0d934.jpg
@@ -28,19 +28,6 @@ Continuing our interviews to celebrate International Women’s Month, we talk to
 ### What attracted you to ABBYY?
 
 Primarily, it was the people who work here. I was impressed by the company's attitude to their employees. You are given the opportunity to prove yourself, get noticed, and grow professionally.
-
-<!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Tell us your title and a bit about your role and journey at ABBYY so far
 
@@ -70,22 +57,16 @@ I had an opportunity to work with leading local and international FinTech compan
 
 ![](https://static1.abbyy.com/abbyycommedia/36890/sofia-tarasova-3.png)
 
-<!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Your top advice to someone joining ABBYY in your function?
 
 The People team is about people—in every aspect. It’s about the ability to listen to their needs, their concerns, assisting them in their personal development and professional growth. At the same time, it’s about aligning those aspirations with the goals and strategy of the company.
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Since it is International Women’s Month, we also wanted to ask you: What do you think are the most important skills for a woman to have in order to succeed in the tech industry?
 
@@ -94,16 +75,17 @@ In my experience, the tech industry has become much more advanced in terms of th
 ![](https://static1.abbyy.com/abbyycommedia/36895/sofia-tarasova-6.png?width=850&height=567)
 
 <!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How do you spend your free time?
@@ -112,15 +94,22 @@ Most of my free time is taken up at the gym, and six months ago I took up power 
 
 Also, I really like walking. If you look at my Apple Watch, you will never see a day that I haven’t closed all my activity rings. On average, I walk 20k steps a day (17-18 km). The gym helps me to switch off my thoughts and clear my mind, while walking does the opposite and helps me to think about ideas for various topics.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### If you could have one wish come true, what would it be and why?
 
 Once upon a time, I promised my mother that when I grew up, and when my parents are elderly, I would build them a house somewhere quiet and cozy with huge floor-length windows. But my wish is not for that house to suddenly appear. It is about me being able to make it happen through my own success.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Name any inspirational book/movie/music you have recently discovered or are enjoying at the moment
@@ -139,27 +128,20 @@ So, if you're a skeptic of Anime like I was, I recommend watching it. I promise 
 
 Share 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Related posts
 
 ![](https://static4.abbyy.com/abbyycommedia/37757/larysa-lototska.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [ABBYY Spotlight: Larysa Lototska, Director of Customer Success, North America](https://tools.techidaily.com/abbyy/products/) 
 
 ![](https://static5.abbyy.com/abbyycommedia/37764/viacheslav-prodan.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [ABBYY Spotlight: Viacheslav Prodan, Director Customer Excellence (CEx) Systems, Processes, and Automations](https://www.abbyy.com/blog/meet-viacheslav-prodan/) 
 
@@ -222,19 +204,21 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-constructing-an-affordable-google-vr-helmet-at-home/"><u>[New] 2024 Approved Constructing an Affordable Google VR Helmet at Home</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-in-2024-block-youtube-previews-embrace-full-length-videos/"><u>[New] In 2024, Block YouTube Previews, Embrace Full-Length Videos</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-overcoming-sync-issues-ensuring-smooth-video-sharing-on-mobile-messengers-for-2024/"><u>[Updated] Overcoming Sync Issues Ensuring Smooth Video Sharing on Mobile Messengers for 2024</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/10-best-iphone-data-eraser-software-2024/"><u>10 Best iPhone Data Eraser Software - 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-personalization-enhancing-your-websites-user-experience/"><u>Cookiebot-Driven Personalization: Enhancing Your Website's User Experience</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-solutions-for-enhanced-user-engagement/"><u>Cookiebot-Driven Solutions for Enhanced User Engagement</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-success-optimizing-your-website-with-advanced-analytics/"><u>Cookiebot-Driven Success: Optimizing Your Website with Advanced Analytics</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enabled-enhancing-your-websites-engagement-and-conversion-rates/"><u>Cookiebot-Enabled: Enhancing Your Website's Engagement & Conversion Rates</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-user-experience-tailored-content-and-targeting/"><u>Cookiebot-Enhanced User Experience: Tailored Content & Targeting</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-user-experience-through-smart-analytics/"><u>Cookiebot: Enhanced User Experience Through Smart Analytics</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/getting-acquainted-with-german-pronunciation-basics/"><u>Getting Acquainted with German Pronunciation Basics</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-forgotten-pin-of-your-honor-90-by-drfone-android/"><u>In 2024, How to Remove Forgotten PIN Of Your Honor 90</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-what-are-location-permissions-life360-on-lava-blaze-2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What are Location Permissions Life360 On Lava Blaze 2 5G? | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/pourquoi-joindre-les-ranks-dabbyy-une-exploration-des-benefices-professionnels/"><u>Pourquoi Joindre Les Ranks D'ABBYY : Une Exploration Des Bénéfices Professionnels</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-transforming-everyday-alerts-how-to-create-customizable-tones-on-android-phones/"><u>[Updated] 2024 Approved Transforming Everyday Alerts How to Create Customizable Tones on Android Phones</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unlock-iphone-video-potential-mastering-8-essential-filmmaking-skills/"><u>[Updated] Unlock iPhone Video Potential Mastering 8 Essential Filmmaking Skills</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1-ultimate-guide-mastering-picture-in-picture-recording-techniques/"><u>1. Ultimate Guide: Mastering Picture-in-Picture Recording Techniques</u></a></li>
+<li><a href="https://solve-info.techidaily.com/wmaflac/"><u>簡単ガイド: WMA音楽データをFLAC形式にするためのプログラムとオンラインツール</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/disabling-closed-captions-in-amazons-prime-streaming-service/"><u>Disabling Closed Captions in Amazon's Prime Streaming Service</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/edit-videos-like-a-pro-microsoft-video-editor-for-windows-1087-for-2024/"><u>Edit Videos Like a Pro Microsoft Video Editor for Windows 10/8/7 for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-charting-the-peak-1-shorter-videos-downloader-hub/"><u>In 2024, Charting the Peak #1 Shorter Videos Downloader Hub</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-realme-11-pro-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Realme 11 Pro To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/step-by-step-guide-to-earning-on-reddit-no-skills-required/"><u>Step-by-Step Guide to Earning on Reddit - No Skills Required</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-ultimate-strategy-for-gamers-why-choose-steam-over-others/"><u>The Ultimate Strategy for Gamers: Why Choose Steam Over Others</u></a></li>
+<li><a href="https://solve-info.techidaily.com/the-ultimate-tutorial-for-streaming-ustvnow-via-kodi-using-the-setup-wizard/"><u>The Ultimate Tutorial for Streaming USTVNow via Kodi Using The Setup Wizard</u></a></li>
+<li><a href="https://solve-info.techidaily.com/top-rated-video-format-transformer-convert-dvds-to-avi-files-on-windows-11-2024-edition/"><u>Top Rated Video Format Transformer: Convert DVDs to Avi Files on Windows 11 - 2024 Edition</u></a></li>
+<li><a href="https://solve-info.techidaily.com/ultimate-avchd-transformation-techniques-mastering-the-art-of-formatting-and-uninterrupted-viewing/"><u>Ultimate AVCHD Transformation Techniques - Mastering the Art of Formatting and Uninterrupted Viewing</u></a></li>
+<li><a href="https://solve-info.techidaily.com/ultimate-guide-to-the-top-11-video-format-changers-for-pc-including-browser-based-solutions/"><u>Ultimate Guide to the Top 11 Video Format Changers for PC, Including Browser-Based Solutions!</u></a></li>
+<li><a href="https://solve-info.techidaily.com/ultimate-resource-top-platforms-for-streaming-live-and-recorded-musical-performances/"><u>Ultimate Resource: Top Platforms for Streaming Live and Recorded Musical Performances</u></a></li>
+<li><a href="https://fox-info.techidaily.com/visual-templates-free-eco-friendly-options-for-2024/"><u>Visual Templates Free Eco-Friendly Options for 2024</u></a></li>
 </ul></div>
 

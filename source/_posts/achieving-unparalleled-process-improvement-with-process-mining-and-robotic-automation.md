@@ -1,7 +1,7 @@
 ---
 title: Achieving Unparalleled Process Improvement with Process Mining & Robotic Automation
-date: 2024-10-03T16:52:45.213Z
-updated: 2024-10-08T16:42:11.345Z
+date: 2024-10-12T18:20:47.786Z
+updated: 2024-10-14T20:41:55.000Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ddbe93c1f383d863e063fbca9f6400fefa603d0725cd39b0f3a07fbfec69fabd.jpeg
@@ -22,10 +22,10 @@ Organizations across industries, from manufacturing to healthcare, are looking t
 In this article, we’ll explore both process mining and RPA, including how they work, their uses and the benefits of utilizing them together.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What is process mining?
@@ -40,14 +40,14 @@ Process mining is leveraged across various industries to model and present proce
 * **Financial services**. Financial services firms use process mining to streamline their interorganizational processes, from onboarding to loan processing. Process models will highlight inefficiencies or bottlenecks in process flows that should be addressed, including handling times and error rates.
 * **Healthcare**. Healthcare organizations manage several, complex in-person and online systems. With process mining, you'll get insight into the day-to-day details of process execution. Healthcare companies can use this data to make improvements such as optimizing patient flow and reallocating appointments, which will improve overall quality of patient care.
 
-## 
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+## 
 
 ## What is RPA?
 
@@ -85,10 +85,10 @@ Process mining, paired with RPA, allows businesses to:
 An invaluable facet of process mining is the ability to monitor process improvements. You can specify scenarios or conditions that should trigger real-time alerts for process review. This ensures your processes follow ongoing business compliance.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Target processes with the greatest automation potential
@@ -96,10 +96,10 @@ An invaluable facet of process mining is the ability to monitor process improvem
 Process mining provides a comprehensive, end-to-end view of actual process execution, spanning multiple applications. These insights will highlight high-value RPA opportunities, considering all process variations, times and cost implications.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Execute RPA at enterprise scale 
@@ -130,6 +130,19 @@ To unlock unparalleled business efficiency and performance, speak to one of our 
 
 ![](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Tamas Mahr
 
 Head of ABBYY Timeline Development, Administrative Director of ABBYY Hungary
@@ -137,13 +150,6 @@ Head of ABBYY Timeline Development, Administrative Director of ABBYY Hungary
 Connect with Tamas on [LinkedIn](https://www.linkedin.com/in/tamasmahr/).
 
 _Editorial note: This blog post was originally published October 8, 2019, and was updated on July 23 to include an FAQ section and an updated definition of how RPA and process mining work together._
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Frequently asked questions
 
@@ -180,22 +186,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-video-editing-for-dummies-10-essential-youtube-insights/"><u>[New] 2024 Approved Video Editing for Dummies 10 Essential YouTube Insights</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-elevating-your-contents-presence-perfecting-youtube-thumbnails-size-for-2024/"><u>[New] Elevating Your Content's Presence Perfecting YouTube Thumbnails Size for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-streamlining-your-youtube-content-with-finalcut-pro-expertise/"><u>[New] Streamlining Your YouTube Content with FinalCut Pro Expertise</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-audiograbbers-free-toolkit-and-evaluation-for-2024/"><u>[Updated] AudioGrabbers Free Toolkit & Evaluation for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-als-losung-zur-automatisierung-von-rechtspapierverarbeitung-fortschrittliche-rechnungsmanagement-systeme-fur-rechtsanwalte/"><u>ABBYY Als Lösung Zur Automatisierung Von Rechtspapierverarbeitung – Fortschrittliche Rechnungsmanagement-Systeme Für Rechtsanwälte</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/advanced-6-private-film-repositories/"><u>Advanced 6 Private Film Repositories</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-your-site-with-automated-personalization-the-cookiebot-advantage/"><u>Boost Your Site with Automated Personalization: The Cookiebot Advantage</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-your-site-with-our-efficient-cookiebot-analytics-solution/"><u>Boost Your Site with Our Efficient Cookiebot Analytics Solution</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-your-sites-traffic-with-our-leading-cookiebot-driven-analytics-tools/"><u>Boost Your Site's Traffic with Our Leading Cookiebot-Driven Analytics Tools</u></a></li>
-<li><a href="https://solve-info.techidaily.com/convert-photos-to-editable-pdfsjpeg-files-using-iocr-scanner-streamline-reading-on-ios-devices/"><u>Convert Photos to Editable PDFs/JPEG Files Using iOCR Scanner | Streamline Reading on iOS Devices</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-digital-solutions-elevate-your-seo-strategy/"><u>Cookiebot-Driven Digital Solutions: Elevate Your SEO Strategy</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enabled-customized-user-experience-boosts-engagement-and-sales/"><u>Cookiebot-Enabled Customized User Experience Boosts Engagement and Sales</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/facebooks-visual-journey-capturing-videos-for-2024/"><u>Facebook's Visual Journey Capturing Videos for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/gratuit-verbale-conversie-from-wmv-to-gif-expertise-professionnelle-en-ligne-avec-movavi/"><u>Gratuit Verbale Conversie: From WMV TO GIF - Expertise Professionnelle en Ligne Avec Movavi</u></a></li>
-<li><a href="https://windows11.techidaily.com/immediate-solutions-for-win10win11-stuck-with-pin-lock/"><u>Immediate Solutions for Win10/Win11 Stuck with PIN Lock</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-depth-strategies-for-organizing-your-windows-mov-collection-for-2024/"><u>In-Depth Strategies for Organizing Your Windows .mov Collection for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyycfo/"><u>ジェームズ・ライター氏がABBYYの新しいCFOとして昇格</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-from-puzzles-to-peril-the-gaming-genres-progression/"><u>[Updated] 2024 Approved From Puzzles to Peril The Gaming Genre's Progression</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-easy-steps-for-sending-files-directly-to-your-computer/"><u>[Updated] In 2024, Easy Steps for Sending Files Directly to Your Computer</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-your-ultimate-roadmap-for-optimal-youtube-video-resolution-width-and-height-for-2024/"><u>[Updated] Your Ultimate Roadmap for Optimal YouTube Video Resolution, Width & Height for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/demystifying-gopro-video-capture-with-burst-mode-for-2024/"><u>Demystifying GoPro Video Capture with Burst Mode for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhancing-rpa-success-through-next-gen-process-analytics-techniques-by-abbyy/"><u>Enhancing RPA Success Through Next-Gen Process Analytics Techniques by ABBYY</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhancing-user-experience-with-cookiebot-technology-integration/"><u>Enhancing User Experience with Cookiebot Technology Integration</u></a></li>
+<li><a href="https://solve-info.techidaily.com/experience-enhanced-marketing-success-using-the-advanced-capabilities-of-cookiebot-solutions/"><u>Experience Enhanced Marketing Success Using the Advanced Capabilities of Cookiebot Solutions</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/expert-advice-on-monitoring-and-maintaining-safe-operating-temperatures-in-macbooks/"><u>Expert Advice on Monitoring and Maintaining Safe Operating Temperatures in MacBooks</u></a></li>
+<li><a href="https://solve-info.techidaily.com/finereader-14-von-abbyy-neue-funktionen-fur-zusatzliche-pdf-dateitypen-unterstutzen/"><u>FineReader 14 Von ABBYY: Neue Funktionen Für Zusätzliche PDF-Dateitypen Unterstützen</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/how-to-ensure-periscope-videos-are-secured-post-record-for-2024/"><u>How to Ensure Periscope Videos Are Secured Post-Record for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/how-to-reactivate-lost-bluetooth-listings-dmi/"><u>How to Reactivate Lost Bluetooth Listings DMI</u></a></li>
+<li><a href="https://solve-info.techidaily.com/insights-on-future-ai-trends-with-abbyy-executive-moving-beyond-generative-hype/"><u>Insights on Future AI Trends with ABBYY Executive - Moving Beyond Generative Hype</u></a></li>
+<li><a href="https://solve-info.techidaily.com/iphone-document-scanning-and-ocr-convert-pdfsjpgs-with-finereader-app/"><u>IPhone Document Scanning & OCR: Convert PDFs/JPGs with FineReader App</u></a></li>
+<li><a href="https://solve-info.techidaily.com/marlin-equity-partnersabbyy/"><u>Marlin Equity PartnersがABBYYに対する投資を開始 - 最新ニュース解析</u></a></li>
+<li><a href="https://solve-info.techidaily.com/nagarro-achieves-a-60-cut-in-bill-payment-cycle-with-abbyy-for-enhanced-customer-accessibility/"><u>Nagarro Achieves a 60% Cut in Bill Payment Cycle with ABBYY for Enhanced Customer Accessibility</u></a></li>
+<li><a href="https://solve-info.techidaily.com/no-coding-experience-required-build-your-own-apps-in-minutes-not-months/"><u>No Coding Experience Required? Build Your Own Apps in Minutes, Not Months!</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/rejuvenating-stable-display-sync-on-compromised-amd-gpus/"><u>Rejuvenating Stable Display Sync on Compromised AMD GPUs</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/the-5-superior-ps2-android-gaming-simulators-reviewed/"><u>The 5 Superior PS2 Android Gaming Simulators Reviewed</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-top-3d-video-creation-tools-you-need-to-try/"><u>Updated 2024 Approved Top 3D Video Creation Tools You Need to Try</u></a></li>
 </ul></div>
 

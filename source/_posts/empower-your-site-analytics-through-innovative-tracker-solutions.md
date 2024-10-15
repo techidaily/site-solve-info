@@ -1,7 +1,7 @@
 ---
 title: Empower Your Site Analytics Through Innovative Tracker Solutions
-date: 2024-09-27T06:19:24.844Z
-updated: 2024-10-03T11:13:05.768Z
+date: 2024-10-07T21:56:56.466Z
+updated: 2024-10-15T01:21:48.385Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ebbfd91fc57bf5ea9818d4e87d8cfd35544a71921ce7ca73b2986ee75e83dd45.jpg
@@ -20,10 +20,10 @@ Government | Document Processing
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Das Deutsche Patent- und Markenamt (DPMA) erschließt seine Patentdokumentation als Volltext
@@ -31,13 +31,6 @@ Government | Document Processing
 Behörden und öffentlicher Sektor | Dokumentenverarbeitung 
 
 ![](https://static1.abbyy.com/abbyycommedia/15248/4208e_images_cs_bankstream556x303.png) 
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Über den Kunden
 
@@ -92,20 +85,27 @@ Bis Juni 2005 wird die Umwandlung von ca. 3 Millionen deutschen Patentdokumenten
 
 [![3-finereader-engine](https://static2.abbyy.com/abbyycommedia/14346/3-finereader-engine.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FineReader Engine](https://tools.techidaily.com/abbyy/products/) 
 
-[Mehr erfahren](https://tools.techidaily.com/abbyy/products/) 
-
-[![11-government](https://static2.abbyy.com/abbyycommedia/14361/11-government.jpg)](https://tools.techidaily.com/abbyy/products/) [Behörden und Verwaltung](https://tools.techidaily.com/abbyy/products/) 
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Mehr erfahren](https://tools.techidaily.com/abbyy/products/) 
 
+[![11-government](https://static2.abbyy.com/abbyycommedia/14361/11-government.jpg)](https://tools.techidaily.com/abbyy/products/) [Behörden und Verwaltung](https://tools.techidaily.com/abbyy/products/) 
+
+[Mehr erfahren](https://tools.techidaily.com/abbyy/products/) 
+
 [![cs-texthelp-360x162](https://static2.abbyy.com/abbyycommedia/15361/cs-texthelp-360x162.jpg)](https://static4.abbyy.com/abbyycommedia/6135/cs-hp-dpma-fr8-engine-d.pdf "PDF-Version") [PDF-Version](https://static4.abbyy.com/abbyycommedia/6135/cs-hp-dpma-fr8-engine-d.pdf "PDF-Version") 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Zum Dokument](https://static4.abbyy.com/abbyycommedia/6135/cs-hp-dpma-fr8-engine-d.pdf "PDF-Version") 
 
@@ -118,10 +118,16 @@ Teilen  True ?  : ""
 [Alle ABBYY-Niederlassungen](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Sind Sie bereit, mit einem Experten zu sprechen?
@@ -145,22 +151,22 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-in-2024-compact-movie-story-proposal/"><u>[New] In 2024, Compact Movie Story Proposal</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-secrets-of-the-trade-boosting-popularity-with-tiktok-unboxings/"><u>[New] Secrets of the Trade Boosting Popularity with TikTok Unboxings</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-a-step-by-step-approach-to-pinpointing-stellar-photos-on-pexels/"><u>[Updated] 2024 Approved A Step-by-Step Approach to Pinpointing Stellar Photos on Pexels</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-advanced-aesthetics-the-ultimate-guide-to-tiktok-effects-for-2024/"><u>[Updated] Advanced Aesthetics The Ultimate Guide to TikTok Effects for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtube-channels-for-filmmakers-to-learn-filmmaking-tips/"><u>2024 Approved YouTube Channels for Filmmakers to Learn Filmmaking Tips</u></a></li>
-<li><a href="https://win-able.techidaily.com/fixing-hp-monitor-issues-solutions-when-your-screen-wont-turn-on/"><u>Fixing HP Monitor Issues: Solutions When Your Screen Won't Turn On</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-mastering-quieter-audio-with-progressive-volume-reduction-in-lumafusion/"><u>In 2024, Mastering Quieter Audio with Progressive Volume Reduction in Lumafusion</u></a></li>
-<li><a href="https://some-tips.techidaily.com/in-2024-the-ultimate-vr-player-guide-unveiling-the-best-pc-streamers/"><u>In 2024, The Ultimate VR Player Guide Unveiling the Best PC Streamers</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/play-store-stuck-on-downloading-of-vivo-y17s-7-ways-to-resolve-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Stuck on Downloading Of Vivo Y17s? 7 Ways to Resolve | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/top-rated-batch-processing-video-compression-tools-best-options-available/"><u>Top-Rated Batch Processing Video Compression Tools: Best Options Available</u></a></li>
-<li><a href="https://solve-info.techidaily.com/transform-your-videos-comprehensive-tutorial-on-changing-ogm-to-mp4/"><u>Transform Your Videos: Comprehensive Tutorial on Changing OGM to MP4</u></a></li>
-<li><a href="https://solve-info.techidaily.com/trouble-free-guide-watching-dvd-movies-on-your-pc/"><u>Trouble-Free Guide: Watching DVD Movies on Your PC</u></a></li>
-<li><a href="https://solve-info.techidaily.com/trouble-free-techniques-for-adding-mkv-videos-into-sony-vegas/"><u>Trouble-Free Techniques for Adding MKV Videos Into Sony Vegas</u></a></li>
-<li><a href="https://solve-info.techidaily.com/troubleshooting-downloads-how-to-successfully-retrieve-abema-previously-abematv-streaming-content/"><u>Troubleshooting Downloads: How to Successfully Retrieve ABEMA (Previously AbemaTV) Streaming Content</u></a></li>
-<li><a href="https://solve-info.techidaily.com/ultimate-guide-to-downloading-movies-from-dvds-onto-your-pc-step-by-step-process/"><u>Ultimate Guide to Downloading Movies From DVDs Onto Your PC - Step by Step Process</u></a></li>
-<li><a href="https://solve-info.techidaily.com/ultimate-guide-mastering-video-compression-with-adobe-media-encoder/"><u>Ultimate Guide: Mastering Video Compression with Adobe Media Encoder</u></a></li>
-<li><a href="https://solve-info.techidaily.com/understanding-handbrakes-capabilities-for-merging-multiple-video-streams-insights-and-solutions/"><u>Understanding Handbrake's Capabilities for Merging Multiple Video Streams: Insights & Solutions</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-harness-youtube-opportunities-via-strategic-creator-studio-application-for-2024/"><u>[New] Harness YouTube Opportunities via Strategic Creator Studio Application for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-camera-troubles-no-more-with-obs/"><u>[Updated] Camera Troubles No More with OBS</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-altering-username-on-google-meet-via-pc-and-mobile/"><u>[Updated] In 2024, Altering Username on Google Meet via PC & Mobile</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-how-to-hit-the-high-notes-in-capturing-twitch-live-events/"><u>[Updated] In 2024, How to Hit the High Notes in Capturing Twitch Live Events</u></a></li>
+<li><a href="https://solve-info.techidaily.com/automated-insurance-underwriting-with-data-driven-techniques/"><u>Automated Insurance Underwriting with Data-Driven Techniques</u></a></li>
+<li><a href="https://solve-info.techidaily.com/automated-web-analytics-with-cookiebot-technology/"><u>Automated Web Analytics with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-info.techidaily.com/boost-site-engagement-with-cookiebot-technology-integration/"><u>Boost Site Engagement with Cookiebot Technology Integration</u></a></li>
+<li><a href="https://solve-info.techidaily.com/celebrating-international-womens-day-2024-honoring-abbyys-leading-female-contributors/"><u>Celebrating International Women's Day 2024: Honoring ABBYY's Leading Female Contributors</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-driven-performance-unlocking-website-personalization/"><u>Cookiebot-Driven Performance: Unlocking Website Personalization</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-driven-personalization-enhancing-your-websites-user-experience/"><u>Cookiebot-Driven Personalization: Enhancing Your Website's User Experience</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-driven-solutions-for-enhanced-user-engagement/"><u>Cookiebot-Driven Solutions for Enhanced User Engagement</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-driven-success-optimizing-your-website-with-advanced-analytics/"><u>Cookiebot-Driven Success: Optimizing Your Website with Advanced Analytics</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/how-to-speed-up-windows-file-inspection/"><u>How To Speed Up Windows File Inspection</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-14-pro-max-to-others-android-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 14 Pro Max To Others Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-best-color-grading-plugins-top-15-luts-for-action-cams/"><u>In 2024, Best Color Grading Plugins Top 15 LUTs For Action Cams</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-can-life360-track-you-when-your-vivo-v27-pro-is-off-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track You When Your Vivo V27 Pro is off? | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/unlocking-the-true-potential-of-windows-11-the-best-changes-to-make/"><u>Unlocking the True Potential of Windows 11: The Best Changes to Make</u></a></li>
 </ul></div>
 

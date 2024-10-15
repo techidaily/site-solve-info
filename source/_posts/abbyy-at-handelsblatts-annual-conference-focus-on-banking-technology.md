@@ -1,7 +1,7 @@
 ---
 title: ABBYY at Handelsblatt's Annual Conference - Focus on Banking Technology
-date: 2024-10-03T16:50:12.831Z
-updated: 2024-10-08T18:28:00.711Z
+date: 2024-10-10T17:30:55.172Z
+updated: 2024-10-14T21:33:06.368Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b7b45cfdc35344213e5101907c39a4f8622c548d37868126691840befd4a8d38.jpg
@@ -74,31 +74,29 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-gaming-evolution-top-7-stardew-valley-enhancements-7/"><u>[Updated] Gaming Evolution Top 7 Stardew Valley Enhancements (#7)</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-depth-guide-to-simple-high-dynamic-range/"><u>[Updated] In-Depth Guide to Simple High Dynamic Range</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-inside-outlook-unveiling-vrs-downfalls/"><u>2024 Approved Inside Outlook Unveiling VR's Downfalls</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-blueprint-for-effortless-youtube-video-posting-on-fb/"><u>2024'S Blueprint for Effortless YouTube Video Posting on FB</u></a></li>
-<li><a href="https://solve-info.techidaily.com/guide-to-seamlessly-transform-img-images-into-smooth-playing-mp4-videos-compatible-with-every-device/"><u>Guide to Seamlessly Transform IMG Images Into Smooth-Playing MP4 Videos Compatible with Every Device</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-call-history-on-xperia-5-v-by-fonelab-android-recover-call-logs/"><u>How to restore wiped call history on Xperia 5 V?</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-vivo-x-flip-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Vivo X Flip to iPhone 14 and 15 | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-in-ar-games-on-samsung-galaxy-f34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Simulate GPS Movement in AR games On Samsung Galaxy F34 5G? | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/insiders-choice-best-picks-for-snappable-soundtracks-for-2024/"><u>Insider's Choice Best Picks for Snappable Soundtracks for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/itunes-enthusiasts-tutorial-how-to-convert-and-import-dvd-content-seamlessly/"><u>ITunes Enthusiast's Tutorial: How to Convert & Import DVD Content Seamlessly</u></a></li>
-<li><a href="https://solve-info.techidaily.com/mp33gp/"><u>MP3形式への3GPファイル変換手順集</u></a></li>
-<li><a href="https://solve-info.techidaily.com/mp35/"><u>MP3音量変更手順：5秘技を解明する</u></a></li>
-<li><a href="https://solve-info.techidaily.com/podcast-conversion-mastery-discover-the-three-most-efficient-techniques-for-mp3-creation/"><u>Podcast Conversion Mastery: Discover the Three Most Efficient Techniques for MP3 Creation</u></a></li>
-<li><a href="https://facebook.techidaily.com/preventing-purchasing-perils-escaping-exaggerated-offers-in-the-social-commerce-world/"><u>Preventing Purchasing Perils: Escaping Exaggerated Offers in the Social Commerce World</u></a></li>
-<li><a href="https://solve-info.techidaily.com/repeat-your-success-top-3-methods-for-looping-videos-on-youtube/"><u>Repeat Your Success: Top 3 Methods for Looping Videos on YouTube</u></a></li>
-<li><a href="https://solve-info.techidaily.com/simple-steps-adding-black-stripes-or-bars-to-your-videos-on-windows/"><u>Simple Steps: Adding Black Stripes or Bars to Your Videos on Windows</u></a></li>
-<li><a href="https://solve-info.techidaily.com/simple-steps-free-techniques-to-convert-and-rotate-your-avi-files/"><u>Simple Steps: Free Techniques to Convert and Rotate Your AVI Files!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/step-by-step-guide-converting-video-from-mpg-to-mp4-for-windows-11-users/"><u>Step-by-Step Guide: Converting Video From MPG to MP4 for Windows 11 Users</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/the-complete-zoomers-guide-achieving-exceptional-video-and-audio-recordings-on-zoom-for-2024/"><u>The Complete Zoomer's Guide Achieving Exceptional Video & Audio Recordings on Zoom for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-ios-screen-recording-a-no-nonsense-approach/"><u>[New] In 2024, IOS Screen Recording A No-Nonsense Approach</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-diving-deep-incorporating-luts-into-your-creative-workflow-for-2024/"><u>[Updated] Diving Deep Incorporating LUTs Into Your Creative Workflow for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-capturing-cadence-leading-cameras-for-extended-shutter-times/"><u>2024 Approved Capturing Cadence Leading Cameras for Extended Shutter Times</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-quick-ig-update-on-todays-compelling-podcast/"><u>2024 Approved Quick IG Update on Today's Compelling Podcast</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-top-10-accelerating-yt-channels-for-intellectual-enlightenment/"><u>2024 Approved Top 10 Accelerating YT Channels for Intellectual Enlightenment</u></a></li>
+<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-lava-agni-2-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Lava Agni 2 5G | Dr.fone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/wmaflac/"><u>簡単ガイド: WMA音楽データをFLAC形式にするためのプログラムとオンラインツール</u></a></li>
+<li><a href="https://howto.techidaily.com/android-safe-mode-how-to-turn-off-safe-mode-on-realme-c33-2023-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Safe Mode - How to Turn off Safe Mode on Realme C33 2023? | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/simplified-troubleshooting-rectifying-the-top-4-gpu-issues/"><u>Simplified Troubleshooting: Rectifying the Top 4 GPU Issues</u></a></li>
+<li><a href="https://solve-info.techidaily.com/the-advantages-of-being-flexible-with-your-dates-for-better-rates/"><u>The Advantages of Being Flexible with Your Dates for Better Rates.</u></a></li>
+<li><a href="https://solve-info.techidaily.com/the-ultimate-guide-to-effortlessly-convert-your-dvds-to-android-top-tools-reviewed/"><u>The Ultimate Guide to Effortlessly Convert Your DVDs to Android: Top Tools Reviewed!</u></a></li>
+<li><a href="https://solve-info.techidaily.com/the-ultimate-tutorial-for-streaming-ustvnow-via-kodi-using-the-setup-wizard/"><u>The Ultimate Tutorial for Streaming USTVNow via Kodi Using The Setup Wizard</u></a></li>
+<li><a href="https://solve-info.techidaily.com/top-rated-video-format-transformer-convert-dvds-to-avi-files-on-windows-11-2024-edition/"><u>Top Rated Video Format Transformer: Convert DVDs to Avi Files on Windows 11 - 2024 Edition</u></a></li>
+<li><a href="https://solve-info.techidaily.com/ultimate-avchd-transformation-techniques-mastering-the-art-of-formatting-and-uninterrupted-viewing/"><u>Ultimate AVCHD Transformation Techniques - Mastering the Art of Formatting and Uninterrupted Viewing</u></a></li>
+<li><a href="https://solve-info.techidaily.com/ultimate-guide-to-the-top-11-video-format-changers-for-pc-including-browser-based-solutions/"><u>Ultimate Guide to the Top 11 Video Format Changers for PC, Including Browser-Based Solutions!</u></a></li>
+<li><a href="https://solve-info.techidaily.com/ultimate-resource-top-platforms-for-streaming-live-and-recorded-musical-performances/"><u>Ultimate Resource: Top Platforms for Streaming Live and Recorded Musical Performances</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/visual-vibes-building-a-repertoire-of-shareable-fb-and-insta-videos/"><u>Visual Vibes Building a Repertoire of Shareable FB & Insta Videos</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

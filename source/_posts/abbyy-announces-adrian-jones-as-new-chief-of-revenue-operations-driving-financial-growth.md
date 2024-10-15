@@ -1,7 +1,7 @@
 ---
 title: ABBYY Announces Adrian Jones as New Chief of Revenue Operations, Driving Financial Growth
-date: 2024-10-03T19:12:10.199Z
-updated: 2024-10-08T17:43:04.868Z
+date: 2024-10-11T00:12:32.148Z
+updated: 2024-10-14T19:29:07.510Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f0922cdea4398af9eb93c3915c9d932ac3a495368c2166a8e69e3bccbb692700.jpg
@@ -32,10 +32,16 @@ Jones ist derzeit als Senior Advisor für das Private-Equity-Unternehmen Warburg
 1 IDC, Worldwide Intelligent Process Automation Market Shares, 2020: Solid Growth Across Cloud Segments, Doc # US47469221, June 2021.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Über ABBYY
@@ -45,10 +51,16 @@ ABBYY ermöglicht es, mit seiner Digital Intelligence Plattform die gesamten Ges
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Pressekontakt:
@@ -56,10 +68,10 @@ ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeich
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Bianca Stupp
@@ -85,15 +97,14 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-the-ultimate-decipherment-insiders-look-at-xvideo-hub-review/"><u>[New] The Ultimate Decipherment Insider's Look at XVideo Hub Review</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-refine-your-beauty-videos-with-youtubes-palette-tweaking-for-2024/"><u>[Updated] Refine Your Beauty Videos with Youtube's Palette Tweaking for 2024</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-free-uploads-more-views-youtubes-easily-overlooked-hacks/"><u>2024 Approved Free Uploads, More Views YouTube's Easily Overlooked Hacks</u></a></li>
-<li><a href="https://solve-info.techidaily.com/gifwindowsand/"><u>美しいGIFをWindowsで制作するための完全説明:優秀ツール紹介&基本編集手法</u></a></li>
-<li><a href="https://solve-info.techidaily.com/edit-your-mkv-videos-on-windows-using-top-rated-editors/"><u>Edit Your MKV Videos on Windows Using Top-Rated Editors</u></a></li>
-<li><a href="https://solve-info.techidaily.com/effortlessly-exchange-files-unveiling-the-art-of-free-xvid-to-divx-conversions/"><u>Effortlessly Exchange Files: Unveiling the Art of FREE Xvid to DivX Conversions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/expert-advice-navigating-through-title-the-ultimate-series-full-set-for-optimal-dvd-titling-choices/"><u>Expert Advice: Navigating Through TITLE - The Ultimate Series (Full Set) for Optimal DVD Titling Choices</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/streamline-your-workflow-with-fast-and-simple-wacom-driver-downloads/"><u>Streamline Your Workflow with Fast and Simple Wacom Driver Downloads</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-best-cartoon-animation-software-for-android-and-ios/"><u>Updated In 2024, Best Cartoon Animation Software for Android and iOS</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/which-conversational-engine-reigns-supreme-chatgpt-versus-claude-ai-showdown/"><u>Which Conversational Engine Reigns Supreme? ChatGPT Versus Claude AI Showdown</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-ultimate-free-online-editors-for-content-creators-for-2024/"><u>[New] 9 Ultimate Free Online Editors for Content Creators for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-tecno-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your Tecno Device</u></a></li>
+<li><a href="https://solve-info.techidaily.com/sending-big-videos-via-messenger-made-simple-4-quick-methods/"><u>Sending Big Videos via Messenger Made Simple - 4 Quick Methods</u></a></li>
+<li><a href="https://solve-info.techidaily.com/simple-methods-for-streaming-avi-files-on-your-iphone/"><u>Simple Methods for Streaming AVI Files on Your iPhone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/step-by-step-guide-recording-crystal-clear-hd-footage-on-your-ps5/"><u>Step-by-Step Guide: Recording Crystal Clear HD Footage on Your PS5</u></a></li>
+<li><a href="https://solve-info.techidaily.com/step-by-step-tutorial-on-converting-your-apple-lossless-tracks-alac-to-the-superior-flac-codec/"><u>Step-by-Step Tutorial on Converting Your Apple Lossless Tracks (ALAC) to the Superior FLAC Codec</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-ultimate-connectivity-handbook-for-insta-and-tik-for-2024/"><u>The Ultimate Connectivity Handbook for Insta & Tik for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-realme-12plus-5g-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Realme 12+ 5G Location | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlock-tecno-spark-10-5g-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>Unlock Tecno Spark 10 5G Phone Password Without Factory Reset Full Guide Here</u></a></li>
 </ul></div>
 

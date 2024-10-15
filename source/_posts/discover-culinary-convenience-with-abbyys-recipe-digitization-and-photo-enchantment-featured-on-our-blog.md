@@ -1,7 +1,7 @@
 ---
 title: Discover Culinary Convenience with ABBYY's Recipe Digitization and Photo Enchantment - Featured on Our Blog
-date: 2024-10-05T18:33:36.923Z
-updated: 2024-10-08T17:03:33.533Z
+date: 2024-10-13T19:44:20.673Z
+updated: 2024-10-14T16:20:45.059Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1296bc6cf3d8ba602cee83fbaf9d9aae0f41d750526e3d62954932be609de318.jpg
@@ -41,13 +41,6 @@ This feature can also be useful when you are looking to reinstall an app but can
 
 **What was your first ever app? Do you still use it today? Share your answer in the comments below** 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Android Tip: Which App Came First?**
 
 To take a glimpse into the past, you need to first open Google Play. Then, tap the three bars in the top left corner **→ My apps & games → Library**.
@@ -55,10 +48,10 @@ To take a glimpse into the past, you need to first open Google Play. Then, tap t
 ![google play download history](https://static1.abbyy.com/abbyycommedia/26738/gplay1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 You will see a list of all the apps that have been installed on any phone using your Google account. If an app has since been deleted, you can reinstall it, provided it is still available on Google Play. You can choose to view the list either in chronological or in alphabetical order.
@@ -66,15 +59,28 @@ You will see a list of all the apps that have been installed on any phone using 
 ![library in google play](https://static1.abbyy.com/abbyycommedia/26739/gplay2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 This download history will be useful for those who are looking to find an app that they have deleted and now cannot remember the name of.
 
 **What was your first ever app? Do you still use it today? Share your answer in the comments below** 
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
+  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **ABBYY Tip: FineScanner as a Culinary Assistant**
 
@@ -95,10 +101,10 @@ Cinemagraphs can be created using [Enlight Pixaloop](https://www.pixaloopapp.com
 ![making moving photos](https://static1.abbyy.com/abbyycommedia/26626/app2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [You can download the app for iOS here](https://itunes.apple.com/ru/app/enlight-photoloop/id1381206010?l=en&mt=8) and surprise your friends with cool-looking cinemagraphs.
@@ -173,22 +179,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-2024-approved-the-ultimate-review-bandicam-versus-other-screen-recorders/"><u>[New] 2024 Approved The Ultimate Review Bandicam Versus Other Screen Recorders</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-navigating-thumbnail-sizes-for-youtube-content-excellence/"><u>[Updated] Navigating Thumbnail Sizes for YouTube Content Excellence</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1726028846182-8/"><u>【無料】動画にメロディを付けるためのトップ8ソフトウェア選び方：専門家から学ぶ！</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-find-your-ideal-wedding-timer-on-android-and-ios-platforms-here/"><u>2024 Approved Find Your Ideal Wedding Timer on Android & iOS Platforms Here</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-seamless-fileshift-android-media-to-iphone/"><u>2024 Approved Seamless Fileshift Android Media to iPhone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/3-effective-methods-for-downloading-blob-videos-a-step-by-step-guide/"><u>3 Effective Methods for Downloading Blob Videos: A Step-by-Step Guide</u></a></li>
-<li><a href="https://solve-info.techidaily.com/4-effective-methods-to-eliminate-audio-from-your-iphone-recorded-videos/"><u>4 Effective Methods to Eliminate Audio From Your iPhone Recorded Videos</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1726030243059-dvdmp4/"><u>無料DVDパス解除とMP4変換ガイド - ディスクからダウンロード</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1726026473894-bilibili/"><u>Bilibiliビデオでロゴを取り除くためのステップバイステップマニュアル</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1726027651761-hp/"><u>HPラップトップマシンで効率的な動画編集テクニック</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-pattern-locks-are-unsafe-secure-your-motorola-edge-2023-phone-now-with-these-tips-by-drfone-android/"><u>In 2024, Pattern Locks Are Unsafe Secure Your Motorola Edge 2023 Phone Now with These Tips</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/online-gratis-cr2-moveit/"><u>Online Gratis CR2 펑차 매니폴드 - MoveIt!</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/top-10-iphone-virtual-reality-games-to-beat-your-high-scores/"><u>Top 10 iPhone Virtual Reality Games to Beat Your High Scores</u></a></li>
-<li><a href="https://facebook.techidaily.com/whatsapp-multi-device-support-is-coming-zuckerberg-confirms/"><u>WhatsApp Multi-Device Support Is Coming, Zuckerberg Confirms</u></a></li>
-<li><a href="https://fox-that.techidaily.com/1721475231945-why-isnt-my-iphone-alarm-working-fix-it-now/"><u>Why Isn't My iPhone Alarm Working? Fix It Now!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1726027258055-windows-and-mac/"><u>Windows & Macで動画の鏡像作成手順３つ</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1726026566647-3/"><u>ダウンロード無しで音声抽出: ムービーからのトラック3方法紹介</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-instagram-video-wisdom-strategies-that-score-big/"><u>[New] 2024 Approved Instagram Video Wisdom Strategies That Score Big</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-revolutionize-your-visual-experience-top-10-4k-mac-displays-for-2024/"><u>[New] Revolutionize Your Visual Experience - Top 10 4K Mac Displays for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-elevate-your-communication-master-skype-calls-recording/"><u>[Updated] Elevate Your Communication Master Skype Calls Recording</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-adjusting-spotify-settings-stop-automated-podcast-suggestions/"><u>2024 Approved Adjusting Spotify Settings Stop Automated Podcast Suggestions</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/conquering-chaos-muting-tactics-for-seamless-gmeet-participation/"><u>Conquering Chaos Muting Tactics for Seamless GMeet Participation</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-data-from-lost-or-stolen-iphone-11-pro-max-in-easy-steps-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How To Recover Data From Lost or Stolen iPhone 11 Pro Max In Easy Steps | Stellar</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-xiaomi-redmi-k70-pro-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Xiaomi Redmi K70 Pro Fingerprint Lock</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-pro-3-the-new-standard-for-action-video-recording-by-ion/"><u>In 2024, Pro 3 - The New Standard for Action Video Recording by ION</u></a></li>
+<li><a href="https://solve-info.techidaily.com/seamless-conversion-techniques-transforming-flv-files-into-mov-format/"><u>Seamless Conversion Techniques: Transforming FLV Files Into MOV Format</u></a></li>
+<li><a href="https://solve-info.techidaily.com/sending-big-videos-via-messenger-made-simple-4-quick-methods/"><u>Sending Big Videos via Messenger Made Simple - 4 Quick Methods</u></a></li>
+<li><a href="https://solve-info.techidaily.com/simple-methods-for-streaming-avi-files-on-your-iphone/"><u>Simple Methods for Streaming AVI Files on Your iPhone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/step-by-step-guide-recording-crystal-clear-hd-footage-on-your-ps5/"><u>Step-by-Step Guide: Recording Crystal Clear HD Footage on Your PS5</u></a></li>
+<li><a href="https://solve-info.techidaily.com/step-by-step-tutorial-on-converting-your-apple-lossless-tracks-alac-to-the-superior-flac-codec/"><u>Step-by-Step Tutorial on Converting Your Apple Lossless Tracks (ALAC) to the Superior FLAC Codec</u></a></li>
+<li><a href="https://solve-info.techidaily.com/the-advantages-of-being-flexible-with-your-dates-for-better-rates/"><u>The Advantages of Being Flexible with Your Dates for Better Rates.</u></a></li>
+<li><a href="https://solve-info.techidaily.com/the-ultimate-guide-to-effortlessly-convert-your-dvds-to-android-top-tools-reviewed/"><u>The Ultimate Guide to Effortlessly Convert Your DVDs to Android: Top Tools Reviewed!</u></a></li>
+<li><a href="https://solve-info.techidaily.com/the-ultimate-tutorial-for-streaming-ustvnow-via-kodi-using-the-setup-wizard/"><u>The Ultimate Tutorial for Streaming USTVNow via Kodi Using The Setup Wizard</u></a></li>
+<li><a href="https://solve-info.techidaily.com/top-rated-video-format-transformer-convert-dvds-to-avi-files-on-windows-11-2024-edition/"><u>Top Rated Video Format Transformer: Convert DVDs to Avi Files on Windows 11 - 2024 Edition</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-the-face-swap-revolution-top-apps-for-iphone-and-android/"><u>Updated 2024 Approved The Face Swap Revolution Top Apps for iPhone and Android</u></a></li>
+<li><a href="https://windows11.techidaily.com/win11s-file-explorer-glitches-learn-how-to-stop-them/"><u>Win11's File Explorer Glitches? Learn How To Stop Them</u></a></li>
 </ul></div>
 

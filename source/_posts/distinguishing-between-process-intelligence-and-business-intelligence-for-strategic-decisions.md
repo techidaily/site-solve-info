@@ -1,7 +1,7 @@
 ---
 title: Distinguishing Between Process Intelligence and Business Intelligence for Strategic Decisions
-date: 2024-10-06T16:16:45.542Z
-updated: 2024-10-08T18:52:59.911Z
+date: 2024-10-07T21:31:15.044Z
+updated: 2024-10-14T19:28:59.345Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/48994c9ff35faf512b4c69833faf0e7ff28b80b0df78e2f2b0d58f413fb2991f.jpg
@@ -30,13 +30,6 @@ Gehe direkt zu
 [Unterschiede zwischen PI und BI](https://tools.techidaily.com/abbyy/products/)  
 [Wesentliche Gemeinsamkeiten](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Was ist Process Intelligence (PI)?
 
 **Process Intelligence ist eine Sammlung neuer datenwissenschaftlicher Ansätze, die sich auf die Analyse und Optimierung von Geschäftsprozessen über alle beteiligten Systeme und Anwendungen hinweg konzentrieren.**
@@ -54,6 +47,13 @@ Wenn wir den Order-to-Cash-Prozess aus der Sicht von PI betrachten, verlagert si
 
 So kann Process Intelligence beispielsweise aufzeigen, dass ein bestimmter Prozessschritt, wie die Auftragsprüfung, zu lange dauert und dadurch Verzögerungen verursacht, die sich auf den gesamten Prozess auswirken. Oder PI deckt Fälle auf, in denen wichtige Schritte wie Kreditprüfungen übersprungen werden, was zu einem erhöhten finanziellen Risiko für das Unternehmen führt. Process Intelligence bietet eine ganzheitliche Perspektive und kann entscheidende Einblicke in die Prozessdynamik sowie Optimierungsmöglichkeiten offenbaren.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Was ist Business Intelligence (BI)?
 
 **Business Intelligence hingegen ist ein technologiegestützter Prozess, der die Analyse und Präsentation von Geschäftsinformationen umfasst.** Das Hauptziel von BI ist es, Unternehmen dabei zu helfen, fundierte Entscheidungen zu treffen, indem sie Einblicke in ihre Geschäftsabläufe, das Kundenverhalten, Markttrends und die Wettbewerbslandschaft erhalten.
@@ -69,7 +69,21 @@ Was BI Ihnen nicht sagen kann, zumindest nicht ohne einen großen Aufwand an ben
 
 Können Sie beispielsweise feststellen, ob die Fälle, in denen bestimmte Verkäufer die höchste Anzahl von Aufträgen erhielten, mit effizienten Kundeninteraktionen zusammenfielen, bei denen Anfragen umgehend bearbeitet wurden? Und können Sie umgekehrt feststellen, ob niedrige Auftragsraten mit langsamen Reaktionszeiten oder möglicherweise übersehenen Kundenanfragen korrelierten, bei denen der Versuch komplett ignoriert wurde? Hier versagt BI, da sie nicht in der Lage ist, diese Verbindungen herzustellen und aufzudecken.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Hauptunterschiede zwischen Process Intelligence und Business Intelligence
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Schwerpunkt
 
@@ -79,13 +93,6 @@ Können Sie beispielsweise feststellen, ob die Fälle, in denen bestimmte Verkä
 
 **Process Intelligence** verwendet Ereignisprotokolle, Audit-Tabellen, Benutzerinteraktionen und Desktop-Aktivitäten als primäre Datenquellen. Business Intelligence nutzt Daten aus verschiedenen Quellen, die sich auf einen bestimmten Schritt/Teil eines Geschäftsprozesses beziehen, um Muster, Trends und Anomalien zu analysieren und zu visualisieren.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Ergebnisse
 
 **Process Intelligence** bietet Einblicke, die Unternehmen dabei helfen, ihre Geschäftsprozesse zu optimieren, indem sie ein besseres Verständnis für den globalen Kontext bestimmter Schritte und Abweichungen zwischen Prozessinstanzen bietet. **Business Intelligence** liefert Erkenntnisse, die Unternehmen helfen, fundierte, datengestützte Entscheidungen zu treffen.
@@ -93,13 +100,6 @@ Können Sie beispielsweise feststellen, ob die Fälle, in denen bestimmte Verkä
 ### Tools
 
 Zu den Tools von **Process Intelligence** gehören Process Mining, Task Mining, Analytik, Überwachung, Vorhersage und Simulation. Tools für **Business Intelligence** sind in der Regel Dashboards, Berichte, Datenanalysen und andere Visualisierungsfunktionen.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Wesentliche Gemeinsamkeiten zwischen Process Intelligence und Business Intelligence
 
@@ -130,10 +130,16 @@ In seiner 30-jährigen Laufbahn in der Computerbranche hat Scott Opitz verschied
 Zuvor fungierte er unter anderem als Senior Vice President, Worldwide Marketing & Business Development für webMethods (heute Software AG), wobei er für Marketing, Geschäftsentwicklung und strategische Produktplanung verantwortlich zeichnete. Zu webMethods war er im Zuge von dessen Übernahme von IntelliFrame Corporation gekommen, einem Unternehmen, das sowohl Produkte zur Datenintegration als auch die integrierte Workflow- und BPM-Plattform InVista bereitstellte, die Opitz mitgegründet hatte. Scott Opitz hat außerdem zahlreiche Führungspositionen in den Bereichen Technologie, Marketing und Geschäftsentwicklung für staatliche und privatwirtschaftliche Unternehmen bekleidet.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Gefällt mir, teilen oder neu posten 
@@ -199,20 +205,16 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-streamlining-google-meets-with-efficient-snap-photography-tips/"><u>[New] In 2024, Streamlining Google Meets with Efficient Snap Photography Tips</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-next-gen-stabilizing-tools-for-youtube-videographers-for-2024/"><u>[New] Next-Gen Stabilizing Tools for YouTube Videographers for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-how-to-use-gopro-for-time-lapse-shooting/"><u>[Updated] In 2024, How to Use GoPro for Time-Lapse Shooting</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-mmo-galaxy-the-finest-10-free-online-roleplayers-for-2024/"><u>[Updated] MMO Galaxy The Finest 10 Free Online Roleplayers for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/7n/"><u>「様々な形式でも、動画解像度を簡単に切り替えるための7つの自由提�n体ツール」</u></a></li>
-<li><a href="https://solve-info.techidaily.com/44cm44k144og44oq44gu55s76z2i6yyy55s75oml6acg44ks6kmz44gx44gp6kej6kqs77yb44cn/"><u>「サムバの画面録画手順を詳しく解説！」</u></a></li>
-<li><a href="https://solve-info.techidaily.com/4k-5/"><u>無料の4Kビデオファイナライザー: トップ5 フルハイビジョンへの変換ツール</u></a></li>
-<li><a href="https://solve-info.techidaily.com/54sh5paz44ox44ot44kw44op44og44gr44ki44kl6zplusz5aow44oh44o844k57wx5zci44gu5pa55rov/"><u>無料プログラムによる音声データ統合の方法</u></a></li>
-<li><a href="https://solve-info.techidaily.com/ac3dtsdvd/"><u>AC3/DTSへのシンプルなDVD変換手順：ステップバイステップガイド</u></a></li>
-<li><a href="https://solve-info.techidaily.com/best-free-instagram-reel-sounds-top-4-downloading-tools/"><u>Best Free Instagram Reel Sounds: Top 4 Downloading Tools</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/resolving-storportsys-blue-screen-errors-on-windows-11-a-step-by-step-guide/"><u>Resolving Storport.sys Blue Screen Errors on Windows 11: A Step-by-Step Guide</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/step-by-step-fix-for-iphones-caught-in-attempting-data-recovery-loop/"><u>Step-by-Step Fix for iPhones Caught in Attempting Data Recovery Loop</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/streamline-your-editing-with-movavis-easy-to-use-video-tool/"><u>Streamline Your Editing with Movavi's Easy-to-Use Video Tool</u></a></li>
-<li><a href="https://change-location.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-samsung-galaxy-s24-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Samsung Galaxy S24 | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/44or44k944kz44oz5zcr44gr44gr44gk44gz44gz44kbieoajoacgoawsoobruwlleeuupluswcppluse4ruocveodleodioocpuocpplusocouobqoodhuocrplusodiplusodgplusocrplusoajq/"><u>パソコン向けにおすすめ!「最新の動画圧縮ソフトウェアとテクニック」</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/hield-against-random-youtube-video-plays-for-2024/"><u>[New] Shield Against Random YouTube Video Plays for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-tailoring-and-downloading-instagram-alerts-independently/"><u>[New] Tailoring & Downloading Instagram Alerts Independently</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-advanced-tips-for-removing-backgrounds-in-affinity-photo/"><u>[Updated] Advanced Tips for Removing Backgrounds in Affinity Photo</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-simple-screen-recorder-for-windows-11-download-for-2024/"><u>[Updated] Simple Screen Recorder for Windows 11 Download for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/wmaflac/"><u>簡単ガイド: WMA音楽データをFLAC形式にするためのプログラムとオンラインツール</u></a></li>
+<li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-poco-c55-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>Change Location on Yik Yak For your Poco C55 to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/leading-websites-to-access-and-save-films-legally-online/"><u>Leading Websites to Access & Save Films Legally Online</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/step-by-step-guide-to-mastering-llama-2s-usage/"><u>Step by Step Guide to Mastering Llama 2'S Usage</u></a></li>
+<li><a href="https://solve-info.techidaily.com/ultimate-avchd-transformation-techniques-mastering-the-art-of-formatting-and-uninterrupted-viewing/"><u>Ultimate AVCHD Transformation Techniques - Mastering the Art of Formatting and Uninterrupted Viewing</u></a></li>
+<li><a href="https://solve-info.techidaily.com/ultimate-guide-to-the-top-11-video-format-changers-for-pc-including-browser-based-solutions/"><u>Ultimate Guide to the Top 11 Video Format Changers for PC, Including Browser-Based Solutions!</u></a></li>
+<li><a href="https://solve-info.techidaily.com/ultimate-resource-top-platforms-for-streaming-live-and-recorded-musical-performances/"><u>Ultimate Resource: Top Platforms for Streaming Live and Recorded Musical Performances</u></a></li>
 </ul></div>
 

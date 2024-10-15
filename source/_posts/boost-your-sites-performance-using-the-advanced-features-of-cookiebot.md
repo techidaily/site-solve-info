@@ -1,7 +1,7 @@
 ---
 title: Boost Your Site's Performance Using the Advanced Features of Cookiebot
-date: 2024-10-05T16:41:17.596Z
-updated: 2024-10-08T16:57:55.682Z
+date: 2024-10-11T23:11:12.520Z
+updated: 2024-10-14T21:01:25.879Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5d7817aad095517ef8a3802d67c136a4ed2562ac9acdb56f193b79911b70ed6c.png
@@ -25,6 +25,13 @@ Mit neuen Komponenten wie Natural Language Processing kann ABBYY meiner Meinung 
 
 Stefan Wenzel, VP Center of Digitization bei Deutsche Post DHL Group
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Herausforderung
 
 Bei einem Automatisierungsgrad von etwa 90 % hatte Deutsche Post DHL immer noch mit 10 % der eingehenden Zahlungen zu kämpfen, die eine aufwendige Bearbeitung erforderten. Die Herausforderung bestand in der Qualität der Daten und den unterschiedlichen Zahlungs-Avisdateien, die über Möglichkeiten von SAP-Modifikationen hinausgingen. Die erfolgreiche Bewältigung dieser letzten 10 % war Teil der Mission von DHL, die digitale Transformation zu beschleunigen.
@@ -43,6 +50,13 @@ Die Automatisierung der Verarbeitung von Zahlungsavisen mit ABBYY IDP hat die Ef
 
 Die Deutsche Post war in der Lage, einen Teil des Prozesses zu automatisieren, der noch viel manuelle Arbeit erforderte, um so Mitarbeiter für höherwertige Aufgaben freizusetzen.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Ergebnis
 
 * Geringere Transaktionskosten durch standardisierte globale Prozesse
@@ -55,19 +69,6 @@ Die Deutsche Post war in der Lage, einen Teil des Prozesses zu automatisieren, d
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/products/flexicapture/fc_1.jpg?h=392&iar=0&w=696)
 
-<!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### ABBYY Solutions for Accounts Payable Automation
 
 [Mehr erfahren](https://tools.techidaily.com/abbyy/products/)
@@ -75,16 +76,10 @@ Die Deutsche Post war in der Lage, einen Teil des Prozesses zu automatisieren, d
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/ap-automation/overview-image.jpg?h=800&iar=0&w=1392)
 
 <!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### PDF Version
@@ -94,17 +89,10 @@ Die Deutsche Post war in der Lage, einen Teil des Prozesses zu automatisieren, d
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/newsroom/news-images/laptop-mug.jpg?h=836&iar=0&w=1486)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Erfahren Sie mehr über ABBYY
@@ -126,24 +114,20 @@ Die Deutsche Post war in der Lage, einen Teil des Prozesses zu automatisieren, d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-adding-timers-utilizing-obs-for-countdown-features/"><u>[New] Adding Timers Utilizing OBS for Countdown Features</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-leading-edge-quick-frame-gatherer-5/"><u>[New] Leading Edge Quick Frame Gatherer #5</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-decrypting-youtubes-view-count-calculation-system/"><u>[Updated] In 2024, Decrypting YouTube’s View-Count Calculation System</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-master-the-art-of-video-crafting-integrating-storyremix-with-windows-11-photos-for-2024/"><u>[Updated] Master the Art of Video Crafting Integrating StoryRemix with Windows 11 Photos for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-top-6-straightforward-abodes-blueprints-in-mc-world/"><u>[Updated] Top 6 Straightforward Abodes Blueprints in MC World</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/embedding-system-status-updates-in-explorer-tooltips/"><u>Embedding System Status Updates in Explorer Tooltips</u></a></li>
-<li><a href="https://solve-info.techidaily.com/experienced-dev-leader-mihajlo-mulic-takes-the-helm-as-senior-software-pro-at-abbyy/"><u>Experienced Dev Leader: Mihajlo Mulic Takes the Helm as Senior Software Pro at ABBYY</u></a></li>
-<li><a href="https://solve-info.techidaily.com/harnessing-the-power-of-cookiebot-for-superior-site-personalization-and-growth/"><u>Harnessing the Power of Cookiebot for Superior Site Personalization and Growth</u></a></li>
-<li><a href="https://solve-info.techidaily.com/how-process-intelligence-leads-to-success-understanding-the-top-five-advantages/"><u>How Process Intelligence Leads to Success: Understanding the Top Five Advantages</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-fix-locked-apple-id-on-iphone-6s-by-drfone-ios/"><u>How to Fix Locked Apple ID on iPhone 6s</u></a></li>
-<li><a href="https://solve-info.techidaily.com/integrating-compliance-protocols-with-exceptional-cx-strategies-in-banking-and-finance/"><u>Integrating Compliance Protocols with Exceptional CX Strategies in Banking & Finance</u></a></li>
-<li><a href="https://solve-info.techidaily.com/intelligent-docx-and-pdf-automation-with-quadrants-spark-2022-matrix-solution/"><u>Intelligent DOCX & PDF Automation with Quadrant's SPARK 2022 Matrix Solution</u></a></li>
-<li><a href="https://solve-info.techidaily.com/leveraging-ai-and-analytics-for-boosting-staff-participation-and-commitment/"><u>Leveraging AI and Analytics for Boosting Staff Participation and Commitment</u></a></li>
-<li><a href="https://solve-info.techidaily.com/navigating-financial-turbulence-essential-digital-tactics-for-banking-success-with-insights-from-abbyy-leaders/"><u>Navigating Financial Turbulence: Essential Digital Tactics for Banking Success with Insights From ABBYY Leaders</u></a></li>
-<li><a href="https://solve-info.techidaily.com/optimized-with-the-cutting-edge-of-traffic-management-the-cookiebot-solution/"><u>Optimized with the Cutting-Edge of Traffic Management: The Cookiebot Solution</u></a></li>
-<li><a href="https://program-issues.techidaily.com/overcome-launch-errors-in-farming-simulator-22-with-these-fixes/"><u>Overcome Launch Errors in Farming Simulator 22 with These Fixes</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/1722974347968-seamless-printing-with-hp-officejet-3830-download-and-install-windows-drivers-today/"><u>Seamless Printing with HP OfficeJet 3830 - Download & Install Windows Drivers Today!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/the-smart-enterprise-chronicles-with-maxime-vermeir-delving-into-artificial-intelligence/"><u>The Smart Enterprise Chronicles with Maxime Vermeir – Delving Into Artificial Intelligence</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/updated-compress-webm-videos-with-ease-top-online-tools/"><u>Updated Compress WebM Videos with Ease Top Online Tools</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-navigating-self-viewer-phenomenon-in-facebook-live-conversations-for-2024/"><u>[New] Navigating Self-Viewer Phenomenon in Facebook Live Conversations for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/2-ways-to-monitor-vivo-y200-activity-drfone-by-drfone-virtual-android/"><u>2 Ways to Monitor Vivo Y200 Activity | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-lut-basics-for-enhanced-visual-effects-in-ae/"><u>2024 Approved LUT Basics for Enhanced Visual Effects in AE</u></a></li>
+<li><a href="https://solve-info.techidaily.com/boost-user-experience-and-data-insights-with-our-cookiebot-integration-technology/"><u>Boost User Experience & Data Insights with Our Cookiebot Integration Technology</u></a></li>
+<li><a href="https://solve-info.techidaily.com/experience-seamless-conversion-with-our-cookiebot-technology-integration/"><u>Experience Seamless Conversion with Our Cookiebot Technology Integration</u></a></li>
+<li><a href="https://solve-info.techidaily.com/exploring-the-real-effects-of-covid-on-workers-one-in-four-considering-resignation-due-to-inefficient-corporate-procedures/"><u>Exploring the Real Effects of Covid on Workers: One in Four Considering Resignation Due to Inefficient Corporate Procedures</u></a></li>
+<li><a href="https://solve-info.techidaily.com/gartners-magic-quadrant-recognizes-abbyy-as-a-standout-named-leader-in-ocr-technology/"><u>Gartner's Magic Quadrant Recognizes ABBYY as a Standout Named Leader in OCR Technology</u></a></li>
+<li><a href="https://solve-info.techidaily.com/harnessing-idp-solutions-a-game-changer-in-modern-insurance-management/"><u>Harnessing IDP Solutions: A Game Changer in Modern Insurance Management</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-facebooks-countdown-the-best-10-music-videos-of-now/"><u>In 2024, Facebook's Countdown The Best 10 Music Videos of Now</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-from-honor-play-40c-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Honor Play 40C FRP Bypass</u></a></li>
+<li><a href="https://win-dash.techidaily.com/install-official-ricoh-printer-drivers-on-windows-step-by-step-guide/"><u>Install Official Ricoh Printer Drivers on Windows - Step-by-Step Guide</u></a></li>
+<li><a href="https://win-dash.techidaily.com/instant-access-download-the-zebra-gk420d-driver-hassle-free-and-swift/"><u>Instant Access! Download the Zebra GK420D Driver - Hassle-Free and Swift!</u></a></li>
+<li><a href="https://solve-info.techidaily.com/multilingual-archive-protection-by-abbyy-finereader-securing-4000000plus-historical-documents-for-future-generations-at-the-national-library-of-latvia/"><u>Multilingual Archive Protection by ABBYY FineReader: Securing 4,000,000+ Historical Documents for Future Generations at the National Library of Latvia</u></a></li>
+<li><a href="https://solve-info.techidaily.com/optimized-with-automated-tracker-discover-the-power-of-cookiebot/"><u>Optimized with Automated Tracker: Discover the Power of Cookiebot</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/secure-steps-for-skyrocketing-video-engagement-a-million-wins-strategy/"><u>Secure Steps for Skyrocketing Video Engagement A Million Wins Strategy</u></a></li>
 </ul></div>
 

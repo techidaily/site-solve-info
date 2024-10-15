@@ -1,7 +1,7 @@
 ---
 title: Marlin Equity PartnersがABBYYに対する投資を開始 - 最新ニュース解析
-date: 2024-09-30T03:25:40.072Z
-updated: 2024-10-02T19:43:36.086Z
+date: 2024-10-07T18:22:41.539Z
+updated: 2024-10-14T19:31:16.213Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4c147f639cee2585f7f88020d64ed44f6ab3d2fb87afeca6ceadabb8d346628a.jpg
@@ -42,10 +42,10 @@ thumbnail: https://thmb.techidaily.com/4c147f639cee2585f7f88020d64ed44f6ab3d2fb8
 [エンタープライズ](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
+  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### いいね！、シェア、再投稿
@@ -111,22 +111,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-digital-design-trends-to-avoid-in-your-youtube-banners/"><u>[New] In 2024, Digital Design Trends to Avoid in Your YouTube Banners</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-simplified-strategies-to-acquire-and-download-vimeo-videos/"><u>[New] In 2024, Simplified Strategies to Acquire & Download Vimeo Videos</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-mastering-iphone-hdr-photography-for-professional-results/"><u>[New] Mastering iPhone HDR Photography for Professional Results</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-efficient-reliable-and-free-your-ultimate-guide-to-videodownloading-pins/"><u>2024 Approved Efficient, Reliable & Free! Your Ultimate Guide to Videodownloading Pins</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-flawlessimage-advanced-bg-eraser-app/"><u>2024 Approved FlawlessImage Advanced BG Eraser App</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-solutions-enhance-your-sites-seo-and-user-experience/"><u>Cookiebot-Driven Solutions: Enhance Your Site's SEO and User Experience</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-solutions-enhancing-your-online-presence/"><u>Cookiebot-Driven Solutions: Enhancing Your Online Presence</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-success-enhancing-your-sites-visibility-and-conversions/"><u>Cookiebot-Driven Success: Enhancing Your Site's Visibility and Conversions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-driven-enhanced-personalization-and-user-experience/"><u>Cookiebot-Driven: Enhanced Personalization and User Experience</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enabled-analytics-solutions-for-streamlined-user-experience-tracking/"><u>Cookiebot-Enabled Analytics Solutions for Streamlined User Experience Tracking</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enabled-personalization-enhancing-user-experience/"><u>Cookiebot-Enabled Personalization: Enhancing User Experience</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-fueled-automated-marketing-solutions/"><u>Cookiebot-Fueled Automated Marketing Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhancing-user-experience-and-tracking-success-on-your-website/"><u>Cookiebot: Enhancing User Experience & Tracking Success on Your Website</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-itel-p40-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Itel P40 online without jailbreak</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-transformative-idea-capture-via-mematic-software/"><u>In 2024, Transformative Idea Capture via Mematic Software</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-filmora-torrent-download-100-safe-and-free-method/"><u>New 2024 Approved Filmora Torrent Download 100 Safe and Free Method</u></a></li>
-<li><a href="https://discover-community.techidaily.com/online-mp3-omzettingen-voor-meer-dan-80-muziekformaten-gratis-dienst-van-movavi/"><u>Online MP3 Omzettingen Voor Meer Dan 80 Muziekformaten - Gratis Dienst Van Movavi</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/anking-8-proven-online-promotion-techniques-for-videos/"><u>[New] Ranking 8 Proven Online Promotion Techniques for Videos</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/a-comprehensive-guide-to-apple-iphone-11-pro-max-blacklist-removal-tips-and-tools-by-drfone-ios/"><u>A Comprehensive Guide to Apple iPhone 11 Pro Max Blacklist Removal Tips and Tools</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/boosting-zoom-image-resolution-expert-advice-for-2024/"><u>Boosting Zoom Image Resolution Expert Advice for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-my-spouse-from-spying-on-my-lava-blaze-2-drfone-by-drfone-virtual-android/"><u>How to Stop My Spouse from Spying on My Lava Blaze 2 | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-xiaomi-14-pro-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Xiaomi 14 Pro to Roku | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-getting-started-guide-to-instagrams-live-feature/"><u>In 2024, Getting Started Guide to Instagram's Live Feature</u></a></li>
+<li><a href="https://android-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-samsung-galaxy-a14-5g-phone-frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Samsung Galaxy A14 5G Phone FRP Lock</u></a></li>
+<li><a href="https://solve-info.techidaily.com/itunes-enthusiasts-tutorial-how-to-convert-and-import-dvd-content-seamlessly/"><u>ITunes Enthusiast's Tutorial: How to Convert & Import DVD Content Seamlessly</u></a></li>
+<li><a href="https://solve-info.techidaily.com/mp33gp/"><u>MP3形式への3GPファイル変換手順集</u></a></li>
+<li><a href="https://solve-info.techidaily.com/mp35/"><u>MP3音量変更手順：5秘技を解明する</u></a></li>
+<li><a href="https://solve-info.techidaily.com/podcast-conversion-mastery-discover-the-three-most-efficient-techniques-for-mp3-creation/"><u>Podcast Conversion Mastery: Discover the Three Most Efficient Techniques for MP3 Creation</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/quick-download-and-setup-of-bcm20702-drivers-for-windows-systems/"><u>Quick Download and Setup of BCM207#02 Drivers for Windows Systems</u></a></li>
+<li><a href="https://solve-info.techidaily.com/repeat-your-success-top-3-methods-for-looping-videos-on-youtube/"><u>Repeat Your Success: Top 3 Methods for Looping Videos on YouTube</u></a></li>
+<li><a href="https://solve-info.techidaily.com/simple-steps-adding-black-stripes-or-bars-to-your-videos-on-windows/"><u>Simple Steps: Adding Black Stripes or Bars to Your Videos on Windows</u></a></li>
+<li><a href="https://solve-info.techidaily.com/simple-steps-free-techniques-to-convert-and-rotate-your-avi-files/"><u>Simple Steps: Free Techniques to Convert and Rotate Your AVI Files!</u></a></li>
+<li><a href="https://solve-info.techidaily.com/step-by-step-guide-converting-video-from-mpg-to-mp4-for-windows-11-users/"><u>Step-by-Step Guide: Converting Video From MPG to MP4 for Windows 11 Users</u></a></li>
+<li><a href="https://solve-info.techidaily.com/step-by-step-guide-transforming-movies-into-high-quality-flac-audio/"><u>Step-by-Step Guide: Transforming Movies Into High-Quality Flac Audio</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-ultimate-guide-deleting-several-contacts-simultaneously-in-snapchat/"><u>The Ultimate Guide: Deleting Several Contacts Simultaneously in Snapchat</u></a></li>
+<li><a href="https://discover-guides.techidaily.com/transformar-y-guardar-tu-video-mp4-como-dvd-con-solo-unos-faciles-pasos-en-windows-11/"><u>Transformar Y Guardar Tu Video MP4 Como DVD Con Solo Unos Fáciles Pasos en Windows 11</u></a></li>
 </ul></div>
 

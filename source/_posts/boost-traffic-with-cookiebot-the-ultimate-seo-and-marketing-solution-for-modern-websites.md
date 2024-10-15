@@ -1,7 +1,7 @@
 ---
 title: "Boost Traffic With Cookiebot: The Ultimate SEO and Marketing Solution for Modern Websites"
-date: 2024-10-07T16:33:51.140Z
-updated: 2024-10-08T17:47:41.497Z
+date: 2024-10-08T23:01:35.621Z
+updated: 2024-10-14T19:55:14.826Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7edef45fd75169561f9bad79743f47061c9d71920f2617de0a787d279dfb1ee7.jpg
@@ -32,6 +32,13 @@ I had the privilege of participating in three roundtable discussions that explor
 * Democratization of AI
 * Three Recommendations to Fully Benefit From the Business Value of AI Technologies
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Digital Trust and Identity Management: Adoptions trends and challenges associated with digital identity
 
 COVID-19 accelerated the trend toward AI-powered chatbots, virtual financial assistants, and touchless customer onboarding, using AI-based biometric identity verification. This trend is confirmed in research by Cap Gemini i, which shows that 78% of consumers surveyed are planning to increase use of AI technologies, including digital identity management, in their interactions with financial services organizations. Biometric identity verification is more secure and removes onboarding friction, as evidenced in a Payments.com survey ii, which revealed that nearly 75% of US consumers “rely on their memory to recall passwords,” and 90% use the same password across many sites.
@@ -43,10 +50,10 @@ These inherent benefits notwithstanding, the roundtable discussion raised a numb
 Today, digital identity management is typically a centralized process, which is prone to cyberattacks and to privacy breaches. There is momentum toward a more [decentralized digital identity management](https://venturebeat.com/2022/02/19/decentralized-identity-solutions-could-bring-true-ownership-and-security-to-gaming/) framework that gives consumers more control over their own digital identities without dependence on third-party service providers.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### AI Governance and Regulatory Frameworks: AI governance best practices designed to minimize AI bias and engender consumer trust
@@ -65,6 +72,13 @@ _Sean O'Brien_
 
 As Sean O’Brien ix, an academic at Yale Law School and the founder of Yale’s Privacy Lab, recently warned: “Low code can be like fast food: delivered quickly and in bright packaging, but bad for you, your community, and your ecosystem.” It is important that while no-code / low-code AI development delivers inherent efficiency improvements and time to value, its implementation must include comprehensive testing to ensure that it performs in accordance with initial design objectives, removes potential bias in the training data set, and is secure from adversarial AI attacks that can undermine AI algorithmic outcomes.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Three recommendations organizations may want to consider to fully benefit from the business value of AI technologies
 
 #### 1\. Take a data-driven approach 
@@ -72,13 +86,6 @@ As Sean O’Brien ix, an academic at Yale Law School and the founder of Yale’s
 A data-driven approach assists in determining where the applications of AI technologies may have the greatest impact before proceeding with implementation. Is it to improve customer engagement, or to realize operational efficiencies, or to mitigate compliance risks? Each of these business drivers require an understanding of how such processes execute. For example, customer onboarding processes are case-based with a high degree of variability of process execution. Here, [task mining](https://www.abbyy.com/media/32520/brochure-timeline-taskmining-en.pdf?itm%5Fsource=corpblog-en) enables organizations to capture interactions associated with onboarding processes and can surface the time customer-facing staff spend onboarding tasks. It shows how escalations and exceptions are handled and identifies variations in process execution roadblocks and their root causes. Based on such data-driven analysis, organizations can make informed business decisions as to the impact associated with implementation of AI-based customer onboarding solutions.
 
 ![AI in Business - Whiteboard session with a group of people, one standing and four others sitting at table](https://static1.abbyy.com/abbyycommedia/33533/brainstorm-whiteboard-1-new.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 2\. Combine task mining and process mining 
 
@@ -116,19 +123,6 @@ ix ["Low Code: Satisfying Meal or Junk Food?" by Pam Baker | Information Week, 2
 
 ![Andrew Pery ABBYY](https://static1.abbyy.com/abbyycommedia/25715/andrewpery-99x99.png)
 
-<!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Andrew Pery
 
 Digital transformation expert and AI Ethics Evangelist for ABBYY
@@ -138,10 +132,10 @@ Andrew Pery is an AI Ethics Evangelist at intelligent automation company [ABBYY]
 Connect with Andrew on [LinkedIn](https://www.linkedin.com/in/andrew-pery-ll-m-cipp-c-cipp-e-3a536726/).
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -207,22 +201,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-acquiring-free-music-youtube-video-edition/"><u>[New] 2024 Approved Acquiring Free Music YouTube Video Edition</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-to-loop-a-video-on-iphone/"><u>[New] 2024 Approved How to Loop A Video on iPhone?</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-cost-effective-pc-screenshot-wizards-listed-for-2024/"><u>[New] Cost-Effective PC Screenshot Wizards Listed for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-become-a-zoom-screenshare-pro-in-minutes/"><u>[Updated] 2024 Approved Become a Zoom Screenshare Pro in Minutes</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-scrutinized-screen-recording-tools-top-8-picks/"><u>2024 Approved Scrutinized Screen Recording Tools Top 8 Picks</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-ultrawide-vs-uhd-4k-monitor-showdown-top-picks/"><u>2024 Approved UltraWide VS UHD 4K Monitor Showdown Top Picks</u></a></li>
-<li><a href="https://solve-info.techidaily.com/ebook-by-abby/"><u>保険金要求手続き管理: 最適な効果的手法はどこで学べますか？ | eBook by ABBY</u></a></li>
-<li><a href="https://solve-info.techidaily.com/discover-culinary-convenience-with-abbyys-recipe-digitization-and-photo-enchantment-featured-on-our-blog/"><u>Discover Culinary Convenience with ABBYY's Recipe Digitization and Photo Enchantment - Featured on Our Blog</u></a></li>
-<li><a href="https://solve-info.techidaily.com/distinguishing-between-process-intelligence-and-business-intelligence-for-strategic-decisions/"><u>Distinguishing Between Process Intelligence and Business Intelligence for Strategic Decisions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/driving-engagement-through-smart-data-insights-enhanced-by-cookiebot-technology/"><u>Driving Engagement Through Smart Data Insights: Enhanced by Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-user-experience-with-the-precision-of-cookiebot-technology-integration/"><u>Elevate User Experience with the Precision of Cookiebot Technology Integration</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-your-web-tracking-optimize-seo-using-the-power-of-cookiebot-technology/"><u>Elevate Your Web Tracking: Optimize SEO Using the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/empower-your-site-with-cookiebot-technology-advanced-analytics-and-targeting-made-simple/"><u>Empower Your Site with Cookiebot Technology: Advanced Analytics and Targeting Made Simple</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhance-online-engagement-with-cookiebot-technology/"><u>Enhance Online Engagement with Cookiebot Technology</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/picture-perfect-zero-cost-photo-enhancement-app-for-2024/"><u>Picture Perfect Zero Cost Photo Enhancement App for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/step-by-step-guide-adding-tracks-to-premiere-pro-projects-for-2024/"><u>Step-by-Step Guide Adding Tracks to Premiere Pro Projects for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/upgrade-to-professional-sound-quality-grab-the-official-focusrite-scarlett-18i20-drivers-for-windows-pcs-now/"><u>Upgrade to Professional Sound Quality - Grab the Official Focusrite Scarlett 18I20 Drivers for Windows PCs Now!</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-unmatched-clarity-the-ultimate-mic-guide/"><u>[Updated] 2024 Approved Unmatched Clarity The Ultimate Mic Guide</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-enhance-creativity-on-tiktok-three-essential-steps-to-change-video-backdrops/"><u>2024 Approved Enhance Creativity on TikTok Three Essential Steps to Change Video Backdrops</u></a></li>
+<li><a href="https://solve-info.techidaily.com/abbyy-fur-den-schnellen-und-intelligenten-umgang-mit-belegdokumentation-expertise-in-der-dokumentenverarbeitungstechnologie/"><u>ABBYY Für Den Schnellen Und Intelligenten Umgang Mit Belegdokumentation - Expertise in Der Dokumentenverarbeitungstechnologie</u></a></li>
+<li><a href="https://some-tips.techidaily.com/descargar-y-convertir-archivos-ogm-a-formatos-de-video-en-linea-sin-coste-con-movavi/"><u>Descargar Y Convertir Archivos OGM a Formatos De Video en Línea Sin Coste Con Movavi</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-my-xiaomi-redmi-13c-location-is-wrong-drfone-by-drfone-virtual-android/"><u>How to Fix My Xiaomi Redmi 13C Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-tecno-spark-10c-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Tecno Spark 10C | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-stealth-mode-best-apps-for-instagram-viewing/"><u>In 2024, Stealth Mode Best Apps for Instagram Viewing</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723015936922-logitech-g533-microphone-troubleshooting-guide-get-it-working-again/"><u>Logitech G533 Microphone Troubleshooting Guide: Get It Working Again</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-top-budget-friendly-video-editors/"><u>New Top Budget-Friendly Video Editors</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-6-core-features-that-make-games-intriguing/"><u>The 6 Core Features That Make Games Intriguing</u></a></li>
+<li><a href="https://solve-info.techidaily.com/unleash-potential-with-smart-cookie-technology-discover-your-sites-secret-weapon/"><u>Unleash Potential with Smart Cookie Technology: Discover Your Site's Secret Weapon!</u></a></li>
+<li><a href="https://solve-info.techidaily.com/unleash-the-potential-of-clever-automation-this-september-join-abbyys-enlightening-journey/"><u>Unleash the Potential of Clever Automation This September – Join ABBYY's Enlightening Journey</u></a></li>
+<li><a href="https://solve-info.techidaily.com/unlocking-the-hidden-potential-in-your-supply-chain-dont-miss-out-on-this-key-advantage/"><u>Unlocking the Hidden Potential in Your Supply Chain: Don't Miss Out on This Key Advantage</u></a></li>
+<li><a href="https://solve-info.techidaily.com/utilizing-cookiebot-technology-for-effective-user-tracking-and-personalization/"><u>Utilizing Cookiebot Technology for Effective User Tracking and Personalization</u></a></li>
+<li><a href="https://solve-info.techidaily.com/visionary-executive-neil-murphy-guides-global-strategy-as-emea-channel-chief-and-svp-at-top-level-sales-position/"><u>Visionary Executive Neil Murphy Guides Global Strategy as EMEA Channel Chief and SVP at Top-Level Sales Position</u></a></li>
 </ul></div>
 

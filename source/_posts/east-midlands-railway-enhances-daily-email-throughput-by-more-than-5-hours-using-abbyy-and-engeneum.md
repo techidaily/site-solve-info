@@ -1,7 +1,7 @@
 ---
 title: East Midlands Railway Enhances Daily Email Throughput by More than 5 Hours Using ABBYY & Engeneum
-date: 2024-10-02T16:31:41.503Z
-updated: 2024-10-08T18:42:29.209Z
+date: 2024-10-13T00:20:59.432Z
+updated: 2024-10-14T18:35:27.917Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/df4c1493c2f3e813888bfc3942921b3c21459900f9f223dcb15b2289e52ca077.jpg
@@ -26,15 +26,22 @@ Transportation & Logistics | Accounts Payable Automation
 ![Sumitomo Warehouse Co. Ltd. & ABBYY](https://static5.abbyy.com/abbyycommedia/37724/east-midlands-railway-case-study-intelligent-automation-en_tn_556x303.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Customer Overview
 
 ![East Midlands Railway](https://static2.abbyy.com/abbyycommedia/31982/03c-emr-logo-182x50.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | Name         | East Midlands Railway                                                                    |
 | ------------ | ---------------------------------------------------------------------------------------- |
@@ -93,22 +100,15 @@ ABBYY’s intelligent automation platform is the only solution that automates th
 [![ABBYY FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Learn more about ABBYY solutions for accounts payable automation](https://static4.abbyy.com/abbyycommedia/14351/1-accounts-payable.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY Solutions for Accounts Payable Automation](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
@@ -121,10 +121,10 @@ ABBYY’s intelligent automation platform is the only solution that automates th
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Ready to talk to an expert?
@@ -148,22 +148,17 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-joyful-journeys-in-cinema-summers-top-10-for-families/"><u>[New] Joyful Journeys in Cinema Summer's Top 10 for Families</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-proven-ways-to-cash-in-instagrams-leading-revenue-methods-for-2024/"><u>[New] Proven Ways to Cash In Instagram's Leading Revenue Methods for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-optimal-video-recording-for-instructors/"><u>[Updated] 2024 Approved Optimal Video-Recording for Instructors</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-the-science-of-scheduling-perfect-times-for-your-ig-posts/"><u>[Updated] The Science of Scheduling Perfect Times for Your IG Posts</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-essential-tools-for-perfect-images/"><u>2024 Approved Essential Tools for Perfect Images</u></a></li>
-<li><a href="https://fox-http.techidaily.com/a-stepwise-approach-to-film-color-grading-with-look-up-tables-luts-from-cg-central-for-2024/"><u>A Stepwise Approach to Film Color Grading with Look-Up Tables (Luts) From CG Central for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/how-artificial-intelligence-boosts-roi-through-advanced-image-recognition-expert-advice-on-intelligent-capture-blog-by-abbyy/"><u>How Artificial Intelligence Boosts ROI Through Advanced Image Recognition - Expert Advice on Intelligent Capture | Blog by ABBYY</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-on-lava-yuva-3-pro-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos on Lava Yuva 3 Pro</u></a></li>
-<li><a href="https://solve-info.techidaily.com/introducing-neoml-abbyys-new-open-source-library-speeding-up-artifice-intelligence-innovation/"><u>Introducing NeoML: ABBYY's New Open Source Library Speeding Up Artifice Intelligence Innovation</u></a></li>
-<li><a href="https://techtrends.techidaily.com/investigating-communication-breakdowns-are-these-personal-issues-or-widespread-discord-outages/"><u>Investigating Communication Breakdowns: Are These Personal Issues or Widespread Discord Outages?</u></a></li>
-<li><a href="https://solve-info.techidaily.com/junges-management-gefahrdet-durch-ineffiziente-geschaftspraktiken-und-veraltete-technologie-abbyy-umfrage-zeigt-schnelle-demotivierung-gegenuber-alteren-kol9/"><u>Junges Management Gefährdet Durch Ineffiziente Geschäftspraktiken Und Veraltete Technologie: ABBYY Umfrage Zeigt Schnelle Demotivierung Gegenüber Älteren Kollegen</u></a></li>
-<li><a href="https://solve-info.techidaily.com/launching-intelligent-transit-solutions-insights-from-the-abbyy-blog/"><u>Launching Intelligent Transit Solutions: Insights From the ABBYY Blog</u></a></li>
-<li><a href="https://solve-info.techidaily.com/les-avantages-dutiliser-locr-dabbevillier-pour-les-amateurs-de-vin-la-solution-la-plus-appreciee-par-vivino/"><u>Les Avantages D'utiliser L'OCR D'Abbevillier Pour Les Amateurs De Vin: La Solution La Plus Appréciée Par Vivino</u></a></li>
-<li><a href="https://solve-info.techidaily.com/leveraging-cookiebot-technology-for-superior-visitor-insights-and-site-optimization/"><u>Leveraging Cookiebot Technology for Superior Visitor Insights and Site Optimization</u></a></li>
-<li><a href="https://solve-info.techidaily.com/mastering-modern-banking-challenges-proven-abbyy-strategies-for-thriving-through-crisis-and-beyond/"><u>Mastering Modern Banking Challenges: Proven ABBYY Strategies for Thriving Through Crisis and Beyond</u></a></li>
-<li><a href="https://solve-info.techidaily.com/norton-rose-llp-utilise-le-serveur-de-reconnaissance-dabbyy-pour-la-digitalisation-centrale-des-documents/"><u>Norton Rose LLP Utilise Le Serveur De Reconnaissance D'ABBYY Pour La Digitalisation Centrale Des Documents</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/overhauling-obsolete-directx-applications-using-dxvk/"><u>Overhauling Obsolete DirectX Applications Using DXVK</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-the-essential-manual-to-fb-video-playback-settings/"><u>[New] In 2024, The Essential Manual to FB Video Playback Settings</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-maintaining-the-right-video-aspect-on-twitters/"><u>[Updated] Maintaining the Right Video Aspect on Twitters</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-secret-sauce-of-submillion-success-youtube-edition-for-2024/"><u>[Updated] The Secret Sauce of Submillion Success Youtube Edition for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-quantum-hdr-explained-the-ultimate-resource/"><u>2024 Approved Quantum HDR Explained The Ultimate Resource</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhanced-site-personalization-with-the-power-of-cookiebot-technology/"><u>Enhanced Site Personalization with the Power of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhancing-accessibility-with-special-mobility-how-to-protect-your-data-from-textgrabber-on-abbyy/"><u>Enhancing Accessibility with Special Mobility - How to Protect Your Data From TextGrabber on ABBYY</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhancing-emergency-department-efficiency-with-process-mining-insights-from-widener-universitys-study-using-abbyy-timeline/"><u>Enhancing Emergency Department Efficiency with Process Mining: Insights From Widener University's Study Using ABBYY Timeline</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhancing-rpa-success-through-next-gen-process-analytics-techniques-by-abbyy/"><u>Enhancing RPA Success Through Next-Gen Process Analytics Techniques by ABBYY</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhancing-user-experience-with-cookiebot-technology-integration/"><u>Enhancing User Experience with Cookiebot Technology Integration</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-change-the-email-and-phone-number-on-your-facebook-account/"><u>How to Change the Email and Phone Number on Your Facebook Account</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-waves-with-top-surf-cams/"><u>In 2024, Mastering Waves with Top Surf Cams</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unleash-your-full-potential-top-ideas-for-productive-podcast-sessions-for-2024/"><u>Unleash Your Full Potential Top Ideas for Productive Podcast Sessions for 2024</u></a></li>
 </ul></div>
 

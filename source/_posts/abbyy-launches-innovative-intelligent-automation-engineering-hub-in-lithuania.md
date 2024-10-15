@@ -1,7 +1,7 @@
 ---
 title: ABBYY Launches Innovative Intelligent Automation Engineering Hub in Lithuania
-date: 2024-10-02T17:49:08.657Z
-updated: 2024-10-08T16:15:43.416Z
+date: 2024-10-10T21:33:23.343Z
+updated: 2024-10-14T22:56:17.792Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0c6d2fd1a73159563e57dda315b30eb330741092cc6760e2a82edb3563c1b5c8.jpg
@@ -26,10 +26,10 @@ Das Unternehmen für intelligente Automatisierung ABBYY hat ein neues Büro in V
 Das neue Engineering Center von ABBYY ist die 15\. globale Niederlassung des Unternehmens.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Über ABBYY
@@ -43,10 +43,16 @@ ABBYY ist ein globales Unternehmen mit Sitz in den USA und Niederlassungen in 15
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Pressekontakt:
@@ -54,10 +60,10 @@ ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeich
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Bianca Stupp
@@ -83,18 +89,18 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-mastery-guide-sync-videos-to-facebook-pc-and-android-way/"><u>[Updated] 2024 Approved Mastery Guide Sync Videos to Facebook - PC & Android Way</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-masterpiece-in-motion-capture-sonys-x1000-action-gear/"><u>2024 Approved Masterpiece in Motion Capture Sony's X1000 Action Gear</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-most-acclaimed-ipad-recording-software-3p/"><u>2024 Approved Most Acclaimed iPad Recording Software 3P</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/adding-accurate-dates-to-photographic-records-for-2024/"><u>Adding Accurate Dates to Photographic Records for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-user-experience-using-cookiebot-analytics-technology/"><u>Elevate User Experience Using Cookiebot Analytics Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhance-user-experience-and-analytics-via-the-advanced-cookiebot-integration-features/"><u>Enhance User Experience & Analytics via the Advanced Cookiebot Integration Features</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhance-your-web-analytics-using-the-cookiebot-platform/"><u>Enhance Your Web Analytics Using the Cookiebot Platform</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-conversion-rates-optimized-with-cookiebot-technology/"><u>Enhanced Conversion Rates: Optimized with Cookiebot Technology</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Tecno Pova 6 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-poco-c65-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & Poco C65 | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-the-updated-method-to-bypass-nokia-c210-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Nokia C210 FRP</u></a></li>
-<li><a href="https://fox-that.techidaily.com/silent-apple-troubleshooting-no-audio-output-on-your-iphone/"><u>Silent Apple: Troubleshooting No Audio Output on Your iPhone</u></a></li>
-<li><a href="https://games-able.techidaily.com/transformative-game-masters-6-ways-to-leverage-chatgpt/"><u>Transformative Game Masters: 6 Ways to Leverage ChatGPT</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-streamline-audio-podcasts-made-easy-for-iphones-for-2024/"><u>[Updated] Streamline Audio Podcasts Made Easy for iPhones for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-unveil-prodigious-profits-with-our-12-top-tycoon-gaming-selection/"><u>[Updated] Unveil Prodigious Profits with Our #12 Top Tycoon Gaming Selection</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-peculiar-plight-dissecting-goofy-chronicles/"><u>2024 Approved The Peculiar Plight Dissecting 'Goofy Chronicles'</u></a></li>
+<li><a href="https://solve-info.techidaily.com/boost-site-engagement-with-cookiebot-technology-integration/"><u>Boost Site Engagement with Cookiebot Technology Integration</u></a></li>
+<li><a href="https://solve-info.techidaily.com/celebrating-international-womens-day-2024-honoring-abbyys-leading-female-contributors/"><u>Celebrating International Women's Day 2024: Honoring ABBYY's Leading Female Contributors</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-driven-performance-unlocking-website-personalization/"><u>Cookiebot-Driven Performance: Unlocking Website Personalization</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-driven-personalization-enhancing-your-websites-user-experience/"><u>Cookiebot-Driven Personalization: Enhancing Your Website's User Experience</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-driven-solutions-for-enhanced-user-engagement/"><u>Cookiebot-Driven Solutions for Enhanced User Engagement</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-driven-success-optimizing-your-website-with-advanced-analytics/"><u>Cookiebot-Driven Success: Optimizing Your Website with Advanced Analytics</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/how-to-unfreeze-an-offline-brother-printer-online/"><u>How To Unfreeze an Offline Brother Printer Online</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Oppo Find N3 Flip? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-realme-c53-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Realme C53 Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/ujrakezelest-igenylo-202n-kapodnyas-videotervezo-puska-a-legjobb-professzionalis-keszitmenyeket-gyujtoje/"><u>Újrakezelést Igénylő 202N Kapodnyás Vídeótervező Puska: A Legjobb Professzionális Készítményeket Gyüjtöje</u></a></li>
 </ul></div>
 

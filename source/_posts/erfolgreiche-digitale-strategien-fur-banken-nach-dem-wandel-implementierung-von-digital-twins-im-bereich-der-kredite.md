@@ -1,7 +1,7 @@
 ---
 title: Erfolgreiche Digitale Strategien Für Banken Nach Dem Wandel – Implementierung Von Digital Twins Im Bereich Der Kredite
-date: 2024-10-05T17:19:09.218Z
-updated: 2024-10-08T18:04:30.950Z
+date: 2024-10-12T23:55:13.610Z
+updated: 2024-10-14T17:07:15.595Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6e23731e5459bef762d6b1bc2a8183e3bf6b31c4a9b6b999e3d277b3627f742d.jpg
@@ -28,19 +28,19 @@ Leiter der Projektgruppe Wirtschaftsinformatik, **Fraunhofer FIT**
 ![02 Alexandrejanicki 198X198](https://static4.abbyy.com/abbyycommedia/25121/logo-2021-90x27.svg) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![02 Alexandrejanicki 198X198](https://static2.abbyy.com/abbyycommedia/25101/02-alexandrejanicki-198x198.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Alexandre Janicki
@@ -50,16 +50,10 @@ Senior Enterprise Sales Manager, **ABBYY**
 ![97 Elisabethlambert 198X198](https://static2.abbyy.com/abbyycommedia/34845/97-elisabethlambert-198x198.png)
 
 <!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Elisabeth Lambert
@@ -69,22 +63,15 @@ Leitung Finanzierungen Retail, **Erstebank Österreich**
 ![96 Thomaspuschmann 198X198](https://static5.abbyy.com/abbyycommedia/34844/96-thomaspuschmann-198x198.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
+  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Dr. Thomas Puschmann
 
 Director des Swiss FinTech Innovation Lab, **Universität Zürich**
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Handelsblatt Webinar mit Erstebank Österreich, Fraunhofer FIT, Swiss FinTech Innovation Lab Universität Zürich und ABBYY
 
@@ -94,6 +81,13 @@ Das „New Normal“ fordert von den Banken ein schnelleres und agileres Handeln
 
 Erfahren Sie im Webinar, wie es gelingen kann, bestehende Prozesse durch moderne Prozesstechnologien wie einen Digital Twin im Kreditbereich zu digitalisieren und zu optimieren, um langfristig mit erfolgreichen Produkten und Services Kunden- und Mitarbeiterzufriedenheit zu steigern.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Webinar-Aufzeichnung hier anfordern
 
 ### Get in touch with us
@@ -101,18 +95,18 @@ Erfahren Sie im Webinar, wie es gelingen kann, bestehende Prozesse durch moderne
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Vielen Dank! Wir wünschen Ihnen viel Spaß mit dem Webinar.
 
 [![Managing The New Normal](https://static4.abbyy.com/abbyycommedia/34848/managing-the-new-normal.jpg)](https://www.youtube.com/watch?v=Fjbr4nBX%5Ff4) 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Haben Sie weiterführende Fragen oder möchten Sie mit uns über ein konkretes Projekt sprechen? [Kontaktieren Sie uns.](https://tools.techidaily.com/abbyy/products/)
 
@@ -179,20 +173,21 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/new-advanced-strategies-to-elevate-client-spots-and-product-endorsements/"><u>[New] Advanced Strategies to Elevate Client Spots and Product Endorsements</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-creating-impressive-slideshows-with-video-delays-in-snapchat/"><u>[New] Creating Impressive Slideshows with Video Delays in Snapchat</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-pictureforge-hub/"><u>[New] In 2024, PictureForge Hub</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-how-to-create-effective-intro-videos-for-your-podcasts/"><u>[Updated] How to Create Effective Intro Videos for Your Podcasts</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-amplify-your-creative-impact-youtube-studio-editing-essentials/"><u>[Updated] In 2024, Amplify Your Creative Impact YouTube Studio Editing Essentials</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-how-to-downgrade-or-rollback-the-macos-sierra-to-os-x-el-capitan/"><u>2024 Approved How To Downgrade Or Rollback The macOs Sierra To Os X El Capitan</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-ultimate-portable-shake-reducer-for-clear-video-capture/"><u>2024 Approved Ultimate Portable Shake Reducer for Clear Video Capture</u></a></li>
-<li><a href="https://solve-info.techidaily.com/grublpc/"><u>GRUBLゲーム画面をPCで高解像度に記録するガイド</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-vivo-v29-pro-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Vivo V29 Pro to iPad | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/master-the-shift-from-dvd-to-digital-expert-tips-for-watching-movies-on-your-kindle-fire-devices/"><u>Master the Shift From DVD to Digital: Expert Tips for Watching Movies on Your Kindle Fire Devices</u></a></li>
-<li><a href="https://solve-info.techidaily.com/mastering-format-transformation-seamless-techniques-for-switching-videoaudio-files/"><u>Mastering Format Transformation: Seamless Techniques for Switching Video/Audio Files</u></a></li>
-<li><a href="https://review-topics.techidaily.com/mkv-playback-issues-on-motorola-edgeplus-2023-by-aiseesoft-video-converter-play-mkv-on-android/"><u>MKV playback issues on Motorola Edge+ (2023)</u></a></li>
-<li><a href="https://solve-info.techidaily.com/mkvyoutube-youtubemkv/"><u>MKV形式でYouTube動画を安全にダウンロードする簡単方法 - YouTubeからMKVへの変換テクニック</u></a></li>
-<li><a href="https://solve-info.techidaily.com/pcvimeo/"><u>PCで効率よく編集し直せるVimeo動画のトリミングガイド</u></a></li>
-<li><a href="https://solve-info.techidaily.com/myspace/"><u>マストから MySpace 音楽をダウンロード・セーブする独自のテクニック</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-bikers-ultimate-camera-companion-list-update-for-2024/"><u>[New] Biker's Ultimate Camera Companion List Update for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-step-into-the-world-of-precise-editing-tiktok-number-modification/"><u>[Updated] Step Into the World of Precise Editing TikTok Number Modification</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-unlock-limitless-creativity-with-free-after-effects-samples-for-2024/"><u>[Updated] Unlock Limitless Creativity with Free After Effects Samples for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726028728450-3/"><u>「最新ビデオ合成ツールベストセレクション：日本版3つのおすすめソフトウェア！」</u></a></li>
+<li><a href="https://solve-info.techidaily.com/audacitym4a/"><u>AudacityでM4Aファイルが開けない場合の解決策</u></a></li>
+<li><a href="https://solve-info.techidaily.com/discovering-the-past-a-guide-on-accessing-archived-twitch-broadcasts/"><u>Discovering the Past: A Guide on Accessing Archived Twitch Broadcasts</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-gionee-f3-pro-lock-screen-password-by-drfone-android/"><u>How To Change Gionee F3 Pro Lock Screen Password?</u></a></li>
+<li><a href="https://solve-info.techidaily.com/how-to-transfer-and-share-your-dvd-files-on-the-vimeo-platform-easily/"><u>How To Transfer And Share Your DVD Files On The Vimeo Platform Easily</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-use-google-assistant-on-your-lock-screen-of-itel-p40-phone-by-drfone-android/"><u>How to Use Google Assistant on Your Lock Screen Of Itel P40 Phone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-assessment-of-vlc-screen-recording/"><u>In 2024, Assessment of VLC Screen Recording</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-crafting-visionary-art-top-10-apps-for-vector-enthusiasts/"><u>In 2024, Crafting Visionary Art Top 10 Apps for Vector Enthusiasts</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-perfect-pictures-at-a-click-the-10-best-grids/"><u>In 2024, Perfect Pictures at a Click - The 10 Best Grids</u></a></li>
+<li><a href="https://solve-info.techidaily.com/mp3-dsf/"><u>MP3形式へのシンプルな変換: DSFファイルを取り込むためのガイド</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726030611184-powerdirector/"><u>PowerDirectorで効果的なビデオ編集:組み込み技術ガイド</u></a></li>
+<li><a href="https://solve-info.techidaily.com/top-3-no-cost-video-downloading-applications-effortlessly-transfer-vids-from-vidiocom-in-minutes/"><u>Top 3 No-Cost Video Downloading Applications: Effortlessly Transfer Vids From Vidio.com in Minutes</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/watch-disney-movies-and-series-seamlessly-connecting-disney-plus-to-chromecast-made-easy/"><u>Watch Disney Movies and Series Seamlessly - Connecting Disney Plus to Chromecast Made Easy</u></a></li>
 </ul></div>
 

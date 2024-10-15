@@ -1,7 +1,7 @@
 ---
 title: Discover ABBYY's Best Digital Intelligence Narratives From 202 2 - Top Six Picks Unveiled in Our Latest Post!
-date: 2024-10-05T18:36:38.110Z
-updated: 2024-10-08T18:25:30.443Z
+date: 2024-10-11T00:55:29.975Z
+updated: 2024-10-14T19:52:21.373Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/eb6701eb360daf00501aea3027f5f407ca588034548873224d944d5de49dcde3.jpg
@@ -47,46 +47,46 @@ They discussed how ABBYY’s platform identifies process flows, the importance o
 
 [Read the article](https://siliconangle.com/2020/05/12/data-insight-plays-a-key-role-in-how-abbyy-supplies-vital-pieces-of-the-rpa-puzzle-cubeconversations/) or watch the video below.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. The Need for Digital Intelligence in the Time of Social Distancing
 
 ![social distancing](https://static1.abbyy.com/abbyycommedia/31669/blog-1262271993-848x444.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 COVID-19 is the defining event of 2020, and with it, ”social distancing” entered our vocabulary for modern commerce, recasting interpersonal and business interactions. Now as part of our social consciousness, social distancing is fueling a growing reliance on virtualization and technologically mediated relationships. While the urgency of social distancing is already putting our technology and process readiness to the test, it raises an important question about how people, process, and content interact in this new normal. Social distancing has made the customer experience an imperative, driving digital transformation by replacing human-to-human with app-defined interactions.
 
 [Read the article.](https://www.kmworld.com/Articles/Editorial/ViewPoints/The-need-for-digital-intelligence-in-the-time-of-social-distancing--140797.aspx)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 5\. Six Steps to Revive Your Digital Transformation Projects
 
 ![ideas for improving customer service](https://static1.abbyy.com/abbyycommedia/31624/blog-digital-intelligence-1-848x444.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The pandemic shifted many IT resources toward business continuity efforts, and many workers and leaders reached the point where they were struggling to ramp up or resume digital transformation projects. Organizations looked to tap into the benefits attained from scaling end-to-end digital transformation but needed direction on the right strategies to accelerate higher-value initiatives. The challenges stem from a lack of understanding of business processes coupled with an inability to turn a company’s data into actionable, valuable information that drives strategic business decisions. ABBYY shared six fundamental steps to help implement digital transformation.
 
 [Read the article.](https://www.cmswire.com/leadership/6-steps-to-revive-your-digital-transformation-projects/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 6\. Five Crucial Insurance Questions for the Post-COVID 'New Normal'
 
 ![process improvement in insurance](https://static1.abbyy.com/abbyycommedia/31573/blog-digital-intelligence-cover-848x444.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Only several months into the coronavirus pandemic, it became clear that the crisis had rewritten the rules for customer engagement, business processes, and technology. Insurers understood that the customer experience is critical during the claims process, otherwise they risk customer attrition. While a number of factors play a role in resolving claims, one of the most important drivers of a positive customer experience is an insurer’s operational processes. It’s vital for insurers to evaluate how to become more digitally efficient, how to enhance the customer experience by connecting historically disparate processes, and ways they can effectively bring critical customer data directly into core operational processes.
 
@@ -97,10 +97,10 @@ We shared five questions to help leaders at insurance companies evaluate if ther
 [Intelligent Automation](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -166,18 +166,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-quick-and-simple-free-fb-video-to-mp4-hd-conversion-tutorial-online/"><u>[New] 2024 Approved Quick and Simple Free FB Video to MP4 (HD) Conversion Tutorial Online</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-becoming-a-trendsetter-youtube-video-tactics/"><u>[Updated] In 2024, Becoming a Trendsetter YouTube Video Tactics</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-hack-swiftly-delete-your-youtube-comments/"><u>[Updated] The Ultimate Hack Swiftly Delete Your YouTube Comments</u></a></li>
-<li><a href="https://win-answers.techidaily.com/fixing-roblox-crashes-in-under-a-minute-top-techniques-of-2024/"><u>Fixing Roblox Crashes in Under a Minute - Top Techniques of 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/how-to-stand-out-in-snapchat-spotlight-for-2024/"><u>How to Stand Out in Snapchat Spotlight for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-can-life360-track-you-when-your-honor-magic-5-pro-is-off-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track You When Your Honor Magic 5 Pro is off? | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/troubleshooting-downloads-how-to-successfully-retrieve-abema-previously-abematv-streaming-content/"><u>Troubleshooting Downloads: How to Successfully Retrieve ABEMA (Previously AbemaTV) Streaming Content</u></a></li>
-<li><a href="https://windows11.techidaily.com/troubleshooting-unresponsive-programs-in-windows-os/"><u>Troubleshooting Unresponsive Programs in Windows OS</u></a></li>
-<li><a href="https://solve-info.techidaily.com/ultimate-guide-to-downloading-movies-from-dvds-onto-your-pc-step-by-step-process/"><u>Ultimate Guide to Downloading Movies From DVDs Onto Your PC - Step by Step Process</u></a></li>
-<li><a href="https://solve-info.techidaily.com/ultimate-guide-mastering-video-compression-with-adobe-media-encoder/"><u>Ultimate Guide: Mastering Video Compression with Adobe Media Encoder</u></a></li>
-<li><a href="https://solve-info.techidaily.com/understanding-handbrakes-capabilities-for-merging-multiple-video-streams-insights-and-solutions/"><u>Understanding Handbrake's Capabilities for Merging Multiple Video Streams: Insights & Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/understanding-resolution-upgrades-does-true-4k-offer-significant-advantages-over-1080p/"><u>Understanding Resolution Upgrades: Does True 4K Offer Significant Advantages Over 1080P?</u></a></li>
-<li><a href="https://solve-info.techidaily.com/windows-11youtubesd/"><u>Windows 11でパソコンからYouTube音楽をSDカードへ転送するための完全ガイド</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-uninterrupted-virtual-engagement-top-5-high-quality-recorders/"><u>[New] 2024 Approved Uninterrupted Virtual Engagement - Top 5 High-Quality Recorders</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-2024-approved-your-complete-discord-companion-manual/"><u>[New] 2024 Approved Your Complete Discord Companion Manual</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-acquire-and-setup-windows-xp-movie-creator/"><u>[Updated] 2024 Approved Acquire & Setup Windows XP Movie Creator</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-crafting-visual-narratives-adding-memorable-story-emoji-images/"><u>[Updated] In 2024, Crafting Visual Narratives Adding Memorable Story Emoji Images</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/gpt-5-launch-speculations-and-predicted-timeline-for-the-next-ai-leap/"><u>GPT-5 Launch Speculations and Predicted Timeline for the Next AI Leap</u></a></li>
+<li><a href="https://solve-info.techidaily.com/grublpc/"><u>GRUBLゲーム画面をPCで高解像度に記録するガイド</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-gps-location-on-samsung-galaxy-a24-easily-and-safely-drfone-by-drfone-virtual-android/"><u>How to Change GPS Location on Samsung Galaxy A24 Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/master-the-shift-from-dvd-to-digital-expert-tips-for-watching-movies-on-your-kindle-fire-devices/"><u>Master the Shift From DVD to Digital: Expert Tips for Watching Movies on Your Kindle Fire Devices</u></a></li>
+<li><a href="https://solve-info.techidaily.com/mastering-format-transformation-seamless-techniques-for-switching-videoaudio-files/"><u>Mastering Format Transformation: Seamless Techniques for Switching Video/Audio Files</u></a></li>
+<li><a href="https://solve-info.techidaily.com/mkvyoutube-youtubemkv/"><u>MKV形式でYouTube動画を安全にダウンロードする簡単方法 - YouTubeからMKVへの変換テクニック</u></a></li>
+<li><a href="https://solve-info.techidaily.com/pcvimeo/"><u>PCで効率よく編集し直せるVimeo動画のトリミングガイド</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/step-by-step-installing-hp-printer-in-windows/"><u>Step-by-Step: Installing HP Printer in Windows</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/unlock-iphone-x-with-forgotten-passcode-different-methods-you-can-try-by-drfone-ios/"><u>Unlock iPhone X With Forgotten Passcode Different Methods You Can Try</u></a></li>
+<li><a href="https://solve-info.techidaily.com/myspace/"><u>マストから MySpace 音楽をダウンロード・セーブする独自のテクニック</u></a></li>
 </ul></div>
 

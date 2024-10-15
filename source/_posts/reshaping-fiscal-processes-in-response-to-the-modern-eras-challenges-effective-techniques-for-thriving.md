@@ -1,7 +1,7 @@
 ---
 title: "Reshaping Fiscal Processes in Response to the Modern Era's Challenges: Effective Techniques for Thriving"
-date: 2024-09-27T03:46:16.400Z
-updated: 2024-10-03T03:02:41.001Z
+date: 2024-10-12T16:10:30.627Z
+updated: 2024-10-14T23:02:32.589Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/053654aac9195ea45d1f77852c408a3b2770cc6c802ff6728e9e3d8c452deddb.jpg
@@ -19,14 +19,14 @@ English
 
 ![32 Stevenstills 198X198](https://static3.abbyy.com/abbyycommedia/25772/costain-logo-forspeakers.jpg) 
 
-![32 Stevenstills 198X198](https://static4.abbyy.com/abbyycommedia/25768/32-stevenstills-198x198.png)
-
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
-  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![32 Stevenstills 198X198](https://static4.abbyy.com/abbyycommedia/25768/32-stevenstills-198x198.png)
 
 ### Steven Still
 
@@ -37,10 +37,10 @@ Head of Automation, **Costain**
 ![30 Jessscheer 198X198](https://static4.abbyy.com/abbyycommedia/25764/30-jessscheer-198x198.png)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Jess Scheer
@@ -52,22 +52,15 @@ Executive Editor, **Institute of Finance and Management**
 ![20 Andrewpery 198X198](https://static4.abbyy.com/abbyycommedia/25498/20-andrewpery-198x198.png)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Andrew Pery
 
 Digital Intelligence Consultant, **ABBYY**
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Overview
 
@@ -88,29 +81,42 @@ And, CFOs are evolving as orchestrators of varied business functions, assuming a
 
 This discussion and demonstration highlights real-life examples and approaches from Analyst, Jess Scheer, and Costain's Head of Automation, Steven Still; that can evolve your organization’s digital transformation efforts, to design a sustainable future.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Watch now
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Thank you, enjoy your webinar!
 
 [![09 Shifting Your Finance Operations](https://static5.abbyy.com/abbyycommedia/29001/09-shifting-your-finance-operations.jpg)](https://www.youtube.com/watch?v=x%5F9NXipDxU4) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
@@ -180,20 +186,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-unlocking-full-potential-of-macs-preview-tool/"><u>[New] In 2024, Unlocking Full Potential of Mac's Preview Tool</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-elevate-your-videos-with-complimentary-banners-here/"><u>[Updated] Elevate Your Videos with Complimentary Banners, Here!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-sdk-nouveau-kit-dintegration-pour-la-prise-de-commande-rapide-et-reactive-des-donnees/"><u>ABBYY SDK Nouveau Kit D'Intégration Pour La Prise De Commande Rapide Et Réactive Des Données</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-e201/"><u>ABBYY自動請求書解析と電子文書対応ソリューションの紹介: Eドキュメントジャパン201</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-abbyy-flexicapture-ai-ocr/"><u>ABBYYブログで解析: 効果的な帳票処理を可能にするABBYY FlexiCapture - AI OCRプラットフォームの革新</u></a></li>
-<li><a href="https://blog-min.techidaily.com/dvdntsc/"><u>DVD再生に失敗するNTSC形式:耐えうる解決策</u></a></li>
-<li><a href="https://driver-error.techidaily.com/graphics-module-blockage-in-windows-operating-system/"><u>Graphics Module Blockage in Windows Operating System</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-essential-tweets-choosing-the-right-converter/"><u>In 2024, Essential Tweets Choosing the Right Converter</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-the-definitive-guide-to-captivating-podcast-covers/"><u>In 2024, The Definitive Guide to Captivating Podcast Covers</u></a></li>
-<li><a href="https://driver-error.techidaily.com/overcome-qualcomm-atheros-bluetooth-drivers-malfunctions-in-windows-10-expert-advice/"><u>Overcome Qualcomm Atheros Bluetooth Drivers Malfunctions in Windows 10: Expert Advice</u></a></li>
-<li><a href="https://solve-info.techidaily.com/revolutionizing-public-sector-the-impact-of-artificer-intelligence-in-citizen-identification/"><u>Revolutionizing Public Sector: The Impact of Artificer Intelligence in Citizen Identification</u></a></li>
-<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-lenovo-thinkphone-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Lenovo ThinkPhone | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/top-process-insight-narratives-from-abbyys-annual-digest/"><u>Top Process Insight Narratives From ABBYY's Annual Digest</u></a></li>
-<li><a href="https://solve-info.techidaily.com/top-questions-customers-have-on-ai-insights-and-explanations-for-your-peace-of-mind/"><u>Top Questions Customers Have on AI - Insights & Explanations for Your Peace of Mind</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unlocking-marketing-potential-with-predictive-analytics-from-cookiebot-technology/"><u>Unlocking Marketing Potential with Predictive Analytics From Cookiebot Technology</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-ensuring-correct-ad-revenue-a-comprehensive-guide-to-yt-channel-earnings/"><u>[New] 2024 Approved Ensuring Correct Ad Revenue A Comprehensive Guide to YT Channel Earnings</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-frontier-vloggers-8-rising-stars-of-the-screen-for-2024/"><u>[New] Frontier Vloggers 8 Rising Stars of the Screen for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-cutting-edge-voice-altering-apps-for-vloggers/"><u>[Updated] Cutting-Edge Voice Altering Apps for Vloggers</u></a></li>
+<li><a href="https://solve-info.techidaily.com/discover-the-ultimate-list-of-no-cost-avi-video-editors-compatible-with-pc-and-mac-systems/"><u>Discover the Ultimate List of No-Cost AVI Video Editors Compatible with PC and Mac Systems</u></a></li>
+<li><a href="https://solve-info.techidaily.com/effective-techniques-for-transforming-hevc-videos-into-the-versatile-mkv-container/"><u>Effective Techniques for Transforming HEVC Videos Into the Versatile MKV Container</u></a></li>
+<li><a href="https://solve-info.techidaily.com/efficient-avi-file-conversion-to-h265-achieving-optimal-quality-with-reduced-file-size/"><u>Efficient AVI File Conversion to H.265: Achieving Optimal Quality with Reduced File Size</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/elite-psd-blend-modes-showcase/"><u>Elite PSD Blend Modes Showcase</u></a></li>
+<li><a href="https://solve-info.techidaily.com/free-conversion-guide-transforming-your-dvds-into-mp4-format-on-windows-10-and-11/"><u>Free Conversion Guide: Transforming Your DVDs Into MP4 Format on Windows 10 & 11</u></a></li>
+<li><a href="https://solve-info.techidaily.com/grublpc/"><u>GRUBLゲーム画面をPCで高解像度に記録するガイド</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-can-nubia-red-magic-8s-proplusmirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Nubia Red Magic 8S Pro+Mirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-bypass-android-lock-screen-using-emergency-call-on-honor-v-purse-by-drfone-android/"><u>How to Bypass Android Lock Screen Using Emergency Call On Honor V Purse?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-spy-on-text-messages-from-computer-and-oppo-a79-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Spy on Text Messages from Computer & Oppo A79 5G | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-apps-from-nokia-g310-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Apps from Nokia G310 to Another | Dr.fone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/master-the-shift-from-dvd-to-digital-expert-tips-for-watching-movies-on-your-kindle-fire-devices/"><u>Master the Shift From DVD to Digital: Expert Tips for Watching Movies on Your Kindle Fire Devices</u></a></li>
+<li><a href="https://solve-info.techidaily.com/mastering-format-transformation-seamless-techniques-for-switching-videoaudio-files/"><u>Mastering Format Transformation: Seamless Techniques for Switching Video/Audio Files</u></a></li>
+<li><a href="https://solve-info.techidaily.com/mkvyoutube-youtubemkv/"><u>MKV形式でYouTube動画を安全にダウンロードする簡単方法 - YouTubeからMKVへの変換テクニック</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-top-5-free-mpeg-video-editing-tools-with-joining-feature-for-2024/"><u>Updated Top 5 Free MPEG Video Editing Tools with Joining Feature for 2024</u></a></li>
 </ul></div>
 

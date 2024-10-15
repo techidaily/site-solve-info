@@ -1,7 +1,7 @@
 ---
 title: "Unveiling the Future: Critical Findings From ABBYY's Report on Smart Automation Progress"
-date: 2024-10-07T19:12:09.133Z
-updated: 2024-10-08T18:06:00.407Z
+date: 2024-10-09T20:26:51.419Z
+updated: 2024-10-14T22:44:53.085Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a33821f7d1add97134f0556ceb5947dead1c89e2bf8e16eab36445ca53259ede.jpg
@@ -45,10 +45,10 @@ More details about AI investments, ROI expected and achieved, budget priorities,
 ![](https://static1.abbyy.com/abbyycommedia/37805/infographic-economic-challenges-survey-en.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Methodology
@@ -56,10 +56,10 @@ More details about AI investments, ROI expected and achieved, budget priorities,
 This research was conducted by Sapio Research in July 2023 on behalf of ABBYY. 1000 IT decision makers from 17 industries including financial services, healthcare, transportation/logistics/supply chain, insurance, retail, government/public sector, and healthcare were surveyed across the US, UK, Germany, and France to understand how the current global economic stagnation is impacting investments in intelligent automation. The survey also looked at what technologies, if any, organizations plan to adopt in the near future.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### About ABBYY
@@ -69,10 +69,10 @@ ABBYY puts your information to work. We combine innovation and experience to tra
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYY Editorial Contact
@@ -80,10 +80,10 @@ ABBYY can either be a registered trademark or a trademark and can also be a logo
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Gina Ray
@@ -109,19 +109,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-elite-cutting-edge-tools-for-app-editing/"><u>[New] 2024 Approved Elite Cutting-Edge Tools for App Editing</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/movavi-aifcwav/"><u>免費在線Movavi AIFC到WAV音頻轉換解決方案 - 無界限選擇性改變</u></a></li>
-<li><a href="https://games-able.techidaily.com/boosting-game-performance-on-series-sx-through-expertly-setup-vrr-settings/"><u>Boosting Game Performance on Series S/X Through Expertly Setup VRR Settings</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/download-and-set-up-your-usb-cam-driver-in-no-time/"><u>Download & Set Up Your USB Cam Driver in No Time</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-tecno-camon-20-pro-5g-drfone-by-drfone-virtual-android/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On Tecno Camon 20 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-conquer-the-elements-ranking-7-waterproof-cams/"><u>In 2024, Conquer the Elements Ranking #7 Waterproof Cams</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-new-multiple-ways-how-to-remove-icloud-activation-lock-on-your-apple-iphone-6s-plus-by-drfone-ios/"><u>In 2024, New Multiple Ways How To Remove iCloud Activation Lock On your Apple iPhone 6s Plus</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-tips-and-tricks-for-setting-up-your-oneplus-ace-2-pro-phone-pattern-lock-by-drfone-android/"><u>In 2024, Tips and Tricks for Setting Up your OnePlus Ace 2 Pro Phone Pattern Lock</u></a></li>
-<li><a href="https://solve-info.techidaily.com/sofia-tarasova-expert-collaborator-in-randd-and-product-innovation/"><u>Sofia Tarasova - Expert Collaborator in R&D & Product Innovation</u></a></li>
-<li><a href="https://solve-info.techidaily.com/transformez-votre-interface-avec-le-nouveau-sdk-dabbyy-lance-un-outil-mobile-baptise-capture-pour-une-meilleure-ux/"><u>Transformez Votre Interface Avec Le Nouveau SDK D'ABBYY Lance : Un Outil Mobile Baptisé Capture Pour Une Meilleure UX</u></a></li>
-<li><a href="https://solve-info.techidaily.com/understanding-web-pages-optimizing-your-sites-content-and-structure/"><u>Understanding Web Pages: Optimizing Your Site's Content and Structure</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unleashing-potent-digital-advertising-solutions-with-cutting-edge-cookiebot-platforms/"><u>Unleashing Potent Digital Advertising Solutions with Cutting-Edge Cookiebot Platforms</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unraveling-the-mystery-how-map-books-connect-to-boosting-process-intelligence-insights-from-abbyy/"><u>Unraveling the Mystery: How Map Books Connect to Boosting Process Intelligence - Insights From ABBYY</u></a></li>
-<li><a href="https://solve-info.techidaily.com/utilizing-cookiebot-technology-for-enhanced-user-personalization-and-seo-success/"><u>Utilizing Cookiebot Technology for Enhanced User Personalization & SEO Success</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-techniques-to-broadcast-youtube-media-on-facebook-platforms/"><u>[New] 2024 Approved Techniques to Broadcast YouTube Media on Facebook Platforms</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-charting-trends-twitters-viral-videos-of-2023-analysis-for-2024/"><u>[New] Charting Trends Twitter’s Viral Videos of 2023 Analysis for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-10-must-know-iphone-photography-tips-today/"><u>[New] In 2024, 10 Must-Know iPhone Photography Tips Today</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-efficient-techniques-for-adobe-presenter-capture/"><u>[Updated] 2024 Approved Efficient Techniques for Adobe Presenter Capture</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-enhance-your-online-skills-a-guide-to-youtube-editing-via-sony-vegas/"><u>2024 Approved Enhance Your Online Skills A Guide to YouTube Editing via Sony Vegas</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-the-essential-ios-strategy-for-instagram-saving/"><u>2024 Approved The Essential iOS Strategy for Instagram Saving</u></a></li>
+<li><a href="https://win-exceptional.techidaily.com/au-mp3web-movavi/"><u>Au Mp3ファイルを簡単に変換する無料のWebサービス -Movavi</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhancing-your-site-with-cookiebot-personalized-analytics-and-retargeting-solutions/"><u>Enhancing Your Site with Cookiebot: Personalized Analytics & Retargeting Solutions</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhancing-your-sites-performance-through-advanced-analytics-tools/"><u>Enhancing Your Site's Performance Through Advanced Analytics Tools</u></a></li>
+<li><a href="https://solve-info.techidaily.com/erfolgreiche-digitale-strategien-fur-banken-nach-dem-wandel-implementierung-von-digital-twins-im-bereich-der-kredite/"><u>Erfolgreiche Digitale Strategien Für Banken Nach Dem Wandel – Implementierung Von Digital Twins Im Bereich Der Kredite</u></a></li>
+<li><a href="https://solve-info.techidaily.com/harness-the-power-of-cookiebot-for-enhanced-site-analytics-and-user-engagement/"><u>Harness the Power of Cookiebot for Enhanced Site Analytics & User Engagement</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-accelerate-your-streaming-career-utilizing-obs-capabilities/"><u>In 2024, Accelerate Your Streaming Career Utilizing OBS Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-fb-security-2fa-essentials-and-usage/"><u>Unlock FB Security: 2FA Essentials and Usage</u></a></li>
 </ul></div>
 

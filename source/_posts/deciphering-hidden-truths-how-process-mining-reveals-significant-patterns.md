@@ -1,7 +1,7 @@
 ---
 title: "Deciphering Hidden Truths: How Process Mining Reveals Significant Patterns"
-date: 2024-10-05T18:32:32.462Z
-updated: 2024-10-08T16:27:39.403Z
+date: 2024-10-13T23:51:02.276Z
+updated: 2024-10-15T00:46:24.499Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8a9761b8978fa146b9a567d40083be19a38cbff4b3b505bcb0e46f12fc854ef6.png
@@ -26,22 +26,22 @@ Senior Analyst and Operations Officer at **NelsonHall**
 ![Bruce Orcut 198X198](https://static2.abbyy.com/abbyycommedia/35353/bruce-orcut-198x198.png)
 
 <!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
-  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Bruce Orcutt
 
 Senior Vice President of Product Marketing at **ABBYY**
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Overview
 
@@ -67,30 +67,24 @@ Please note that progressive profiling is used on this form to incrementally col
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
-  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Thank you, enjoy your webinar!
 
 [![20 Can You Dig It 643X363](https://static4.abbyy.com/abbyycommedia/35356/20-can-you-dig-it-643x363.jpg)](https://www.youtube.com/watch?v=k-LkEY7mMkg) 
 
-<!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
@@ -157,18 +151,14 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-unlock-potential-in-social-media-storytelling-fb-slideshows/"><u>[New] In 2024, Unlock Potential in Social Media Storytelling FB Slideshows</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-beyond-the-lens-innovative-ideas-for-youtube-video-creation-for-2024/"><u>[Updated] Beyond the Lens Innovative Ideas for YouTube Video Creation for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-how-to-enhance-video-rankings-on-youtube-through-seo-for-2024/"><u>[Updated] How to Enhance Video Rankings on YouTube Through SEO for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/crafting-captivating-content-for-a-consistent-climb-in-subscribers/"><u>Crafting Captivating Content for a Consistent Climb in Subscribers</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-conversion-tracking-with-the-cookiebot-integration/"><u>Enhanced Conversion Tracking with the Cookiebot Integration</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-conversions-with-our-advanced-cookiebot-technology/"><u>Enhanced Conversions with Our Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-marketing-automation-with-cookiebot-technology/"><u>Enhanced Marketing Automation with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-marketing-insights-with-the-power-of-cookiebot-technology/"><u>Enhanced Marketing Insights with the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-user-experience-with-automated-ad-targeting-the-power-of-cookiebot-technology/"><u>Enhanced User Experience with Automated Ad Targeting: The Power of Cookiebot Technology</u></a></li>
-<li><a href="https://driver-download.techidaily.com/get-the-newest-amd-rx-navigate-to-the-google-search-engine-that-will-display-results-when-users-look-for-updated-drivers-on-their-pcs-running-windows-system45/"><u>Get the Newest AMD RX Navigate to the Google Search Engine that Will Display Results when Users Look for Updated Drivers on Their PCs Running Windows Systems.</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-can-motorola-moto-g34-5gmirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Motorola Moto G34 5GMirror Share to PC? | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-se-without-passcode-drfone-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone SE Without Passcode? | Dr.fone</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-maximize-impact-on-snapchat-with-these-15-strategies/"><u>In 2024, Maximize Impact on Snapchat With These 15 Strategies</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-spotting-instagrams-newly-deactivated-accounts/"><u>[Updated] 2024 Approved Spotting Instagram's Newly Deactivated Accounts</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-comprehensive-guide-unraveling-google-podcasts-app/"><u>[Updated] Comprehensive Guide Unraveling Google Podcasts App</u></a></li>
+<li><a href="https://solve-info.techidaily.com/elevate-your-digital-presence-with-cutting-edge-cookiebot-technology-solutions/"><u>Elevate Your Digital Presence with Cutting-Edge Cookiebot Technology Solutions</u></a></li>
+<li><a href="https://solve-info.techidaily.com/elevate-your-online-marketing-experience-the-magic-of-cookiebot-automation/"><u>Elevate Your Online Marketing: Experience the Magic of Cookiebot Automation</u></a></li>
+<li><a href="https://solve-info.techidaily.com/elevate-your-website-with-advanced-cookiebot-technology-solutions/"><u>Elevate Your Website with Advanced Cookiebot Technology Solutions</u></a></li>
+<li><a href="https://solve-info.techidaily.com/elevate-your-website-with-cookiebot-technology-solutions/"><u>Elevate Your Website with Cookiebot Technology Solutions</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-videos-on-infinix-hot-40-pro-by-fonelab-android-recover-video/"><u>How to restore wiped videos on Infinix Hot 40 Pro</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-boost-your-photography-game-complimentary-basics-plus-expandable-paid-lut-options/"><u>In 2024, Boost Your Photography Game Complimentary Basics + Expandable Paid LUT Options</u></a></li>
+<li><a href="https://windows11.techidaily.com/unlocking-windows-1111-discord-install-obstructions/"><u>Unlocking Windows 11/11 Discord Install Obstructions</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Nagarro Achieves a 60%% Cut in Bill Payment Cycle with ABBYY for Enhanced Customer Accessibility
-date: 2024-09-28T07:15:49.272Z
-updated: 2024-10-03T11:25:08.707Z
+date: 2024-10-13T16:51:37.974Z
+updated: 2024-10-15T00:24:58.123Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/2635526a9b4bc31b09f99f8ed1ec33a28f3bd1734d6693f161ca45fe2a6deac2.jpg
@@ -36,10 +36,10 @@ ABBYY Vantage ist eine IDP-Plattform, die die Automatisierung von Dokumentenproz
 ABBYY wurde von mehr als 10 Analystenfirmen als führend im Bereich IDP anerkannt, darunter auch als führend in der IDC MarketScape: Worldwide Intelligent Document Processing (IDP) 2023-2024\. Für weitere Informationen können [Sie den IDC-Bericht herunterladen](https://tools.techidaily.com/abbyy/products/).
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Über Nagarro
@@ -47,10 +47,10 @@ ABBYY wurde von mehr als 10 Analystenfirmen als führend im Bereich IDP anerkann
 Nagarro, ein weltweit führendes Unternehmen für Digital Engineering, unterstützt Kunden dabei, bewegliche, innovative, digital-first Unternehmen zu werden und dadurch auf ihren Märkten erfolgreich zu sein. Das Unternehmen zeichnet sich durch seinen unternehmerischen, agilen und globalen Charakter, seine CARING-Mentalität und seine „Fluidic Enterprise“-Vision aus. Nagarro beschäftigt über 18.000 Mitarbeitende und ist in 36 Ländern vertreten. Für weitere Informationen besuchen Sie bitte [www.nagarro.com](https://www.nagarro.com/en). Weitere Informationen über den [Invoice Scanner finden Sie hier](https://www.nagarro.com/en/services/erp/sap/add-ons/invoice-scanner).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Über ABBYY 
@@ -76,15 +76,18 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-mastering-the-art-of-monochrome-modification/"><u>[New] 2024 Approved Mastering the Art of Monochrome Modification</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-photographers-weigh-in-the-aurora-verdict/"><u>[Updated] In 2024, Photographers Weigh In The Aurora Verdict</u></a></li>
-<li><a href="https://solve-info.techidaily.com/die-geheimnisse-der-abbyy-software-aufgedeckt-in-rotterdams-modernem-kunstmuseum/"><u>Die Geheimnisse Der ABBYY-Software Aufgedeckt in Rotterdams Modernem Kunstmuseum</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/digital-distinction-design-molding-an-animated-profile/"><u>Digital Distinction Design Molding an Animated Profile</u></a></li>
-<li><a href="https://solve-info.techidaily.com/drive-more-visitors-using-the-power-of-cookiebot/"><u>Drive More Visitors Using the Power of Cookiebot</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-document-digitization-with-next-level-technology-the-abbyy-flexicapture-cloud-upgrade/"><u>Elevate Document Digitization with Next-Level Technology: The ABBYY FlexiCapture Cloud Upgrade</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-user-experience-using-cookiebot-analytics-technology/"><u>Elevate User Experience Using Cookiebot Analytics Technology</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-unlock-vivo-v29-pro-without-password-by-drfone-android-unlock-android-unlock/"><u>How to Unlock Vivo V29 Pro Without Password?</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On OnePlus Nord CE 3 5G | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-motorola-moto-g-stylus-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Motorola Moto G Stylus (2023) | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-transforming-your-footage-into-shareable-youtube-stories/"><u>[New] 2024 Approved Transforming Your Footage Into Shareable YouTube Stories</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-convert-with-precision-10-leading-tools-from-flv-to-youtube-platforms/"><u>[New] In 2024, Convert with Precision 10 Leading Tools From Flv to YouTube Platforms</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-master-youtube-management-a-detailed-plan-for-watch-later-and-playlists/"><u>[New] In 2024, Master YouTube Management A Detailed Plan for Watch Later and Playlists</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-master-the-art-of-discussion-in-google-meet-spaces/"><u>[Updated] 2024 Approved Master the Art of Discussion in Google Meet Spaces</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-deleted-photos-on-samsung-galaxy-s24-ultra-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Retrieve deleted photos on Samsung Galaxy S24 Ultra</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On OnePlus Nord CE 3 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-files-back-from-honor-70-lite-5g-by-fonelab-android-recover-data/"><u>Simple ways to get lost files back from Honor 70 Lite 5G</u></a></li>
+<li><a href="https://solve-info.techidaily.com/top-9-clippers-for-gamers-ultimate-list-of-gameplay-editing-tools/"><u>Top 9 Clippers for Gamers: Ultimate List of Gameplay Editing Tools</u></a></li>
+<li><a href="https://solve-info.techidaily.com/top-rated-batch-processing-video-compression-tools-best-options-available/"><u>Top-Rated Batch Processing Video Compression Tools: Best Options Available</u></a></li>
+<li><a href="https://solve-info.techidaily.com/transform-your-videos-comprehensive-tutorial-on-changing-ogm-to-mp4/"><u>Transform Your Videos: Comprehensive Tutorial on Changing OGM to MP4</u></a></li>
+<li><a href="https://solve-info.techidaily.com/trouble-free-guide-watching-dvd-movies-on-your-pc/"><u>Trouble-Free Guide: Watching DVD Movies on Your PC</u></a></li>
+<li><a href="https://solve-info.techidaily.com/trouble-free-techniques-for-adding-mkv-videos-into-sony-vegas/"><u>Trouble-Free Techniques for Adding MKV Videos Into Sony Vegas</u></a></li>
+<li><a href="https://solve-info.techidaily.com/troubleshooting-downloads-how-to-successfully-retrieve-abema-previously-abematv-streaming-content/"><u>Troubleshooting Downloads: How to Successfully Retrieve ABEMA (Previously AbemaTV) Streaming Content</u></a></li>
 </ul></div>
 

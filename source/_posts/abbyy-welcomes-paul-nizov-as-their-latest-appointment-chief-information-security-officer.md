@@ -1,7 +1,7 @@
 ---
 title: "ABBYY Welcomes Paul Nizov as Their Latest Appointment: Chief Information Security Officer"
-date: 2024-10-03T17:35:03.553Z
-updated: 2024-10-08T18:05:27.049Z
+date: 2024-10-12T21:09:48.221Z
+updated: 2024-10-14T20:27:34.900Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/66ccde26d86877f06eba74ce71d6ed3e3e1b37f9fff9b02e8a19618a5ac1ec1e.jpg
@@ -36,10 +36,10 @@ Paul has built and managed information and cyber security programs in sectors su
 Paul holds a Juris Doctor from the SMU Dedman School of Law, a Bachelor of Science in Electrical Engineering from the University of Texas at Dallas, and the following information security certifications: CISSP and CISM. Paul is also a U.S. military veteran, having served in the U.S. Navy as a Nuclear Submarine Officer. As part of his military service, Paul graduated from Naval Nuclear Power School in Charleston, South Carolina, and Naval Nuclear Prototype in Ballston Spa, New York.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### About ABBYY
@@ -49,10 +49,16 @@ ABBYY empowers organizations to gain a complete understanding of their business 
 ABBYY and the ABBYY Logo are either registered trademarks or trademarks of ABBYY Software Ltd. Other product names mentioned herein may be trademarks and/or registered trademarks of their respective owners and are hereby recognized.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYY Editorial Contact
@@ -60,10 +66,10 @@ ABBYY and the ABBYY Logo are either registered trademarks or trademarks of ABBYY
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Gina Ray, APR
@@ -90,22 +96,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-quick-and-easy-channels-personalize-your-youtube-url-now/"><u>[Updated] 2024 Approved Quick and Easy Channels Personalize Your YouTube URL Now!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/44cm44k144og44oq44gu55s76z2i6yyy55s75oml6acg44ks6kmz44gx44gp6kej6kqs77yb44cn/"><u>「サムバの画面録画手順を詳しく解説！」</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1726028846182-8/"><u>【無料】動画にメロディを付けるためのトップ8ソフトウェア選び方：専門家から学ぶ！</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-best-chuckle-inducing-edits-on-mobile-platforms/"><u>2024 Approved Best Chuckle-Inducing Edits on Mobile Platforms</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-best-internet-capture-devices/"><u>2024 Approved Best Internet Capture Devices</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-enhance-your-content-utilizing-the-green-screen-on-instagram/"><u>2024 Approved Enhance Your Content Utilizing the Green Screen on Instagram</u></a></li>
-<li><a href="https://solve-info.techidaily.com/3-effective-methods-for-downloading-blob-videos-a-step-by-step-guide/"><u>3 Effective Methods for Downloading Blob Videos: A Step-by-Step Guide</u></a></li>
-<li><a href="https://solve-info.techidaily.com/4-effective-methods-to-eliminate-audio-from-your-iphone-recorded-videos/"><u>4 Effective Methods to Eliminate Audio From Your iPhone Recorded Videos</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1726030243059-dvdmp4/"><u>無料DVDパス解除とMP4変換ガイド - ディスクからダウンロード</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/how-to-fix-when-your-nvidia-geforce-software-wont-start/"><u>How to Fix When Your NVIDIA GeForce Software Won't Start</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1726027651761-hp/"><u>HPラップトップマシンで効率的な動画編集テクニック</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/learn-how-to-setup-touch-typing-feature-on-your-windows-device/"><u>Learn How To Setup Touch Typing Feature on Your Windows Device</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-the-best-video-reverse-editors-online/"><u>New In 2024, The Best Video Reverse Editors Online</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/top-6-best-8k-cameras-for-2024/"><u>Top 6 Best 8K Cameras for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/uncomplicated-steps-to-record-instagrams-story-feed/"><u>Uncomplicated Steps to Record Instagram's Story Feed</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1726027258055-windows-and-mac/"><u>Windows & Macで動画の鏡像作成手順３つ</u></a></li>
-<li><a href="https://solve-info.techidaily.com/44or44k944kz44oz5zcr44gr44gr44gk44gz44gz44kbieoajoacgoawsoobruwlleeuupluswcppluse4ruocveodleodioocpuocpplusocouobqoodhuocrplusodiplusodgplusocrplusoajq/"><u>パソコン向けにおすすめ!「最新の動画圧縮ソフトウェアとテクニック」</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-top-15-gopro-mounts-and-tripods-for-2024/"><u>[New] Top 15 GoPro Mounts and Tripods for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-nanovid-recorder-analysis-with-replacements-for-2024/"><u>[Updated] NanoVid Recorder Analysis with Replacements for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-perfecting-your-ringtone-choices-on-an-iphone-for-2024/"><u>[Updated] Perfecting Your Ringtone Choices on an iPhone for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cutting-delivery-times-for-global-top-tier-brewery-karlstejn-group-with-advanced-abbyy-systems/"><u>Cutting Delivery Times for Global Top-Tier Brewery Karlstejn Group with Advanced ABBYY Systems</u></a></li>
+<li><a href="https://win-forum.techidaily.com/diy-file-security-master-the-art-of-password-protected-text-documents/"><u>DIY File Security: Master the Art of Password-Protected Text Documents</u></a></li>
+<li><a href="https://solve-info.techidaily.com/elevate-your-business-with-abbyy-flexicapture-for-a-digitally-advanced-future/"><u>Elevate Your Business with ABBYY FlexiCapture for a Digitally Advanced Future</u></a></li>
+<li><a href="https://solve-info.techidaily.com/experience-tailored-navigation-with-cookiebot-technology/"><u>Experience Tailored Navigation with Cookiebot Technology</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/in-2024-best-video-makers-with-music-for-android-and-iphone/"><u>In 2024, Best Video Makers with Music for Android and iPhone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/leveraging-cookiebot-solutions-boosting-online-traffic-and-conversion-rates/"><u>Leveraging Cookiebot Solutions: Boosting Online Traffic & Conversion Rates</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/mastering-the-power-of-gpt-4-your-complete-guide-to-embracing-microsofts-latest-innovation-in-ai/"><u>Mastering the Power of GPT-4: Your Complete Guide to Embracing Microsoft's Latest Innovation in AI</u></a></li>
+<li><a href="https://solve-info.techidaily.com/natasha-mann-leading-visionary-on-the-abbyy-board/"><u>Natasha Mann - Leading Visionary on the ABBYY Board</u></a></li>
+<li><a href="https://solve-info.techidaily.com/optimized-with-the-help-of-cookiebot-technology/"><u>Optimized with the Help of Cookiebot Technology</u></a></li>
+<li><a href="https://review-topics.techidaily.com/poco-data-recovery-recover-lost-data-from-poco-by-fonelab-android-recover-data/"><u>Poco Data Recovery – recover lost data from Poco</u></a></li>
 </ul></div>
 

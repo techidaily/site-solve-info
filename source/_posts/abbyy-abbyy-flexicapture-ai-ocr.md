@@ -1,7 +1,7 @@
 ---
 title: "ABBYYブログで解析: 効果的な帳票処理を可能にするABBYY FlexiCapture - AI OCRプラットフォームの革新"
-date: 2024-10-03T18:14:18.709Z
-updated: 2024-10-08T16:48:46.508Z
+date: 2024-10-08T20:34:03.365Z
+updated: 2024-10-14T18:39:34.189Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ae6df8d795ccb00d61125315956262434c01d350a9cd0692f6268b3c3a74de3f.jpg
@@ -43,13 +43,6 @@ ABBYY FlexiCaptureは、最大で以下のような構成を組むことが可�
 
 ![Processing CPU cores per pages](https://static1.abbyy.com/abbyycommedia/29914/flexicapture-rpa-image2-diagram.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 また、冗長化構成によりHA/DR (High Availability/Disaster Recovery)も実現可能となっています。
 
 ### 2\. セキュリティ
@@ -68,6 +61,13 @@ ABBYY FlexiCaptureは、エンタープライズ利用にとって必須要件�
 
 ![encryption for security](https://static1.abbyy.com/abbyycommedia/29916/image-4.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **\- アクセスレベル**
 
 認証によるアクセス
@@ -81,10 +81,10 @@ ABBYY FlexiCaptureは、エンタープライズ利用にとって必須要件�
 ![FlexiCapture ユーザーロール管理](https://static1.abbyy.com/abbyycommedia/29917/image-5.png)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. 様々なワークフローへの対応
@@ -93,22 +93,22 @@ ABBYY FlexiCaptureは、ビジネスにおける様々な業務フローに合�
 
 ![FlexiCapture 様々なワークフローへの対応](https://static1.abbyy.com/abbyycommedia/29918/image-6.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 例えば上記のようなビジネスプロセスを実現するため、以下のようにワークフローの順番を変更したり、追加、カスタマイズが可能となっています。
 
 ![FlexiCapture Sample Invoice ブロパティ](https://static1.abbyy.com/abbyycommedia/29919/image-7.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. 外部接続・連携
@@ -141,14 +141,14 @@ ABBYY FlexiCaptureについての概要、デモの依頼、お問い合わせ�
 
 ![ABBYY logo circle](https://static5.abbyy.com/abbyycommedia/29971/abbyy-logo-2021-blog-99x99.png)
 
-ABBYY Japan エンジニアリングチーム
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
+  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ABBYY Japan エンジニアリングチーム
 
 ### いいね！、シェア、再投稿
 
@@ -213,20 +213,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/n-2024-exploring-adsense-revenue-streams-on-youtube-for-every-1k-watcher/"><u>[New] In 2024, Exploring AdSense Revenue Streams on YouTube for Every 1K Watcher</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-ideal-no-ads-screencap-maker-for-phones/"><u>[New] In 2024, Ideal No-Ads Screencap Maker for Phones</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-from-jarring-cuts-to-elegant-edits-unlocking-inshots-transition-secrets/"><u>[Updated] 2024 Approved From Jarring Cuts to Elegant Edits Unlocking Inshot's Transition Secrets</u></a></li>
-<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-vivo-v30-pro-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On Vivo V30 Pro? Fix Now | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-at-handelsblatts-annual-conference-focus-on-banking-technology/"><u>ABBYY at Handelsblatt's Annual Conference - Focus on Banking Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-finereader-engine-12-ideal-ocr-sdk-for-virtual-and-cloud-environments-revealed/"><u>ABBYY FineReader Engine 12: Ideal OCR SDK for Virtual & Cloud Environments Revealed</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-solutions-mastering-photo-editing-barcode-scanning-and-social-media-integration-with-advanced-currency-tools/"><u>ABBYY Solutions: Mastering Photo Editing, Barcode Scanning & Social Media Integration with Advanced Currency Tools</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyy-welcomes-paul-nizov-as-their-latest-appointment-chief-information-security-officer/"><u>ABBYY Welcomes Paul Nizov as Their Latest Appointment: Chief Information Security Officer</u></a></li>
-<li><a href="https://solve-info.techidaily.com/abbyys-revolutionary-approach-zur-dokumentenverarbeitung-und-kategorisierung/"><u>ABBYY's Revolutionary Approach Zur Dokumentenverarbeitung Und Kategorisierung</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boost-efficiency-through-customized-artificial-intelligence-frameworks/"><u>Boost Efficiency Through Customized Artificial Intelligence Frameworks</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/chatgpt-as-your-companer-a-solution-to-loneliness-and-social-disconnection/"><u>ChatGPT as Your Companer: A Solution to Loneliness and Social Disconnection</u></a></li>
-<li><a href="https://win-able.techidaily.com/gameloops-gone-wrong-troubleshooting-and-fixes-for-stable-playtime-in-windows-1011/"><u>GameLoops Gone Wrong: Troubleshooting and Fixes for Stable Playtime in Windows 10/11</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-surging-channel-growth-with-optimal-video-hashes/"><u>In 2024, Surging Channel Growth with Optimal Video Hashes</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/tecnicas-de-edicao-rapida-com-cortes-no-adobe-after-effects-guia-detalhado-e-simples/"><u>Técnicas De Edição Rápida Com Cortes No Adobe After Effects – Guia Detalhado E Simples</u></a></li>
-<li><a href="https://games-able.techidaily.com/your-budget-friendly-journey-through-the-world-of-1440p-monitors/"><u>Your Budget-Friendly Journey Through the World of 1440P Monitors</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-crafting-a-compelling-narrative-a-key-to-more-viewers-and-subscribers/"><u>[Updated] Crafting a Compelling Narrative A Key to More Viewers and Subscribers</u></a></li>
+<li><a href="https://solve-info.techidaily.com/abbyys-innovative-approach-to-building-a-secure-future-via-advanced-automated-solutions/"><u>ABBYY's Innovative Approach to Building a Secure Future via Advanced Automated Solutions</u></a></li>
+<li><a href="https://solve-info.techidaily.com/advanced-ocr-and-data-capture-using-abyby-flexicapture-for-laserfiche-powerful-tools-from-abbyy-solutions/"><u>Advanced OCR and Data Capture Using ABYBY FlexiCapture for Laserfiche - Powerful Tools From ABBYY Solutions</u></a></li>
+<li><a href="https://solve-info.techidaily.com/boost-traffic-with-cookiebot-the-ultimate-seo-and-marketing-solution-for-modern-websites/"><u>Boost Traffic With Cookiebot: The Ultimate SEO and Marketing Solution for Modern Websites</u></a></li>
+<li><a href="https://solve-info.techidaily.com/boost-user-experience-and-data-insights-with-our-cookiebot-integration-technology/"><u>Boost User Experience & Data Insights with Our Cookiebot Integration Technology</u></a></li>
+<li><a href="https://solve-info.techidaily.com/boost-your-sites-performance-using-the-advanced-features-of-cookiebot/"><u>Boost Your Site's Performance Using the Advanced Features of Cookiebot</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/connect-with-friends-and-family-making-facetime-work-on-a-windows-desktop-or-laptop/"><u>Connect with Friends and Family: Making Facetime Work on a Windows Desktop or Laptop</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/control-question-who-manages-chatgpt-now-if-not-openai/"><u>Control Question: Who Manages ChatGPT Now, If Not OpenAI?</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-enabled-enhance-your-site-with-smart-data-tracking-solutions/"><u>Cookiebot-Enabled: Enhance Your Site with Smart Data Tracking Solutions</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/echoes-unleashed-exploring-sound-with-mac-for-2024/"><u>Echoes Unleashed Exploring Sound with Mac for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhance-your-application-with-ai-ocr-tech-join-the-abbyy-expert-talk/"><u>Enhance Your Application with AI OCR Tech: Join the ABBYY Expert Talk</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhanced-marketing-with-the-power-of-cookiebot-technology/"><u>Enhanced Marketing with the Power of Cookiebot Technology</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-htc-u23-pro-android-system-webview-crash-2024-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix HTC U23 Pro Android System Webview Crash 2024 Issue | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-access-your-apple-iphone-11-pro-max-when-you-forget-the-passcode-drfone-by-drfone-ios/"><u>How to Access Your Apple iPhone 11 Pro Max When You Forget the Passcode? | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/navigating-twitters-aspect-ratio-policies-for-2024/"><u>Navigating Twitter's Aspect Ratio Policies for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-6-social-media-outlets-boosting-business-revenue-for-2024/"><u>Top 6 Social Media Outlets Boosting Business Revenue for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/top-rated-no-cost-xvid-to-mp4-converter-software-simple-steps-for-windows-users/"><u>Top Rated No-Cost Xvid to Mp4 Converter Software - Simple Steps for Windows Users</u></a></li>
+<li><a href="https://solve-info.techidaily.com/visionary-executive-neil-murphy-guides-global-strategy-as-emea-channel-chief-and-svp-at-top-level-sales-position/"><u>Visionary Executive Neil Murphy Guides Global Strategy as EMEA Channel Chief and SVP at Top-Level Sales Position</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/windows-ticade-techniques-efficiently-deleting-temporary-files-and-browsing-history/"><u>Windows Ticade Techniques: Efficiently Deleting Temporary Files and Browsing History</u></a></li>
 </ul></div>
 

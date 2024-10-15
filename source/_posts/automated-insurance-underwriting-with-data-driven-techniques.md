@@ -1,7 +1,7 @@
 ---
 title: Automated Insurance Underwriting with Data-Driven Techniques
-date: 2024-10-04T19:07:29.978Z
-updated: 2024-10-08T18:20:15.284Z
+date: 2024-10-08T17:37:04.517Z
+updated: 2024-10-15T01:30:41.463Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b5e9ddde4e68e5c468b12c2fce264f22eb978dc955e335250b1f4d060c7be8f8.jpg
@@ -19,20 +19,27 @@ English
 
 ![01 Nophoto 198X198](https://static4.abbyy.com/abbyycommedia/25100/01-nophoto-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Marisa Murton
 
 Moderator, Founder, **Data Strategy as a Service**
 
 ![Eileenpotter 198X198](https://static4.abbyy.com/abbyycommedia/25121/logo-2021-90x27.svg) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Eileenpotter 198X198](https://static1.abbyy.com/abbyycommedia/35572/eileenpotter-198x198.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Eileen Potter
 
@@ -41,10 +48,17 @@ Solution Marketing Manager, Insurance, **ABBYY**
 ![01 Nophoto 198X198](https://static4.abbyy.com/abbyycommedia/25100/01-nophoto-198x198.png)
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
-  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Matthew Norris
@@ -53,20 +67,6 @@ Head of Digital Distribution UK and Europe, **Beazley**
 
 ![01 Nophoto 198X198](https://static4.abbyy.com/abbyycommedia/25100/01-nophoto-198x198.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Gareth Hemming
 
 Chief Distribution Officer at UK General Insurance, **Aviva**
@@ -74,10 +74,10 @@ Chief Distribution Officer at UK General Insurance, **Aviva**
 ![01 Nophoto 198X198](https://static4.abbyy.com/abbyycommedia/25100/01-nophoto-198x198.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### James Russell
@@ -105,10 +105,10 @@ All personal information collected via this method is under full scope of all pr
 [![Underwriting Innovation](https://static4.abbyy.com/abbyycommedia/34061/underwriting-innovation.jpg)](https://www.youtube.com/watch?v=lmoG6DELXcA) 
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
@@ -178,20 +178,21 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2023-how-to-post-twitter-videos-on-snapchat/"><u>[New] 2023 | How to Post Twitter Videos on Snapchat?</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-iphone-photography-wonders-capturing-surface-mirrors/"><u>[New] 2024 Approved IPhone Photography Wonders Capturing Surface Mirrors</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-animating-faces-the-guide-to-motion-blur-in-picsart/"><u>[Updated] 2024 Approved Animating Faces The Guide to Motion Blur in Picsart</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-audio-engagement-exploration-delving-into-the-world-of-podcasts-vs-youtube-for-2024/"><u>[Updated] Audio Engagement Exploration Delving Into the World of Podcasts Vs. YouTube for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-iphone-night-photography-step-by-step/"><u>[Updated] In 2024, IPhone Night Photography Step by Step</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-flash-dead-xiaomi-redmi-note-12t-pro-safely-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Flash Dead Xiaomi Redmi Note 12T Pro Safely | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-itel-p40-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Itel P40 | Dr.fone</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-subtitles-in-a-click-our-free-top-10-converter-picks/"><u>In 2024, Subtitles in a Click - Our Free, Top 10 Converter Picks</u></a></li>
-<li><a href="https://solve-info.techidaily.com/revolutionize-quick-cashflow-with-abbyys-mobile-ocr-sdk-for-instantaneous-loan-approvals/"><u>Revolutionize Quick Cashflow with ABBYY's Mobile OCR SDK for Instantaneous Loan Approvals!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/revolutionize-your-operations-the-power-of-digital-replicas-and-simulated-processes-for-business-advancement/"><u>Revolutionize Your Operations: The Power of Digital Replicas and Simulated Processes for Business Advancement</u></a></li>
-<li><a href="https://solve-info.techidaily.com/scott-opitz-transitions-to-key-leadership-roles-as-cto-and-cpo-at-dabbyy/"><u>Scott Opitz Transitions to Key Leadership Roles as CTO and CPO at D'Abbyy</u></a></li>
-<li><a href="https://solve-news.techidaily.com/top-13-skype-recording-tools-compatible-with-all-platforms-windows-mac-and-mobile/"><u>Top 13 Skype Recording Tools Compatible with All Platforms: Windows, Mac & Mobile</u></a></li>
-<li><a href="https://solve-info.techidaily.com/transform-your-iphone-photos-into-searchable-text-files-using-finereaders-powerful-ocr-technology/"><u>Transform Your iPhone Photos Into Searchable Text Files Using FineReader's Powerful OCR Technology</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unleash-potential-with-smart-cookie-technology-discover-your-sites-secret-weapon/"><u>Unleash Potential with Smart Cookie Technology: Discover Your Site's Secret Weapon!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unleash-the-potential-of-clever-automation-this-september-join-abbyys-enlightening-journey/"><u>Unleash the Potential of Clever Automation This September – Join ABBYY's Enlightening Journey</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-discover-the-top-free-platforms-for-youtube-ops/"><u>[New] 2024 Approved Discover the Top Free Platforms for YouTube Ops</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-top-3-affordable-switch-game-counterparts/"><u>[New] In 2024, Top 3 Affordable Switch Game Counterparts</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-troubleshoot-facebook-live-pause-strategies-for-smooth-broadcasts/"><u>[New] In 2024, Troubleshoot Facebook Live Pause Strategies for Smooth Broadcasts</u></a></li>
+<li><a href="https://solve-info.techidaily.com/jpeg/"><u>「JPEG画像の適切なサイズにコンバートしてディスク容量を減らす手順」</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-expert-tips-for-optimizing-your-srt-setup/"><u>2024 Approved Expert Tips for Optimizing Your SRT Setup</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-how-to-get-a-faster-live-streaming-on-periscope/"><u>2024 Approved How to Get a Faster Live Streaming on Periscope</u></a></li>
+<li><a href="https://solve-info.techidaily.com/guide-two-hassle-free-ways-to-insert-watermarks-into-youtube-content/"><u>Guide: Two Hassle-Free Ways to Insert Watermarks Into YouTube Content</u></a></li>
+<li><a href="https://solve-info.techidaily.com/how-to-successfully-play-mp4-videos-on-sony-playstation-5-with-easy-solutions/"><u>How to Successfully Play MP4 Videos on Sony PlayStation 5 with Easy Solutions!</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-real-time-screen-aspects-management-guide/"><u>In 2024, Real-Time Screen Aspects Management Guide</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-vivo-x-fold-2-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Vivo X Fold 2 | Dr.fone</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/mars-metropolis-mayhem-crash-landing-builders-create-whirlwind-spectacle/"><u>Mars Metropolis Mayhem: Crash-Landing Builders Create Whirlwind Spectacle</u></a></li>
+<li><a href="https://solve-info.techidaily.com/missing-page-alert-retrieved-with-ease-using-wonderfoxs-solutions/"><u>Missing Page Alert! Retrieved with Ease Using WonderFox's Solutions</u></a></li>
+<li><a href="https://solve-info.techidaily.com/obstop-5/"><u>OBSと連携し、最高の動画編集ソフトウェアをご紹介！Top 5リスト</u></a></li>
+<li><a href="https://solve-info.techidaily.com/protecting-private-viewing-how-to-enable-password-security-on-kodi-platform/"><u>Protecting Private Viewing: How To Enable Password Security on Kodi Platform</u></a></li>
+<li><a href="https://solve-info.techidaily.com/simple-steps-transforming-dv-videos-into-avi-format-on-your-pc/"><u>Simple Steps: Transforming DV Videos Into AVI Format on Your PC</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unveiling-apples-mac-os-evolution-a-detailed-insight-into-each-version/"><u>Unveiling Apple's Mac OS Evolution: A Detailed Insight Into Each Version</u></a></li>
 </ul></div>
 

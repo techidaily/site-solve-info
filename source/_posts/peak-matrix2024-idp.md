@@ -1,7 +1,7 @@
 ---
 title: アバビイ調査で優勝者を決める：エベレスト・コンソーシアムのPEAK Matrixリーダー指数2024 - IDP
-date: 2024-10-05T17:23:39.341Z
-updated: 2024-10-08T16:08:26.535Z
+date: 2024-10-13T01:19:12.780Z
+updated: 2024-10-14T22:51:54.789Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ac7b7d7eb1b61e878d4715837135fe97081096b41d9601e6ca5eb36f744ec4b7.jpg
@@ -14,10 +14,16 @@ thumbnail: https://thmb.techidaily.com/ac7b7d7eb1b61e878d4715837135fe97081096b41
 ## 6年連続6回目： エベレストグループ、PEAK Matrix®評価でABBYYをインテリジェント文書処理（IDP）製品のリーダーに選出
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYYは、エベレストグループの2024年度PEAK Matrix®評価で再びインテリジェント文書処理（IDP）製品 のリーダーに選ばれました。 
@@ -25,10 +31,10 @@ thumbnail: https://thmb.techidaily.com/ac7b7d7eb1b61e878d4715837135fe97081096b41
 ![PEAK_Matrix_2024_-_Intelligent_Document_Processing__IDP__-_ABBYY](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/resource-center/content-images/peak_matrix_2024_-_intelligent_document_processing__idp__-_abbyy.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 あらゆるインテリジェントオートメーションプラットフォームに統合可能な、業界唯一のローコード/ノーコードIDPプラットフォームであるABBYY Vantageを擁するABBYYは、その卓越したビジョンと能力、さらに市場への影響力が高く評価されています。Vantageは、ABBYY Marketplaceで提供される、ものの数分で使い始めることのできる事前構築済みのAIモデルを使用して、定型および非定型文書を処理する機能を備えています。 
@@ -42,10 +48,10 @@ ABBYYは、エベレストグループのインテリジェント文書処理（
 _**Vaibhav Bansal, Vice President, Everest Group**_
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## ABBYYにご関心をお寄せいただき、誠にありがとうございます。 
@@ -119,14 +125,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-the-art-of-minimizing-lag-with-additional-ram-for-minecraft/"><u>[New] The Art of Minimizing Lag with Additional RAM for Minecraft</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-unbeatable-6-apps-for-crafting-perfect-reels-on-instagram-for-2024/"><u>[New] Unbeatable 6 Apps for Crafting Perfect Reels on Instagram for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-boosting-youtube-videos-activating-av1-support/"><u>[Updated] 2024 Approved Boosting YouTube Videos Activating AV1 Support</u></a></li>
-<li><a href="https://solve-info.techidaily.com/3gppmp3-seo/"><u>「安全で高速・簡単な3GPPファイルのMP3への大容量変換ガイド – SEO向け最適化タイトル」</u></a></li>
-<li><a href="https://solve-info.techidaily.com/a-step-by-step-guide-to-embedding-audio-onto-video-clips-with-vlc-software/"><u>A Step-by-Step Guide to Embedding Audio Onto Video Clips with VLC Software</u></a></li>
-<li><a href="https://solve-info.techidaily.com/best-methods-to-reduce-size-of-mov-video-files-using-popular-compression-software-across-devices-and-services/"><u>Best Methods to Reduce Size of MOV Video Files Using Popular Compression Software Across Devices and Services</u></a></li>
-<li><a href="https://solve-info.techidaily.com/capcutwindows/"><u>CapCutアプリケーションでWindows上で動画劇場化マスタリー術</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-stepwise-approach-transform-fish-voices-on-pcs/"><u>In 2024, Stepwise Approach Transform Fish Voices on PCs</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/wmvmpeg-movavi/"><u>WMV/MPEG 파일을 원근 상호 의미 전송을 위해 인터넷 공간에서 무가스로 변환하기 - Movavi</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-the-fast-track-to-zooming-proficiency/"><u>[New] In 2024, The Fast Track to Zooming Proficiency</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-prime-photo-editing-screens-the-best-of-2024-unveiled/"><u>[New] Prime Photo Editing Screens - The Best of 2024 Unveiled</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-enhance-your-asmr-experience-with-top-tier-mics/"><u>[Updated] 2024 Approved Enhance Your ASMR Experience with Top-Tier Mics</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726028846182-8/"><u>【無料】動画にメロディを付けるためのトップ8ソフトウェア選び方：専門家から学ぶ！</u></a></li>
+<li><a href="https://games-able.techidaily.com/addressing-steams-faulty-game-loading-mechanism/"><u>Addressing Steam's Faulty Game Loading Mechanism</u></a></li>
+<li><a href="https://win-excellent.techidaily.com/all-in-one-strategies-for-ripping-burning-and-copying-audio-and-video-discs-dvds-and-cds/"><u>All-in-One Strategies for Ripping, Burning, and Copying Audio & Video Discs (DVDs & CDs)</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726026473894-bilibili/"><u>Bilibiliビデオでロゴを取り除くためのステップバイステップマニュアル</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/customize-your-live-streams-creating-unique-manycam-facial-overlays-from-scratch/"><u>Customize Your Live Streams: Creating Unique ManyCam Facial Overlays From Scratch</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726027651761-hp/"><u>HPラップトップマシンで効率的な動画編集テクニック</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-nokia-c22-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Snapchat Location Spoofer to Protect Your Privacy On Nokia C22? | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-from-zero-to-hero-creating-a-countdown-timer-in-fcpx/"><u>New From Zero to Hero Creating a Countdown Timer in FCPX</u></a></li>
+<li><a href="https://solve-info.techidaily.com/understanding-resolution-upgrades-does-true-4k-offer-significant-advantages-over-1080p/"><u>Understanding Resolution Upgrades: Does True 4K Offer Significant Advantages Over 1080P?</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726027258055-windows-and-mac/"><u>Windows & Macで動画の鏡像作成手順３つ</u></a></li>
+<li><a href="https://solve-info.techidaily.com/windows-11youtubesd/"><u>Windows 11でパソコンからYouTube音楽をSDカードへ転送するための完全ガイド</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1726026566647-3/"><u>ダウンロード無しで音声抽出: ムービーからのトラック3方法紹介</u></a></li>
 </ul></div>
 

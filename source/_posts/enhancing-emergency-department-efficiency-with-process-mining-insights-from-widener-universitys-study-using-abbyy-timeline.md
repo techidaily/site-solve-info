@@ -1,7 +1,7 @@
 ---
 title: "Enhancing Emergency Department Efficiency with Process Mining: Insights From Widener University's Study Using ABBYY Timeline"
-date: 2024-09-27T19:49:26.153Z
-updated: 2024-10-03T09:57:58.161Z
+date: 2024-10-07T21:26:16.471Z
+updated: 2024-10-14T22:48:26.319Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6050aa5ce58a3d916a0355d32e6800af8938ccf6ad706af2327feef0ddd5dc8b.jpg
@@ -64,16 +64,10 @@ Business Analytics BA, Marketing Minor, Widener University
 Norma Najera is currently a 2nd-year student at Widener University, expecting to graduate with a major in Analytics and a minor in Marketing, with a concentration in Data Analysis. I'm interested in taking any steps to combine my knowledge of both data analysis and marketing in my prospective professional career.
 
 <!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -139,20 +133,14 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-approaches.techidaily.com/new-unlocking-the-basics-kinetic-design-techniques/"><u>[New] Unlocking the Basics Kinetic Design Techniques</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-infusing-instagram-reels-with-tunes-and-narration/"><u>[Updated] 2024 Approved Infusing Instagram Reels with Tunes & Narration</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-high-performance-in-fb-video-streaming/"><u>[Updated] High Performance in FB Video Streaming</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-elevate-your-pc-best-8-video-capture-tools-for-windows-10/"><u>2024 Approved Elevate Your PC Best 8 Video Capture Tools for Windows 10</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cultural-communication-us-and-uk-styles/"><u>Cultural Communication: US & UK Styles</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-your-website-with-advanced-cookiebot-technology-solutions/"><u>Elevate Your Website with Advanced Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevate-your-website-with-cookiebot-technology-solutions/"><u>Elevate Your Website with Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/elevating-your-sites-potential-through-advanced-cookiebot-integration/"><u>Elevating Your Site's Potential Through Advanced Cookiebot Integration</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhance-your-analytics-and-personalization-with-our-cookiebot-solution/"><u>Enhance Your Analytics and Personalization with Our Cookiebot Solution!</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhance-your-digital-marketing-strategy-using-smart-tracking-technology-empowered-by-cookiebot-solutions/"><u>Enhance Your Digital Marketing Strategy Using Smart Tracking Technology – Empowered by Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-marketing-insights-and-control-with-the-innovative-cookiebot-system/"><u>Enhanced Marketing Insights and Control with the Innovative Cookiebot System</u></a></li>
-<li><a href="https://solve-info.techidaily.com/enhanced-site-personalization-with-the-power-of-cookiebot-technology/"><u>Enhanced Site Personalization with the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-nokia-c300-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Nokia C300? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-infinix-hot-30i-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Infinix Hot 30i | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/windows-10-mastery-how-to-get-best-deals-on-keys/"><u>Windows 10 Mastery: How to Get Best Deals on Keys</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-amazon-kindle-of-2019-your-must-have-guide-to-the-basic-e-book-reader/"><u>Affordable Amazon Kindle of 2019 - Your Must-Have Guide to the Basic E-Book Reader!</u></a></li>
+<li><a href="https://win-dash.techidaily.com/complete-set-of-drivers-for-your-hp-deskjet-3520-direct-download-page/"><u>Complete Set of Drivers for Your HP Deskjet 3520: Direct Download Page</u></a></li>
+<li><a href="https://solve-info.techidaily.com/download-your-own-portable-version-freeze-frame-edition-on-the-move-viewing/"><u>Download Your Own Portable Version: Freeze Frame Edition - On-the-Move Viewing</u></a></li>
+<li><a href="https://solve-info.techidaily.com/effortless-conversion-of-vob-video-files-to-avi-for-windows-users/"><u>Effortless Conversion of VOB Video Files to AVI for Windows Users</u></a></li>
+<li><a href="https://solve-info.techidaily.com/effortless-format-transformation-convert-3gp-videos-to-popular-file-types-mp4-avi-mkv-with-our-advanced-converter/"><u>Effortless Format Transformation: Convert 3GP Videos to Popular File Types (MP4, AVI, MKV) with Our Advanced Converter</u></a></li>
+<li><a href="https://solve-info.techidaily.com/guide-two-hassle-free-ways-to-insert-watermarks-into-youtube-content/"><u>Guide: Two Hassle-Free Ways to Insert Watermarks Into YouTube Content</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-gmail-password-on-tecno-spark-20-proplus-devices-by-drfone-android/"><u>How to Reset Gmail Password on Tecno Spark 20 Pro+ Devices</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-3-ways-to-fake-gps-without-root-on-xiaomi-redmi-note-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Fake GPS Without Root On Xiaomi Redmi Note 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unveiling-the-ultimate-collection-of-wireless-charger-picks-for-2e24-professional-evaluation-zdnet/"><u>Unveiling the Ultimate Collection of Wireless Charger Picks for 2E24: Professional Evaluation | ZDNET</u></a></li>
 </ul></div>
 
