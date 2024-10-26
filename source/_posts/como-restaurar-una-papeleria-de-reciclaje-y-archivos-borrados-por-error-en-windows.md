@@ -1,7 +1,7 @@
 ---
 title: Cómo Restaurar Una Papelería De Reciclaje Y Archivos Borrados Por Error en Windows
-date: 2024-10-18T16:02:12.306Z
-updated: 2024-10-20T16:01:20.902Z
+date: 2024-10-18T23:21:48.323Z
+updated: 2024-10-25T22:25:03.977Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/e6c4e66a053f4adf51b38aa148d1e7f1b0fe37b06c40a2dc84de8d83be8e3fd3.jpg
@@ -61,19 +61,6 @@ Toutes les opérations s'effectuent dans une interface intuitive, ce qui permet 
 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-logo-ab-32.svg)AOMEI Backupper
 
-<!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Meilleur logiciel de sauvegarde Windows gratuit pour usage personnel.
 
 [**Télécharger gratuiciel** Windows 11/10/8.1/8/7](https://tools.techidaily.com/ubackup/products/)
@@ -94,20 +81,27 @@ Tout d'abord, cliquez sur **Ajouter un dossier** ou **Ajouter un fichier** sur l
 
 [![ajouter un fichier ou un dossier](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/ajouter-dossier-fichier.png)
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Cliquez sur **Share/NAS** pour ouvrir la fenêtre suivante.
 
 [![share/nas](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/ouvrir.png)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
+  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Ensuite, cliquez sur **Ajouter un périphérique Share ou NAS**, saisissez le nom d'affichage, l'adresse IP, le nom d'utilisateur et le mot de passe pour connecter votre espace de stockage NAS Buffalo. Double-cliquez ensuite dessus dans le volet de gauche et sélectionnez ce que vous souhaitez sauvegarder dans la liste de droite.
 
 [![ajouter périphérique share ou nas](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/emplacement-reseau.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Étape 3.** Cliquez là où la flèche pointe et sélectionnez le disque externe préparé comme destination.
 
@@ -126,10 +120,10 @@ De plus, vous pouvez activer la notification par e-mail une fois la tâche termi
 [![options](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/options-sauvegarder/sauvegarde-options.png "AOMEI Email SMS Notification Settings")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Dernières réflexions sur l'utilitaire de sauvegarde Buffalo
@@ -148,16 +142,16 @@ Les informations fournies sont-elles utiles ? Votre vote compte beaucoup pour no
 
 ![Aurore](https://www.ubackup.com/assets/images/author/aurore.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Aurore](https://tools.techidaily.com/ubackup/products/) · Éditeur
 
 Éditrice senior d'AOMEI Technology qui rédige principalement des articles sur la sauvegarde, la synchronisation, le clonage et la restauration de l'ordinateur, tout dans le but de proposer des solutions simples aux utilisateurs pour protéger les données de leur ordinateur. Grâce à ses expertises informatiques, elle propose souvent des astuces très utiles.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Autres articles connexes
 
@@ -180,10 +174,10 @@ Les informations fournies sont-elles utiles ? Votre vote compte beaucoup pour no
 [Oui](https://tools.techidaily.com/ubackup/products/)[Non](https://tools.techidaily.com/ubackup/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Obtenez gratuitement AOMEI Backupper
@@ -195,10 +189,10 @@ Protégez toutes les données de votre ordinateur avec la sauvegarde, la synchro
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-secure-16.svg) 100% Propre & Sûr
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-medium-img-pc@2x.png)
@@ -218,22 +212,22 @@ Protégez toutes les données de votre ordinateur avec la sauvegarde, la synchro
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-peeling-back-layers-what-every-snapchat-emoji-hides/"><u>[New] Peeling Back Layers What Every Snapchat Emoji Hides</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-pushingpastthestatusquo-post-mycam-cams/"><u>[Updated] In 2024, PushingPastTheStatusQuo Post-MyCam Cams</u></a></li>
-<li><a href="https://solve-info.techidaily.com/come-rimuovere-completamente-la-memoria-ssd-nvme-dal-tuo-sistema-operativo-windows-11-metodo-sicuro-e-dettagliato/"><u>Come Rimuovere Completamente La Memoria SSD NVMe Dal Tuo Sistema Operativo Windows 11 - Metodo Sicuro E Dettagliato</u></a></li>
-<li><a href="https://solve-info.techidaily.com/comment-reprendre-acces-a-vos-fichiers-dune-carte-sd-blessee/"><u>Comment Reprendre Accès À Vos Fichiers D’Une Carte SD Blessée ?</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/firefox-pip-simplified-for-the-everyday-user-for-2024/"><u>Firefox PIP Simplified for the Everyday User for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-a-previously-synced-google-account-from-your-itel-p55-5g-by-drfone-android/"><u>In 2024, How to Remove a Previously Synced Google Account from Your Itel P55 5G</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-show-wi-fi-password-on-itel-s23plus-by-drfone-android/"><u>In 2024, How to Show Wi-Fi Password on Itel S23+</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-vivo-t2x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Vivo T2x 5G | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-lock-your-infinix-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>In 2024, Lock Your Infinix Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-understanding-facebooks-video-privacy-settings/"><u>In 2024, Understanding Facebook's Video Privacy Settings</u></a></li>
-<li><a href="https://solve-info.techidaily.com/passaggi-pratici-per-salvare-i-tuoi-contatti-messaggi-ed-attachments-da-outlook-guida-completa/"><u>Passaggi Pratici per Salvare I Tuoi Contatti, Messaggi Ed Attachments Da Outlook - Guida Completa</u></a></li>
-<li><a href="https://solve-info.techidaily.com/solving-the-problem-top-6-solutions-for-iphone-13s-portrait-mode-glitch/"><u>Solving the Problem: Top 6 Solutions for iPhone 13'S Portrait Mode Glitch</u></a></li>
-<li><a href="https://solve-info.techidaily.com/step-by-step-guide-successfully-performing-a-system-upgrade-from-windows-10-to-11/"><u>Step-by-Step Guide: Successfully Performing a System Upgrade From Windows 10 to 11</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/the-top-8-free-resources-for-3d-text-psds/"><u>The Top 8 Free Resources for 3D Text PSDs</u></a></li>
-<li><a href="https://solve-info.techidaily.com/toshiba-harddrive-scheuringherslag-voor-het-gezicht-6-hetblijvende-oplossingen/"><u>Toshiba Harddrive Scheuringherslag Voor Het Gezicht: 6 Hetblijvende Oplossingen</u></a></li>
-<li><a href="https://solve-info.techidaily.com/usb-sony/"><u>USBメモリから消えたデータを取り戻す - Sony製品用専用ガイド</u></a></li>
-<li><a href="https://solve-info.techidaily.com/wie-man-heic-bilder-von-google-photos-effektiv-in-das-verbreitetere-jpeg-format-konvertiert/"><u>Wie Man HEIC Bilder Von Google Photos Effektiv in Das Verbreitetere JPEG-Format Konvertiert</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-deciphering-the-art-of-voice-documentation-for-2024/"><u>[New] Deciphering the Art of Voice Documentation for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-the-ultimate-playbook-for-splitting-views-in-facebook-livestreams/"><u>[Updated] 2024 Approved The Ultimate Playbook for Splitting Views in Facebook Livestreams</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-chuckle-craft-ranking-the-top-10-memes-by-wow-factor/"><u>[Updated] Chuckle Craft Ranking the Top 10 Memes by Wow Factor</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-how-to-record-the-screen-with-adobe-captive/"><u>[Updated] How To Record The Screen With Adobe Captive</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-elevate-your-device-experience-with-smooth-screen-capture/"><u>[Updated] In 2024, Elevate Your Device Experience with Smooth Screen Capture</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-the-ultimate-path-to-perfected-morphvox-control/"><u>2024 Approved The Ultimate Path to Perfected MorphVOX Control</u></a></li>
+<li><a href="https://solve-info.techidaily.com/beheer-van-sekundaire-backups-voor-seagate-externe-hard-disks/"><u>Beheer Van Sekundaire Backups Voor Seagate Externe Hard Disks</u></a></li>
+<li><a href="https://solve-info.techidaily.com/comprehensive-synctoy-tutorial-for-windows-11-users-discover-the-topno-log-ins-and-costless-substitutes/"><u>Comprehensive SyncToy Tutorial for Windows 11 Users: Discover the Topno Log-Ins & Costless Substitutes</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/dont-panic-over-data-loss-resurrect-your-missing-iphone-photos-and-notes-using-stellar/"><u>Don't Panic Over Data Loss! Resurrect Your Missing iPhone Photos & Notes Using Stellar</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-i-transferred-messages-from-nubia-red-magic-8s-pro-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How I Transferred Messages from Nubia Red Magic 8S Pro to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/la-methode-la-plus-rapide-pour-transferer-des-fichiers-a-une-machine-virtuelle-hyper-v-un-guide-detaille/"><u>La Méthode La Plus Rapide Pour Transférer Des Fichiers À Une Machine Virtuelle Hyper-V : Un Guide Détaillé</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1728487010401-page-unavailable-error-code-404/"><u>Page Unavailable - Error Code 404</u></a></li>
+<li><a href="https://solve-info.techidaily.com/soluzioni-per-la-risoluzione-dei-problemi-con-le-cartelle-mancanti-in-windows-1011/"><u>Soluzioni per La Risoluzione Dei Problemi Con Le Cartelle Mancanti in Windows 10/11</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-perfect-strategy-to-insert-subtitles-into-mp4-clips-for-2024/"><u>The Perfect Strategy to Insert Subtitles Into MP4 Clips for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/top-3-no-cd-methods-for-securely-formatting-a-windows-7-hard-drive/"><u>Top 3 No-CD Methods for Securely Formatting a Windows 7 Hard Drive</u></a></li>
+<li><a href="https://solve-info.techidaily.com/troubleshooting-steps-for-missing-winload-efi-issue-in-windows-11-solution/"><u>Troubleshooting Steps for Missing Winload Efi Issue in Windows 11 (Solution)</u></a></li>
+<li><a href="https://solve-info.techidaily.com/upgrade-hurdles-demystified-overcoming-obstacles-preventing-your-transition-to-windows-11-version-21h2/"><u>Upgrade Hurdles Demystified: Overcoming Obstacles Preventing Your Transition to Windows 11 Version 21H2</u></a></li>
 </ul></div>
 
