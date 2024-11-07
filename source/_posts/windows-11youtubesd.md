@@ -1,7 +1,7 @@
 ---
 title: Windows 11でパソコンからYouTube音楽をSDカードへ転送するための完全ガイド
-date: 2024-10-19T16:05:38.834Z
-updated: 2024-10-20T16:09:08.012Z
+date: 2024-10-30T23:37:52.433Z
+updated: 2024-11-06T20:29:49.011Z
 categories:
   - WonderFox
 thumbnail: https://thmb.techidaily.com/fe155e10fd0f0b362a89d3816e5304905834b00a072a292f551331a265718bf7.jpg
@@ -24,6 +24,13 @@ Get the recommended free video editor for Windows 10 to have a try now!
 [\---How to Edit Videos with the Free Video Editor](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/)
 
 [FAQs about Windows 10 Built-in Video Editor](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Edit Videos with Windows 10 Built-in Video Editor
 
@@ -56,13 +63,6 @@ For more video editing functions, you just need to press the related icon to ope
 
 ![Edit Videos on Windows 10](https://www.videoconverterfactory.com/tips/imgs-self/how-to-edit-videos-on-windows-10/how-to-edit-videos-on-windows-10-13.webp) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Step 3\. Export Edited Video
 
 Once finished editing, you can click "**Finish video**", choose a video quality, and click "**Export**" to export the edited video.
@@ -88,26 +88,26 @@ Just install this Windows video editor on your PC and learn how to edit a video 
 [Free Download](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## \---How to Edit Videos with the Free Video Editor
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Step 1: Add the Source Video into the Program
 
 Launch _**Free HD Video Converter Factory**_ after installing it on your PC. Open the **Converter** window and click the **\+ Add Files** button in the upper right of the interface to import the video you want to edit. Alternatively, you can also hit the center **+** button or drag and drop the video file into the software.
 
 ![How to Edit Videos on Windows 10/11](https://www.videoconverterfactory.com/tips/imgs-self/how-to-edit-videos-on-windows-10/how-to-edit-videos-on-windows-10-1.webp) 
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Step 2: Edit Videos with Different Tools
 
@@ -135,6 +135,13 @@ Click the **Rotate** (**circle-shaped**) icon next to the scissor icon to enter 
 
 ![Free Video Editing Software for Windows 10/11](https://www.videoconverterfactory.com/tips/imgs-self/how-to-edit-videos-on-windows-10/how-to-edit-videos-on-windows-10-4.webp) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _**#4\. Crop the Video**_
 
 Enter the **Crop** window by clicking the fourth icon on the toolbar. It offers [two video cropping modes](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/) that allow you to freely drag the dotted box or manually input the resolution to select the crop area under **Free Aspect Ratio** or choose one common fixed aspect ratio from the drop-down list under **Fixed Aspect Ratio**. After that, you can also fine-tune the crop area for more accurate capture. Then click **OK** to go back.
@@ -147,25 +154,11 @@ Hit on the **Magic Wand** icon to open the **Effect** window and [add effects to
 
 ![How to Edit Videos on Windows 10 for Free](https://www.videoconverterfactory.com/tips/imgs-self/how-to-edit-videos-on-windows-10/how-to-edit-videos-on-windows-10-6.webp) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 _**#6\. Add Watermark to Video**_
 
 Click the **Stamper** icon to bring up the **Watermark** window. Here you can type in the text to [add text watermark](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/) and adjust the text font, size, etc. You can also [add the image watermark](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/) from the preset image or your local drive and adjust the shadow, opacity, and location of the added watermark. Then press **OK** to go back.
 
 ![How to Edit Videos on Laptop Windows 10/11](https://www.videoconverterfactory.com/tips/imgs-self/how-to-edit-videos-on-windows-10/how-to-edit-videos-on-windows-10-7.webp) 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 _**#7\. Edit the Video Metadata**_
 
@@ -187,24 +180,31 @@ Tips: Open the **Parameter settings** window, and you'll be able to modify the v
 
 ![Best Free Video Editor for Windows 10/11](https://www.videoconverterfactory.com/tips/imgs-self/how-to-edit-videos-on-windows-10/how-to-edit-videos-on-windows-10-10.webp) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 4: Start Exporting the Edited Video
 
 When everything is OK, specify a destination folder to save the output video by pressing the **inverted triangle** button on the bottom. Finally, hit the **Run** button to start exporting the video.
 
 ![How to Edit a Video on Windows 10/11](https://www.videoconverterfactory.com/tips/imgs-self/how-to-edit-videos-on-windows-10/how-to-edit-videos-on-windows-10-11.webp) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Multi-functional Free Video Editor
 
 Apart from the video editing and conversion features, Free HD Video Converter also enables you to download 8K/4K/2K/1080P/720P videos and music from 500+ popular sites. Download and experience it now!
 
 [Free Download Compatible with Windows 11/10/8.1/8/7/... 100% Clean & Safe](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/) [Free Download Compatible with Windows 11/10/8.1/8/7/... 100% Clean & Safe](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Final Words...
 
@@ -213,16 +213,10 @@ Above is all I want to share with you about how to edit videos on Windows 10 for
 ## FAQs about Windows 10 Built-in Video Editor
 
 <!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Q1\. Does Windows 10 have a video editing program?
@@ -248,10 +242,10 @@ How to Edit DVD Videos on Windows PC?
 ![WonderFox DVD Ripper Pro](https://www.videoconverterfactory.com/tips/img-autofit/single-ripperpro.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **WonderFox DVD Ripper Pro**
@@ -281,22 +275,22 @@ _\* Please do not use the DVD ripper to rip any copy-protected DVDs for commerci
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/updated-pioneering-programs-3d-animation-crafting-for-2024/"><u>[Updated] Pioneering Programs 3D Animation Crafting for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-unlocking-asmrs-secrets-for-optimal-wellness/"><u>[Updated] Unlocking ASMR's Secrets for Optimal Wellness</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-gif-hacks-for-iphone-users-storage-tips-and-playtime-tricks/"><u>2024 Approved GIF Hacks for iPhone Users Storage Tips and Playtime Tricks</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1728481188730-windows-1110-clonezilla/"><u>如何在 Windows 11/10 上成功进行系统备份，Clonezilla 和替代技术的分析</u></a></li>
-<li><a href="https://solve-info.techidaily.com/apple-musicipad/"><u>如何在不使用电脑的情况下，将Apple Music同步到你的iPad上</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-tecno-camon-20-premier-5g-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Tecno Camon 20 Premier 5G? | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/how-to-fix-an-unexpectedly-malfunctioning-sd-card-a-step-by-step-guide/"><u>How to Fix an Unexpectedly Malfunctioning SD Card – A Step-by-Step Guide</u></a></li>
-<li><a href="https://solve-info.techidaily.com/how-to-make-your-ssd-appear-again-on-windows-1011-using-four-proven-fixes/"><u>How To Make Your SSD Appear Again On Windows 10/11 Using Four Proven Fixes</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-samsung-galaxy-xcover-6-pro-tactical-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Samsung Galaxy XCover 6 Pro Tactical Edition | Dr.fone</u></a></li>
-<li><a href="https://driver-install.techidaily.com/lenovo-z50-70-updated-drivers-quickly-now/"><u>Lenovo Z50-70: Updated Drivers, Quickly Now</u></a></li>
-<li><a href="https://solve-info.techidaily.com/migrating-photo-collections-moving-picture-files-between-drives-on-windows-11/"><u>Migrating Photo Collections: Moving Picture Files Between Drives on Windows 11</u></a></li>
-<li><a href="https://solve-info.techidaily.com/ontheffingen-ongewenst-toegeweke-ruimte-op-usb-lijst-3-gestelde-strategieen/"><u>Ontheffingen Ongewenst Toegeweke Ruimte Op USB-Lijst: 3 Gestelde Strategieën</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-realme-11-5g-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Realme 11 5G | Dr.fone</u></a></li>
-<li><a href="https://win-blog.techidaily.com/resolve-your-zoom-call-display-glitches-a-comprehensive-guide-to-fixing-black-screens-on-pc/"><u>Resolve Your Zoom Call Display Glitches: A Comprehensive Guide to Fixing Black Screens on PC</u></a></li>
-<li><a href="https://solve-info.techidaily.com/ssd-sd/"><u>SSDへの容易なデータ移行: SDカードからの手順</u></a></li>
-<li><a href="https://change-location.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Samsung Galaxy A14 5G | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/windows-10-update-impact-on-data-risque-de-suppression-effectuee-automatiquement/"><u>Windows 10 Update Impact on Data: Risque De Suppression Effectuée Automatiquement?</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-expert-curated-selection-of-best-ps3-simulators-pc-edition/"><u>[New] In 2024, Expert-Curated Selection of Best PS3 Simulators (PC Edition)</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-brain-benders-await-at-the-best-room-sanctuaries/"><u>[Updated] Brain Benders Await at the Best Room Sanctuaries</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-next-gen-portable-play-top-gba-on-android/"><u>[Updated] Next-Gen Portable Play Top GBA on Android</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/download-tiktoks-like-a-pro-the-5-best-software-picks-for-pc-and-web-usage/"><u>Download TikToks Like a Pro: The 5 Best Software Picks for PC & Web Usage</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-the-perfect-sound-free-download-and-setup-of-the-focusrite-scarlett-2i2-for-windows-enthusiasts/"><u>Get the Perfect Sound - [Free] Download and Setup of the Focusrite Scarlett 2I2 for Windows Enthusiasts</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-bypass-the-required-apple-store-verification-for-iphone-15-drfone-by-drfone-ios/"><u>How To Bypass the Required Apple Store Verification For iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/step-by-step-guide-to-transforming-windows-media-files-into-mp4-players/"><u>Step-by-Step Guide to Transforming Windows Media Files Into MP4 Players</u></a></li>
+<li><a href="https://solve-info.techidaily.com/step-by-step-tutorial-on-recording-google-duo-sessions-including-sound/"><u>Step-by-Step Tutorial on Recording Google Duo Sessions Including Sound</u></a></li>
+<li><a href="https://solve-info.techidaily.com/stream-recording-guide-efficiently-archiving-twitch-broadcasts-from-your-desktop-computer/"><u>Stream Recording Guide: Efficiently Archiving Twitch Broadcasts From Your Desktop Computer</u></a></li>
+<li><a href="https://solve-info.techidaily.com/successful-solutions-for-pro-aax-to-mp3-audio-converter-apps/"><u>Successful Solutions for Pro AAX to MP3 Audio Converter Apps</u></a></li>
+<li><a href="https://driver-download.techidaily.com/the-comprehensive-step-by-step-to-installing-amd-radeon-rx-590-drivers-on-pcs-with-windows-operating-system/"><u>The Comprehensive Step-by-Step to Installing AMD Radeon RX 590 Drivers on PCs with Windows Operating System</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-windows-11-conversion-guidepost-post-windows-10-techniques/"><u>The Windows 11 Conversion Guidepost: Post-Windows 10 Techniques</u></a></li>
+<li><a href="https://solve-info.techidaily.com/ultimate-guide-to-the-most-efficient-dvd-to-mp4-converters-on-windows-11-2024-edition/"><u>Ultimate Guide to the Most Efficient DVD to MP4 Converters on Windows 11 - 2024 Edition!</u></a></li>
+<li><a href="https://solve-info.techidaily.com/ultimate-guide-setting-up-adultflix-plugin-for-kodi-leia-and-krypton-edition/"><u>Ultimate Guide: Setting Up AdultFlix Plugin for Kodi - Leia & Krypton Edition</u></a></li>
+<li><a href="https://solve-info.techidaily.com/ultimate-kodi-tutorial-series-mastering-your-media-experience-from-pages-1-6/"><u>Ultimate Kodi Tutorial Series: Mastering Your Media Experience From Pages 1-6</u></a></li>
+<li><a href="https://win11.techidaily.com/unleash-more-disk-room-in-windows-here-are-the-7-best-aids/"><u>Unleash More Disk Room in Windows - Here Are the 7 Best Aids</u></a></li>
+<li><a href="https://solve-info.techidaily.com/wonderfox-dvd-ripper-effortless-digital-movie-downloads/"><u>WonderFox DVD Ripper - Effortless Digital Movie Downloads</u></a></li>
 </ul></div>
 
