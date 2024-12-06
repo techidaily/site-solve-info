@@ -1,7 +1,7 @@
 ---
 title: "Yearly Milestones Unveiled: A Look Back at PCDJ in 2015"
-date: 2024-11-23T16:27:52.937Z
-updated: 2024-11-26T16:03:50.039Z
+date: 2024-12-03T11:55:16.317Z
+updated: 2024-12-06T00:34:10.796Z
 tags:
   - product
 categories:
@@ -35,7 +35,7 @@ But let’s be clear: In our business **if you’re not constantly innovating an
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **DJ Software: Launch of DEX 3.5 and RED Mobile 3.5**
@@ -45,7 +45,7 @@ DEX 3 launched a little over a year ago. It was a total re-write of the previous
 [LEARN MORE ABOUT DEX 3 ![DEX 3 4-Deck Video Mixing Software](https://i1.wp.com/pcdj.com/wp-content/uploads/2015/11/dex35withvideo-new-banner.jpg?fit=300%2C169&ssl=1 "DEX 3 Video Mixing Software")](https://tools.techidaily.com/pcdj/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 DEX 3.5 and RED Mobile 3.5 are significantly more polished now, and sport new versatile and modern skins (GUI) with various modes. Both upgrades come with Pulselocker streaming baked in, providing users online/offline access to a catalog of 44+ million tracks in all genres, from major and independent labels. Pulselocker integration is a worlds-first for DJ software, a commercially legal subscription built just for DJs.
@@ -53,7 +53,7 @@ DEX 3.5 and RED Mobile 3.5 are significantly more polished now, and sport new ve
 [LEARN MORE ABOUT PULSELOCKER ![pcdj plus pulselocker press release](https://i2.wp.com/pcdj.com/wp-content/uploads/2015/12/pcdjpulslocker-pressrelease.jpg?fit=300%2C169&ssl=1 "pulselocker and pcdj press release")](https://tools.techidaily.com/pcdj/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Two weeks ago we [launched DEX 3.5.5 with automatic key detection](https://tools.techidaily.com/pcdj/products/), allowing users to mix tracks harmonically without key-clashing. The BPM engine has also been upgraded, so all beat-aware functions are more precise.
@@ -63,7 +63,7 @@ A few additional DJ controllers from top brands such as Numark, Pioneer DJ, Deno
 Keep our blog bookmarked, as we have upgrades and features on the way that we think DJs are going to love.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Karaoke Software: Karaoki Updates and KaraoQ360**
@@ -83,7 +83,7 @@ Again, stay tuned into our blog as more info on KaraoQ and KaraoQ360 will soon b
 _We’d love to hear from you – what would you like to see from PCDJ in 2016? Leave your comments and suggestions below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -105,24 +105,18 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2015/12/yearinreview2015-coverimag
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-optimize-accessibility-top-free-speech-conversion-tools-for-macos/"><u>[New] In 2024, Optimize Accessibility Top Free Speech Conversion Tools for MacOS</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-quick-fix-for-background-removal-in-figma-projects/"><u>[Updated] In 2024, Quick Fix for Background Removal in Figma Projects</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-obs-utilization-comprehensive-gameplay-recording/"><u>2024 Approved OBS Utilization Comprehensive Gameplay Recording</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/basic-approach-adjust-sea-creature-tones-in-windows-os/"><u>Basic Approach Adjust Sea Creature Tones in Windows OS</u></a></li>
-<li><a href="https://solve-info.techidaily.com/clonezilla-image-aufschliessen-fur-individuelle-datenwiedergutmachung-drei-effiziente-techniken-erklart/"><u>Clonezilla-Image Aufschließen Für Individuelle Datenwiedergutmachung – Drei Effiziente Techniken Erklärt</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cloud-freie-datentransferlosungen-ubertragen-von-dateien-zwischen-zwei-pcs-mit-kostenloser-software/"><u>Cloud-Freie Datentransferlösungen: Übertragen Von Dateien Zwischen Zwei PCs Mit Kostenloser Software</u></a></li>
-<li><a href="https://solve-info.techidaily.com/comment-migrater-son-systeme-dexploitation-de-windows-10-a-windows-11-et-le-configurer-sur-un-ssd/"><u>Comment Migrater Son Système D'Exploitation De Windows 10 À Windows 11 Et Le Configurer Sur Un SSD</u></a></li>
-<li><a href="https://solve-info.techidaily.com/complete-step-by-step-tutorial-on-saving-your-distribution-group-in-microsoft-outlook/"><u>Complete Step-by-Step Tutorial on Saving Your Distribution Group in Microsoft Outlook</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/te-reach-optimal-strategies-for-crafting-youtube-titles-and-tags/"><u>Elevate Reach Optimal Strategies for Crafting YouTube Titles & Tags</u></a></li>
-<li><a href="https://solve-info.techidaily.com/guida-passo-passo-al-backup-della-posta-elettronica-di-outlook-utilizzando-un-hard-disk-esterno-due-tecniche-efficaci/"><u>Guida Passo-Passo Al Backup Della Posta Elettronica Di Outlook Utilizzando Un Hard Disk Esterno (Due Tecniche Efficaci)</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-samsung-galaxy-xcover-7-phone-without-google-account-by-drfone-android/"><u>How to Unlock Samsung Galaxy XCover 7 Phone without Google Account?</u></a></li>
-<li><a href="https://solve-info.techidaily.com/metodi-facili-e-veloci-per-il-salvataggio-delle-email-su-office-365/"><u>Metodi Facili E Veloci per Il Salvataggio Delle Email Su Office 365</u></a></li>
-<li><a href="https://win-answers.techidaily.com/overcoming-launch-errors-expert-advice-for-starting-up-farming-simulator-22/"><u>Overcoming Launch Errors: Expert Advice for Starting Up Farming Simulator 22</u></a></li>
-<li><a href="https://solve-info.techidaily.com/step-by-step-instructions-for-transferring-imap-mailboxes-to-personal-storage-table-format-pst/"><u>Step-by-Step Instructions for Transferring IMAP Mailboxes to Personal Storage Table Format (PST)</u></a></li>
-<li><a href="https://solve-info.techidaily.com/top-two-methods-for-securing-your-active-directory-in-2016/"><u>Top Two Methods for Securing Your Active Directory in 2016</u></a></li>
-<li><a href="https://solve-info.techidaily.com/transferring-images-from-your-iphone-16-to-computer-the-best-easy-steps/"><u>Transferring Images From Your iPhone 16 to Computer: The Best, Easy Steps</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/transform-tarnished-footage-into-flawless-viewing-with-grau-gmbh-software/"><u>Transform Tarnished Footage Into Flawless Viewing with Grau GmbH Software</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/troubleshooting-and-fixing-h265-playback-problems-on-your-roku-device-step-by-step-guide/"><u>Troubleshooting and Fixing H.265 Playback Problems on Your Roku Device - Step-by-Step Guide</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-elevate-your-videos-pro-tips-for-adding-awesome-effects/"><u>Updated In 2024, Elevate Your Videos Pro Tips for Adding Awesome Effects</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-a-step-by-step-guide-for-effective-use-of-luts-in-adobe-suite/"><u>[New] 2024 Approved A Step-by-Step Guide for Effective Use of LUTs in Adobe Suite</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-ergonomic-hold-techniques-for-clarity/"><u>[New] Ergonomic Hold Techniques for Clarity</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/amazon-flash-sale-high-speed-perfection-with-the-16-in-1-thunderbolt-hub-get-an-immediate-70-discount-zdnet-tech/"><u>Amazon Flash Sale: High-Speed Perfection with the 16-in-1 Thunderbolt Hub - Get an Immediate $70 Discount | ZDNet Tech</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-honor-v-purse-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Honor V Purse | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/decouvrez-les-12-meilleures-applications-denregistrement-voip-pour-skype-sous-mac-selectionne-par-movavi/"><u>Découvrez Les 12 Meilleures Applications D'enregistrement VoIP Pour Skype Sous Mac, Sélectionné Par Movavi</u></a></li>
+<li><a href="https://solve-info.techidaily.com/how-to-recognize-problems-with-your-scanners-drivers-according-to-yl-software-professionals/"><u>How to Recognize Problems with Your Scanner's Drivers, According to YL Software Professionals</u></a></li>
+<li><a href="https://solve-info.techidaily.com/identifying-and-troubleshooting-gpu-problems-a-guide-by-yl-computing/"><u>Identifying and Troubleshooting GPU Problems: A Guide by YL Computing</u></a></li>
+<li><a href="https://driver-download.techidaily.com/install-your-epson-stylus-nx420-printer-on-windows-downloads-for-version-7-8-and-10/"><u>Install Your Epson Stylus NX420 Printer on Windows: Downloads for Version 7, 8 & 10</u></a></li>
+<li><a href="https://solve-info.techidaily.com/optimize-computer-efficiency-in-minutes-step-by-step-strategies-for-a-swift-and-clean-system-by-yl-software/"><u>Optimize Computer Efficiency in Minutes: Step-by-Step Strategies for a Swift and Clean System by YL Software</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/organic-scenes-essential-free-templates-to-elevate-filmmaking-art-for-2024/"><u>Organic Scenes Essential, Free Templates to Elevate Filmmaking Art for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/reliability-of-windows-defender-scans-insights-from-yl-computings-expert-analysis/"><u>Reliability of Windows Defender Scans: Insights From YL Computing's Expert Analysis</u></a></li>
+<li><a href="https://solve-info.techidaily.com/reviving-lost-data-tips-for-restoring-forever-deleted-files-on-your-windows-machine-by-professionals-at-yl-software/"><u>Reviving Lost Data: Tips for Restoring Forever Deleted Files on Your Windows Machine by Professionals at YL Software</u></a></li>
+<li><a href="https://solve-info.techidaily.com/step-by-step-guide-restoring-your-computers-hardware-firmware-after-malfunctions-by-yl-tech-solutions/"><u>Step-by-Step Guide: Restoring Your Computer's Hardware Firmware After Malfunctions - By YL Tech Solutions</u></a></li>
 </ul></div>
 
