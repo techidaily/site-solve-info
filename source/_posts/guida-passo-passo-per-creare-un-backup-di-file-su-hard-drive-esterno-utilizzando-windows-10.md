@@ -1,7 +1,7 @@
 ---
 title: Guida Passo-Passo per Creare Un Backup Di File Su Hard Drive Esterno Utilizzando Windows 10
-date: 2024-11-25T19:04:51.008Z
-updated: 2024-11-26T17:35:23.388Z
+date: 2024-12-19T22:13:20.574Z
+updated: 2024-12-26T21:50:01.148Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/8eee5494b28afc7aa3f86c9129d566065bf2c03daf39ea12e0a8a3e03f2e1950.jpg
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/8eee5494b28afc7aa3f86c9129d566065bf2c03da
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Risolvere l'Impossibilità di Digitare nella Barra di Ricerca su Windows 10: Guida Completa
 
@@ -53,6 +49,14 @@ Incontrare il problema di non poter digitare nella barra di ricerca di Windows 1
 
 [![non riesco a digitare nella barra di ricerca di windows 10](https://www.ubackup.com/it/articoli/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/it/others/log/can-t-type-in-search-bar-windows-10.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Capire il Problema di Non Poter Digitare nella Barra di Ricerca su Windows 10
 
 La barra di ricerca di Windows 10 funge da strumento centrale per un accesso rapido alle app, ai file e alle impostazioni. Quando ti ritrovi impossibilitato a digitare in questa funzione essenziale, sorgono preoccupazioni riguardo alla funzionalità del sistema e alla produttività. Le possibili cause di questo problema sono:
@@ -69,17 +73,9 @@ La corruzione dei file di sistema può influenzare la funzionalità della barra 
 
 Alcune applicazioni di terze parti o conflitti software potrebbero interferire con il corretto funzionamento della barra di ricerca.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Soluzioni: Ripristinare la Funzionalità della Barra di Ricerca di Windows 10
 
 Ora, esploriamo cinque soluzioni per affrontare il problema di non poter digitare nulla nella casella di ricerca su Windows 10, garantendo un'esperienza utente fluida.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Soluzione 1: Riavvio dei Servizi Cortana e Ricerca di Windows
 
@@ -98,10 +94,6 @@ Fai clic con il tasto destro su entrambi Cortana ed Esplora file di Windows e sc
 Passo 4\. Prova a Digitare nella Barra di Ricerca:
 
 Prova a digitare nella barra di ricerca dopo aver riavviato i servizi.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Soluzione 2: Esegui il Risolutore dei Problemi di Ricerca e Indicizzazione
 
@@ -122,7 +114,7 @@ Passo 4\. Segui le Istruzioni Visualizzate:
 Segui le istruzioni visualizzate per completare il processo di risoluzione dei problemi e verifica se il problema di non poter digitare nella barra di ricerca di Windows è risolto.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Soluzione 3: Ricostruisci le Opzioni di Indicizzazione
@@ -183,6 +175,10 @@ Passo 6\. Testa la Barra di Ricerca:
 
 Nel nuovo account utente, testa la funzionalità della barra di ricerca. Se funziona, suggerisce che il problema potrebbe essere specifico del tuo account utente originale.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Utilizza AOMEI Backupper per la Protezione del Sistema su Windows 10
 
 Assicurarsi la protezione dei dati è cruciale durante la risoluzione dei problemi. Considera l'utilizzo di AOMEI Backupper per creare un backup del sistema di Windows 10.
@@ -203,6 +199,10 @@ Passo 4\. Avvia il Backup:
 
 Clicca su "Avvia Backup" per creare un backup completo del tuo sistema Windows 10.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Domande Frequenti su Impossibilità di Digitare nella Barra di Ricerca su Windows 10
 
 #1: Perché la mia barra di ricerca di Windows 10 non risponde alla digitazione?
@@ -216,6 +216,10 @@ La ricostruzione dell'indice non influisce sui file, ma migliora la funzionalit�
 #3: AOMEI Backupper può ripristinare il mio sistema se necessario?
 
 Sì, AOMEI Backupper fornisce una soluzione affidabile per il ripristino del sistema in caso di problemi.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Consigli per un'Operazione Fluida di Windows 10
 
@@ -237,10 +241,6 @@ Le informazioni fornite sono state utili? Il tuo voto è importante per noi!
 
 ![Aira](https://www.ubackup.com/assets/images/author/aira.jpg) 
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 [Aira](https://tools.techidaily.com/ubackup/products/) · Editore
 
 Aira è l'editore tecnico di AOMEI, principalmente responsabile di AOMEI Backupper. Le piace aiutare gli utenti con domande su backup e ripristino del computer, clonazione del disco, sincronizzazione e altro ancora. Ha scritto molti articoli su AOMEI Backupper. Nel tempo libero ama fare sport e guardare film. Come un redattore professionale di AOMEI. Aira sarà felice di aiutarti.
@@ -251,6 +251,10 @@ Le informazioni fornite sono state utili? Il tuo voto è importante per noi!
 
 [Sì](https://tools.techidaily.com/ubackup/products/)[No](https://tools.techidaily.com/ubackup/products/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Scarica Gratis AOMEI Backupper Ora
 
 Proteggi tutti i dati del tuo computer con backup, sincronizzazione e clonazione.
@@ -260,10 +264,6 @@ Proteggi tutti i dati del tuo computer con backup, sincronizzazione e clonazione
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-secure-16.svg) 100% Pulito e Sicuro
 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-medium-img-pc@2x.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -280,19 +280,22 @@ Proteggi tutti i dati del tuo computer con backup, sincronizzazione e clonazione
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-superior-editors-for-stellar-webcam-videos/"><u>[New] Superior Editors for Stellar Webcam Videos</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-capture-your-gaming-adventures-with-steam-for-2024/"><u>[Updated] Capture Your Gaming Adventures with Steam for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-take-control-a-compreeved-guide-to-iphoneipad-screen-recordings-on-youtube/"><u>[Updated] Take Control A Compreeved Guide to iPhone/iPad Screen Recordings on YouTube</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-financial-anatomy-of-youtube-shorts-money-splitting-for-2024/"><u>[Updated] The Financial Anatomy of YouTube Shorts Money Splitting for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/jpeg/"><u>「JPEG画像の適切なサイズにコンバートしてディスク容量を減らす手順」</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/choosing-the-right-8k-tv-for-your-home-insights-from-a-consumer-electronics-specialist-on-what-you-need-to-know-before-buying/"><u>Choosing the Right 8K TV for Your Home: Insights From a Consumer Electronics Specialist on What You Need to Know Before Buying</u></a></li>
-<li><a href="https://solve-info.techidaily.com/effortless-conversion-of-vob-video-files-to-avi-for-windows-users/"><u>Effortless Conversion of VOB Video Files to AVI for Windows Users</u></a></li>
-<li><a href="https://solve-info.techidaily.com/effortless-format-transformation-convert-3gp-videos-to-popular-file-types-mp4-avi-mkv-with-our-advanced-converter/"><u>Effortless Format Transformation: Convert 3GP Videos to Popular File Types (MP4, AVI, MKV) with Our Advanced Converter</u></a></li>
-<li><a href="https://solve-info.techidaily.com/guide-two-hassle-free-ways-to-insert-watermarks-into-youtube-content/"><u>Guide: Two Hassle-Free Ways to Insert Watermarks Into YouTube Content</u></a></li>
-<li><a href="https://solve-info.techidaily.com/how-to-successfully-play-mp4-videos-on-sony-playstation-5-with-easy-solutions/"><u>How to Successfully Play MP4 Videos on Sony PlayStation 5 with Easy Solutions!</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Honor 80 Pro Straight Screen Edition? | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/missing-page-alert-retrieved-with-ease-using-wonderfoxs-solutions/"><u>Missing Page Alert! Retrieved with Ease Using WonderFox's Solutions</u></a></li>
-<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-photos-from-samsung-galaxy-s23-fe-by-fonelab-android-recover-photos/"><u>Possible solutions to restore deleted photos from Samsung Galaxy S23 FE.</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/unbeatable-oneplus-promotions-for-the-holiday-sales-season/"><u>Unbeatable OnePlus Promotions for the Holiday Sales Season</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-swift-windows-document-reviewing-techniques/"><u>[New] Swift Windows Document Reviewing Techniques</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1-seamless-migration-shifting-your-gaming-achievements-from-an-old-apple-id-to-a-new-one/"><u>1. Seamless Migration: Shifting Your Gaming Achievements From an Old Apple ID to a New One</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1728469903023-windows-11/"><u>通过命令提示符轻松恢复 Windows 11原始配置: 简单快速的两种方法</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/a-step-by-step-guide-for-effective-use-of-luts-in-adobe-suite-for-2024/"><u>A Step-by-Step Guide for Effective Use of LUTs in Adobe Suite for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/acronis-true-image-overcomes-hurdles-in-cloning-process-solutions-unveiled/"><u>Acronis True Image Overcomes Hurdles in Cloning Process - Solutions Unveiled</u></a></li>
+<li><a href="https://techidaily.com/complete-tutorial-for-vivo-t2x-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for Vivo T2x 5G Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-the-newest-canon-mg2520-drivers-for-windows-to-enhance-printing-functionality/"><u>Get the Newest Canon MG2520 Drivers for Windows to Enhance Printing Functionality</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-add-your-digital-signature-to-a-word-2013-document-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to Add Your Digital Signature to a Word 2013 Document</u></a></li>
+<li><a href="https://solve-info.techidaily.com/how-to-restore-acer-nitro-5-laptop-to-factory-settings-with-windows-11-everything-you-need-to-know/"><u>How to Restore Acer Nitro 5 Laptop to Factory Settings with Windows 11 - Everything You Need to Know</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-oppo-reno-9a-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Oppo Reno 9A to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Share/Fake Location on WhatsApp for Apple iPhone 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/kostenloser-hyper-v-server-2019-datenwiederherstellung-entdecken-sie-die-zwei-hauptwege/"><u>Kostenloser Hyper-V Server 2019 Datenwiederherstellung – Entdecken Sie Die Zwei Hauptwege</u></a></li>
+<li><a href="https://solve-info.techidaily.com/mastering-icloud-restoration-ultimate-guide-with-7-proven-fixes-for-common-errors/"><u>Mastering iCloud Restoration: Ultimate Guide with 7 Proven Fixes for Common Errors</u></a></li>
+<li><a href="https://solve-info.techidaily.com/missing-page-alert-content-doesnt-exist-here/"><u>Missing Page Alert: Content Doesn't Exist Here</u></a></li>
+<li><a href="https://solve-info.techidaily.com/seamless-transition-of-google-authenticator-tokens-onto-a-freshly-installed-iphone-best-practices-and-steps/"><u>Seamless Transition of Google Authenticator Tokens Onto a Freshly Installed iPhone - Best Practices & Steps</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/top-trending-ig-filters-ranked/"><u>Top Trending IG Filters Ranked</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/udelukkende-vejledning-om-at-optage-skaerm-med-obs-movavis-eksperter/"><u>Udelukkende Vejledning Om at Optage Skærm Med OBS - Movavi's Eksperter</u></a></li>
 </ul></div>
 

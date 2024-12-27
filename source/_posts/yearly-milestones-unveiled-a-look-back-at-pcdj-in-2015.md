@@ -1,7 +1,7 @@
 ---
 title: "Yearly Milestones Unveiled: A Look Back at PCDJ in 2015"
-date: 2024-12-16T17:23:48.456Z
-updated: 2024-12-18T18:10:29.511Z
+date: 2024-12-21T20:10:37.627Z
+updated: 2024-12-26T17:55:47.898Z
 tags:
   - product
 categories:
@@ -35,7 +35,7 @@ But let’s be clear: In our business **if you’re not constantly innovating an
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **DJ Software: Launch of DEX 3.5 and RED Mobile 3.5**
@@ -45,7 +45,7 @@ DEX 3 launched a little over a year ago. It was a total re-write of the previous
 [LEARN MORE ABOUT DEX 3 ![DEX 3 4-Deck Video Mixing Software](https://i1.wp.com/pcdj.com/wp-content/uploads/2015/11/dex35withvideo-new-banner.jpg?fit=300%2C169&ssl=1 "DEX 3 Video Mixing Software")](https://tools.techidaily.com/pcdj/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 DEX 3.5 and RED Mobile 3.5 are significantly more polished now, and sport new versatile and modern skins (GUI) with various modes. Both upgrades come with Pulselocker streaming baked in, providing users online/offline access to a catalog of 44+ million tracks in all genres, from major and independent labels. Pulselocker integration is a worlds-first for DJ software, a commercially legal subscription built just for DJs.
@@ -53,7 +53,7 @@ DEX 3.5 and RED Mobile 3.5 are significantly more polished now, and sport new ve
 [LEARN MORE ABOUT PULSELOCKER ![pcdj plus pulselocker press release](https://i2.wp.com/pcdj.com/wp-content/uploads/2015/12/pcdjpulslocker-pressrelease.jpg?fit=300%2C169&ssl=1 "pulselocker and pcdj press release")](https://tools.techidaily.com/pcdj/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Two weeks ago we [launched DEX 3.5.5 with automatic key detection](https://tools.techidaily.com/pcdj/products/), allowing users to mix tracks harmonically without key-clashing. The BPM engine has also been upgraded, so all beat-aware functions are more precise.
@@ -62,15 +62,15 @@ A few additional DJ controllers from top brands such as Numark, Pioneer DJ, Deno
 
 Keep our blog bookmarked, as we have upgrades and features on the way that we think DJs are going to love.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **Karaoke Software: Karaoki Updates and KaraoQ360**
 
 PCDJ created the first commercially sold [professional karaoke software](https://tools.techidaily.com/pcdj/products/) in 2003\. It had a relatively humble beginning; a basic karaoke plugin for our DJ software at the time (BLUE, RED and FX VRM).
 
 [LEARN MORE ABOUT KARAOQ360 (Coming Soon) ![karaoQ360 with karaoke software](https://i0.wp.com/pcdj.com/wp-content/uploads/2015/10/q360-bundle.png?fit=300%2C300&ssl=1 "q360-bundle")](http://www.karaoq360.com)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Karaoki just turned 8** and has users in over 56 countries around the globe. It’s a top-seller and for me the reason is clear. When you have a lead developer that he himself is as **committed to hosting karaoke professionally as he is to creating world-class karaoke software** what you end up with is a robust and truly thought-through product. Just as I take notes on a call with a customer, Alan interacts with Karaoki users on [our forums](https://tools.techidaily.com/pcdj/products/). Some of the features we added or tweaked this year came from users that posted requests that came in-line with our own development goals.
 
@@ -83,7 +83,7 @@ Again, stay tuned into our blog as more info on KaraoQ and KaraoQ360 will soon b
 _We’d love to hear from you – what would you like to see from PCDJ in 2016? Leave your comments and suggestions below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -105,22 +105,14 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2015/12/yearinreview2015-coverimag
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-battle-for-asgard-the-ragnarok-chronicles-for-2024/"><u>[New] Battle for Asgard The Ragnarök Chronicles for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-the-greatest-satirical-serenades/"><u>[New] In 2024, The Greatest Satirical Serenades</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-streamlining-video-conferencing-combining-skype-and-zoom-effortlessly/"><u>[New] Streamlining Video Conferencing Combining Skype & Zoom Effortlessly</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-total-data-consumption-days-long-movie/"><u>[New] Total Data Consumption Day's Long Movie</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-budget-conscious-pc-capture-programs/"><u>[Updated] Budget-Conscious PC Capture Programs</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-a-quick-guide-to-moving-videos-from-youtube-to-dailymotion/"><u>[Updated] In 2024, A Quick Guide to Moving Videos From YouTube to Dailymotion</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1-modify-your-sound-and-display-preferences-via-the-windows-control-panel-tutorial-by-yl-computing/"><u>1. Modify Your Sound and Display Preferences via the Windows Control Panel - Tutorial by YL Computing</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/can-televising-streaming-services-include-facebook-content-for-2024/"><u>Can Televising Streaming Services Include Facebook Content for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/evaluating-windows-defenders-effectiveness-for-pc-security-expert-analysis-from-yl-computing/"><u>Evaluating Windows Defender’s Effectiveness for PC Security – Expert Analysis From YL Computing</u></a></li>
-<li><a href="https://techidaily.com/how-to-upgrade-apple-iphone-8-plus-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade Apple iPhone 8 Plus without Data Loss? | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/navigating-the-dynamics-of-digital-asset-trading-insights-from-yl-software-and-computing-experts/"><u>Navigating the Dynamics of Digital Asset Trading: Insights From YL Software and Computing Experts</u></a></li>
-<li><a href="https://solve-info.techidaily.com/outsmart-the-no-ink-alert-strategies-by-yl-software-experts/"><u>Outsmart the 'No Ink' Alert: Strategies by YL Software Experts</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solution-found-what-to-do-when-numbers-on-keyboard-wont-work/"><u>Solution Found! What to Do When Numbers on Keyboard Won't Work</u></a></li>
-<li><a href="https://solve-info.techidaily.com/solve-your-audio-dilemma-uncovering-why-your-sound-card-isnt-working-with-yl-software-insights/"><u>Solve Your Audio Dilemma: Uncovering Why Your Sound Card Isn't Working with YL Software Insights</u></a></li>
-<li><a href="https://solve-info.techidaily.com/understanding-potential-dangers-a-comprehensive-guide-to-crypto-investment-risks-by-yl-software/"><u>Understanding Potential Dangers: A Comprehensive Guide to Crypto Investment Risks by YL Software</u></a></li>
-<li><a href="https://solve-info.techidaily.com/unzipping-files-on-windows-a-step-by-step-guide-yl-software-solutions/"><u>Unzipping Files on Windows: A Step-by-Step Guide - YL Software Solutions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/victorious-leadership-how-mao-zedong-steered-the-cpc-through-the-chinese-civil-war-insights-by-yl-computing/"><u>Victorious Leadership: How Mao Zedong Steered the CPC Through the Chinese Civil War - Insights by YL Computing</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-capture-every-skype-interaction-windows-and-os-x-style/"><u>[New] 2024 Approved Capture Every Skype Interaction Windows & OS X Style</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-guide-to-simple-curvature-alteration-in-pics/"><u>2024 Approved Guide to Simple Curvature Alteration in Pics</u></a></li>
+<li><a href="https://solve-info.techidaily.com/avoiding-costly-repairs-expert-advice-on-keeping-electronics-safe-discover-more-at-yl-software-solutions/"><u>Avoiding Costly Repairs: Expert Advice on Keeping Electronics Safe - Discover More at YL Software Solutions</u></a></li>
+<li><a href="https://solve-info.techidaily.com/exploring-effective-strategies-for-overcoming-hardware-malfunctions-with-yls-innovative-approach/"><u>Exploring Effective Strategies for Overcoming Hardware Malfunctions with YL's Innovative Approach</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-unlock-nubia-red-magic-9-pro-by-drfone-android-unlock-android-unlock/"><u>How to unlock Nubia Red Magic 9 Pro</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-start-small-livestreaming-on-youtube-with-fewer-than-1k-followers/"><u>In 2024, Start Small Livestreaming on YouTube with Fewer Than 1K Followers</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-geo-blocking-and-how-to-bypass-it-on-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>In 2024, What is Geo-Blocking and How to Bypass it On Xiaomi Redmi K70? | Dr.fone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/overcoming-image-scanning-issues-with-tips-from-yl-software-experts/"><u>Overcoming Image Scanning Issues with Tips From YL Software Experts</u></a></li>
+<li><a href="https://solve-info.techidaily.com/quick-guide-creating-faster-access-to-windows-control-panel-tips-from-yl-computing/"><u>Quick Guide: Creating Faster Access to Windows Control Panel - Tips From YL Computing</u></a></li>
 </ul></div>
 

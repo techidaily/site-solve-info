@@ -1,7 +1,7 @@
 ---
 title: How to Restore Acer Nitro 5 Laptop to Factory Settings with Windows 11 - Everything You Need to Know
-date: 2024-11-20T16:46:32.344Z
-updated: 2024-11-26T17:36:13.287Z
+date: 2024-12-19T21:12:47.875Z
+updated: 2024-12-26T17:14:47.343Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/f26f632ded9a775a2cb222368880c548c2427581f0543a3b769a816063d44ec2.jpg
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/f26f632ded9a775a2cb222368880c548c2427581f
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Wie kann man den Papierkorb vom Desktop entfernen unter Windows 10?
@@ -59,7 +59,7 @@ Um Speicherplatz freizugeben, leeren viele Benutzer ihren Papierkorb. Aber ist e
 Aber wenn der [Papierkorb als leer angezeigt wird](https://tools.techidaily.com/ubackup/products/), es aber nicht ist, was können Sie tun, um dies zu beheben? Lesen Sie bitte weiter, um die entsprechenden Methoden zu erhalten.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Teil 1\. Wie kann man den Papierkorb vom Desktop entfernen unter Windows 10?
@@ -70,10 +70,6 @@ Vor der dauerhaften Löschung des Papierkorbs sollten Sie sicherstellen, dass ke
 
 [![Windows-Einstellungen Personalisierung](https://www.ubackup.com/de/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/data-recovery/screenshot/de/other/windows/windows-settings-personalization.png "Windows-Einstellungen Personalisierung")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Schritt 2**. Klicken Sie auf die Schaltfläche „**Designs**“.
 
 [![Designs](https://www.ubackup.com/de/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/data-recovery/screenshot/de/other/windows/themes.png "Designs")
@@ -82,12 +78,16 @@ Vor der dauerhaften Löschung des Papierkorbs sollten Sie sicherstellen, dass ke
 
 [![Desktopsymbol-Einstellungen](https://www.ubackup.com/de/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/data-recovery/screenshot/de/other/windows/desktop-icon-settings.png "Desktopsymbol-Einstellungen")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Schritt 4**. Suchen Sie das „**Papierkorb**“-Symbol, entfernen Sie das Häkchen und bestätigen Sie mit „**Übernehmen**“ und „**OK**“.
 
 [![Papierkorb](https://www.ubackup.com/de/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/data-recovery/screenshot/de/other/windows/check-recycle-bin-click-ok.png "Papierkorb")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Teil 2\. Wie kann man den Papierkorb vom Desktop entfernen?
@@ -101,6 +101,10 @@ Wenn Sie den Papierkorb mittels erhöhter Eingabeaufforderung zurücksetzen möc
 **Schritt 2**. Geben Sie „**rd /s /q C:\\Papierkorb**“ in das Eingabeaufforderungsfenster ein und drücken Sie „**Enter**“, um den Vorgang zu starten. Wenn erforderlich, ersetzen Sie das Laufwerk C durch Ihren gewünschten Laufwerksbuchstaben.
 
 [![cmd Papierkorb zurücksetzen](https://www.ubackup.com/de/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/data-recovery/screenshot/de/other/windows/command-prompt/cmd-reset-recycle-bin.png "cmd Papierkorb zurücksetzen")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Teil 3\. Wie kann man gelöschte Dateien aus dem Papierkorb nach dem Leeren wiederherstellen?
 
@@ -126,13 +130,17 @@ Sicherer Download
 
 [![Laufwerk scannen](https://www.ubackup.com/de/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/data-recovery/screenshot/de/data-recovery-disk/windows-recovery/scanning-drive.png "Laufwerk scannen")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Schritt 3**. Gehen Sie zum Papierkorb, um die gewünschten Dateien zu lokalisieren. Klicken Sie dann auf „**x Dateien wiederherstellen**“, um die ausgewählten Dateien wiederherzustellen. Speichern Sie diese wiederhergestellten Dateien bitte an einem neuen Ort.
 
 [![x Dateien wiederherstellen](https://www.ubackup.com/de/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/data-recovery/screenshot/de/data-recovery-disk/windows-recovery/select-deleted-excel-files-click-recover.png "x Dateien wiederherstellen")
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Bonus-Tipps: Wie verhindert man Datenverlust auf Computern?**
 
@@ -165,15 +173,7 @@ Sicherer Download
 
 [![Ordner hinzufügen](https://www.ubackup.com/de/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/de/std/backup/file-backup/add-folder.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Schritt 4**. Nach Abschluss des Sicherungsvorgangs klicken Sie auf „Fertig“, um das Fenster zu schließen.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Zusammenfassung
 
@@ -184,10 +184,6 @@ Wenn Ihr Papierkorb leer angezeigt wird, dies aber nicht der Fall ist, können S
 Wenn Sie den Papierkorb vom Desktop aus leeren möchten, können Sie die im zweiten Teil empfohlene erweiterte Eingabeaufforderung verwenden.
 
 Für [dauerhaft gelöschte Dateien können Sie Ihre Dateien](https://tools.techidaily.com/ubackup/products/) aus den von AOMEI Backupper erstellten Sicherungen wiederherstellen oder Datenrettungstools verwenden, um sie wiederherzustellen.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Häufig gestellte Fragen
 
@@ -210,6 +206,10 @@ Waren die angebotenen Informationen nützlich? Ihre Stimme ist wichtig für uns!
 [Ja](https://tools.techidaily.com/ubackup/products/)[Nein](https://tools.techidaily.com/ubackup/products/)
 
 ![Holiday](https://www.ubackup.com/assets/images/author/Holiday.png) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [Holiday](https://tools.techidaily.com/ubackup/products/) · Editor
 
@@ -250,7 +250,7 @@ Wiederherstellen von gelöschten und verlorenen Daten aus allen Katastrophen in 
 ![](https://www.ubackup.com/resource/images/ub-mr-theme/ub-article-mr-img-dibu.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
@@ -268,22 +268,18 @@ Wiederherstellen von gelöschten und verlorenen Daten aus allen Katastrophen in 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/new-best-gallery-archive-websites/"><u>[New] Best Gallery Archive Websites</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-core-principles-of-internet-storytelling-for-2024/"><u>[New] Core Principles of Internet Storytelling for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ew-age-monetization-cost-effective-channel-options/"><u>[New] New Age Monetization Cost-Effective Channel Options</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-15-top-free-slow-motion-video-recording-apps-for-iphoneandroid/"><u>[Updated] 15 Top Free Slow Motion Video Recording Apps for iPhone/Android</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-cutting-edge-techniques-for-live-videos-from-your-smartphone/"><u>[Updated] 2024 Approved Cutting-Edge Techniques for Live Videos From Your Smartphone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-female-gamers-faction-yts-10-stars/"><u>2024 Approved Female Gamers Faction YT's #10 Stars</u></a></li>
-<li><a href="https://solve-info.techidaily.com/dell-os/"><u>Dell OSリカバリツールを安心で利用するための詳細な手引き:ダウンロードから始めましょう</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/leading-directory-of-cost-free-online-resources-for-superior-vector-graphics-for-2024/"><u>Leading Directory of Cost-Free Online Resources for Superior Vector Graphics for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/microsoft-outlook2/"><u>Microsoft Outlookでメール自動削除機能を無効化するための新手法2種</u></a></li>
-<li><a href="https://solve-info.techidaily.com/missing-content-alert-your-requested-webpage-is-unavailable-http-404/"><u>Missing Content Alert: Your Requested Webpage Is Unavailable (HTTP 404)</u></a></li>
-<li><a href="https://solve-info.techidaily.com/support-pour-divers-supports-de-stockage-dans-nos-rayons-disponibles-maintenant/"><u>Support Pour Divers Supports De Stockage Dans Nos Rayons Disponibles Maintenant</u></a></li>
-<li><a href="https://solve-info.techidaily.com/the-inside-scoop-on-hps-hard-drives-overcoming-obstacles-and-achieving-peak-performance/"><u>The Inside Scoop on HP's Hard Drives: Overcoming Obstacles and Achieving Peak Performance</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/the-monetary-side-of-podcasting-success/"><u>The Monetary Side of Podcasting Success</u></a></li>
-<li><a href="https://solve-info.techidaily.com/usb-startup-on-your-microsoft-surface-the-ultimate-how-to-tutorial/"><u>USB Startup on Your Microsoft Surface: The Ultimate How-To Tutorial</u></a></li>
-<li><a href="https://win-rankings.techidaily.com/wiederherstellung-des-geloschten-windowsold-ordners-in-windows-11-10-8-und-7-eine-schritt-fur-schritt-anleitung/"><u>Wiederherstellung Des Gelöschten 'Windows.old'-Ordners in Windows 11, 10, 8 Und 7: Eine Schritt-Für-Schritt-Anleitung</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1728508087734-windows-10/"><u>Windows 10でディスクイメージの作り方詳しく解説</u></a></li>
-<li><a href="https://solve-info.techidaily.com/windows-10-rsync/"><u>Windows 10にて効率的なファイル同期: Rsyncの適用手法</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-10-free-web-conferencing-software-for-online-meeting-with-screen-sharing/"><u>[Updated] 10 Free Web Conferencing Software for Online Meeting (with Screen Sharing)</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-how-to-send-gif-on-snapchat-stey-by-stey-guide/"><u>[Updated] 2024 Approved How to Send Gif on Snapchat [Stey-by-Stey Guide]</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-enhancing-visual-quests-hunt-for-pristine-pexels-images-for-2024/"><u>[Updated] Enhancing Visual Quests Hunt for Pristine Pexels Images for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-pushing-boundaries-in-media-crafting-curved-content/"><u>2024 Approved Pushing Boundaries in Media Crafting Curved Content</u></a></li>
+<li><a href="https://solve-info.techidaily.com/abbyy-announces-adrian-jones-as-new-chief-of-revenue-operations-driving-financial-growth/"><u>ABBYY Announces Adrian Jones as New Chief of Revenue Operations, Driving Financial Growth</u></a></li>
+<li><a href="https://solve-info.techidaily.com/abbyy-at-handelsblatts-annual-conference-focus-on-banking-technology/"><u>ABBYY at Handelsblatt's Annual Conference - Focus on Banking Technology</u></a></li>
+<li><a href="https://solve-info.techidaily.com/abbyy-finereader-engine-12-ideal-ocr-sdk-for-virtual-and-cloud-environments-revealed/"><u>ABBYY FineReader Engine 12: Ideal OCR SDK for Virtual & Cloud Environments Revealed</u></a></li>
+<li><a href="https://solve-info.techidaily.com/abbyy-solutions-mastering-photo-editing-barcode-scanning-and-social-media-integration-with-advanced-currency-tools/"><u>ABBYY Solutions: Mastering Photo Editing, Barcode Scanning & Social Media Integration with Advanced Currency Tools</u></a></li>
+<li><a href="https://solve-info.techidaily.com/abbyy-welcomes-paul-nizov-as-their-latest-appointment-chief-information-security-officer/"><u>ABBYY Welcomes Paul Nizov as Their Latest Appointment: Chief Information Security Officer</u></a></li>
+<li><a href="https://solve-info.techidaily.com/abbyys-revolutionary-approach-zur-dokumentenverarbeitung-und-kategorisierung/"><u>ABBYY's Revolutionary Approach Zur Dokumentenverarbeitung Und Kategorisierung</u></a></li>
+<li><a href="https://win-bytes.techidaily.com/i-migliori-16-programmi-gratuiti-multpi-piattaforma-per-la-creazione-di-presentazioni-pc-ios-e-android/"><u>I Migliori 16 Programmi Gratuiti Multpi Piattaforma per La Creazione Di Presentazioni: PC, iOS E Android</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-mastering-minimization-32-top-rated-apps-to-tidy-up-videos-on-android/"><u>In 2024, Mastering Minimization 32 Top-Rated Apps to Tidy Up Videos on Android</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/mastering-technology-decisions-guidance-from-toms-hardware-hub/"><u>Mastering Technology Decisions: Guidance From Tom's Hardware Hub</u></a></li>
 </ul></div>
 
