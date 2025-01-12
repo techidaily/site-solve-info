@@ -1,7 +1,7 @@
 ---
 title: "Yearly Milestones Unveiled: A Look Back at PCDJ in 2015"
-date: 2024-12-30T16:05:18.632Z
-updated: 2025-01-05T18:32:39.719Z
+date: 2025-01-07T20:27:44.878Z
+updated: 2025-01-12T07:12:30.554Z
 tags:
   - product
 categories:
@@ -34,10 +34,6 @@ But let’s be clear: In our business **if you’re not constantly innovating an
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **DJ Software: Launch of DEX 3.5 and RED Mobile 3.5**
 
 DEX 3 launched a little over a year ago. It was a total re-write of the previous DJ mixing software platforms and came equipped with a new user interface, custom sound and video mixing engines and support for many of the top DJ controllers on the market.
@@ -45,12 +41,16 @@ DEX 3 launched a little over a year ago. It was a total re-write of the previous
 [LEARN MORE ABOUT DEX 3 ![DEX 3 4-Deck Video Mixing Software](https://i1.wp.com/pcdj.com/wp-content/uploads/2015/11/dex35withvideo-new-banner.jpg?fit=300%2C169&ssl=1 "DEX 3 Video Mixing Software")](https://tools.techidaily.com/pcdj/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 DEX 3.5 and RED Mobile 3.5 are significantly more polished now, and sport new versatile and modern skins (GUI) with various modes. Both upgrades come with Pulselocker streaming baked in, providing users online/offline access to a catalog of 44+ million tracks in all genres, from major and independent labels. Pulselocker integration is a worlds-first for DJ software, a commercially legal subscription built just for DJs.
 
 [LEARN MORE ABOUT PULSELOCKER ![pcdj plus pulselocker press release](https://i2.wp.com/pcdj.com/wp-content/uploads/2015/12/pcdjpulslocker-pressrelease.jpg?fit=300%2C169&ssl=1 "pulselocker and pcdj press release")](https://tools.techidaily.com/pcdj/products/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Two weeks ago we [launched DEX 3.5.5 with automatic key detection](https://tools.techidaily.com/pcdj/products/), allowing users to mix tracks harmonically without key-clashing. The BPM engine has also been upgraded, so all beat-aware functions are more precise.
 
@@ -59,7 +59,7 @@ A few additional DJ controllers from top brands such as Numark, Pioneer DJ, Deno
 Keep our blog bookmarked, as we have upgrades and features on the way that we think DJs are going to love.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Karaoke Software: Karaoki Updates and KaraoQ360**
@@ -69,7 +69,7 @@ PCDJ created the first commercially sold [professional karaoke software](https:/
 [LEARN MORE ABOUT KARAOQ360 (Coming Soon) ![karaoQ360 with karaoke software](https://i0.wp.com/pcdj.com/wp-content/uploads/2015/10/q360-bundle.png?fit=300%2C300&ssl=1 "q360-bundle")](http://www.karaoq360.com)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Karaoki just turned 8** and has users in over 56 countries around the globe. It’s a top-seller and for me the reason is clear. When you have a lead developer that he himself is as **committed to hosting karaoke professionally as he is to creating world-class karaoke software** what you end up with is a robust and truly thought-through product. Just as I take notes on a call with a customer, Alan interacts with Karaoki users on [our forums](https://tools.techidaily.com/pcdj/products/). Some of the features we added or tweaked this year came from users that posted requests that came in-line with our own development goals.
@@ -83,7 +83,7 @@ Again, stay tuned into our blog as more info on KaraoQ and KaraoQ360 will soon b
 _We’d love to hear from you – what would you like to see from PCDJ in 2016? Leave your comments and suggestions below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -105,24 +105,17 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2015/12/yearinreview2015-coverimag
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/ree-youtube-intro-steps-and-template-guide/"><u>[New] Free YouTube Intro Steps and Template Guide</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-from-chatterboxes-to-chronicles-mastering-the-art-of-skype-recording/"><u>[New] From Chatterboxes to Chronicles Mastering the Art of Skype Recording</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-streammasters-obs-edition-for-2024/"><u>[New] StreamMasters OBS Edition for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-brief-overview-of-the-quickest-chroma-key-tricks/"><u>2024 Approved Brief Overview of the Quickest Chroma Key Tricks</u></a></li>
-<li><a href="https://solve-info.techidaily.com/1728466582392-ps4/"><u>如何修復PS4無法達到的內部存儲問題 - 完整教程</u></a></li>
-<li><a href="https://solve-info.techidaily.com/excelshiftplusdelete/"><u>再生可能なExcelデータへの変換：Shift+Deleteキーが関与するケース</u></a></li>
-<li><a href="https://solve-info.techidaily.com/comprehensive-guide-to-mobile-device-data-backups/"><u>Comprehensive Guide to Mobile Device Data Backups</u></a></li>
-<li><a href="https://solve-info.techidaily.com/how-to-revert-to-an-earlier-windows-11-version-a-guide-with-9-effective-strategies/"><u>How to Revert to an Earlier Windows 11 Version: A Guide with 9 Effective Strategies</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-the-game-changer-implementing-custom-gaming-banners/"><u>In 2024, The Game Changer Implementing Custom Gaming Banners</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/instant-image-clarity-picart-background-cleansing-hacks/"><u>Instant Image Clarity PicArt Background Cleansing Hacks</u></a></li>
-<li><a href="https://solve-info.techidaily.com/overcoming-the-challenge-a-guide-to-successfully-setting-up-windows-on-disks-first-partition/"><u>Overcoming the Challenge: A Guide to Successfully Setting up Windows on Disk's First Partition</u></a></li>
-<li><a href="https://solve-info.techidaily.com/protecting-your-data-in-onenote-for-windows-nxplus-effective-strategies-for-backup-and-restoration-of-notes/"><u>Protecting Your Data in OneNote for Windows nX+: Effective Strategies for Backup and Restoration of Notes</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/reviving-unresponsive-menus-of-the-windows-11-os/"><u>Reviving Unresponsive Menus of the Windows 11 OS</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/step-by-step-guide-insert-a-linked-text-in-your-tiktok-bio/"><u>Step-by-Step Guide Insert a Linked Text in Your TikTok Bio</u></a></li>
-<li><a href="https://solve-info.techidaily.com/step-by-step-guide-disabling-the-boot-manager-set-up-by-aomei/"><u>Step-by-Step Guide: Disabling the Boot Manager Set Up by AOMEI</u></a></li>
-<li><a href="https://solve-info.techidaily.com/step-by-step-tutorial-setting-up-virtual-machines-in-vsphere-for-beginners/"><u>Step-by-Step Tutorial: Setting Up Virtual Machines in vSphere for Beginners</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/top-strategies-for-os-partition-cloning-from-hdd-to-ssd-on-windows-1110/"><u>Top Strategies for OS Partition Cloning From HDD to SSD on Windows 11/10</u></a></li>
-<li><a href="https://solve-info.techidaily.com/transfiera-sus-archivos-de-microsoft-outlook-a-gmail-con-estos-dos-metodos-y-una-herramienta-util/"><u>Transfiera Sus Archivos De Microsoft Outlook a Gmail Con Estos Dos Métodos Y Una Herramienta Útil</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/ultimate-iphones-for-gaming-lovers-top-picks-and-reviews/"><u>Ultimate iPhones for Gaming Lovers: Top Picks and Reviews</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-earn-big-on-youtube-shorts-tips-for-profitable-content-creation/"><u>[New] 2024 Approved Earn Big on YouTube Shorts Tips for Profitable Content Creation</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-hasty-methods-for-mixed-up-youtube-playback-sequence/"><u>[New] 2024 Approved Hasty Methods for Mixed-Up YouTube Playback Sequence</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/ai-integration-mastery-3-proven-methods-for-boosting-excel-with-chatgpt/"><u>AI Integration Mastery: 3 Proven Methods for Boosting Excel with ChatGPT</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/beginners-guide-exploring-the-world-of-ai-with-these-9-communities/"><u>Beginner's Guide: Exploring the World of AI with These 9 Communities</u></a></li>
+<li><a href="https://solve-info.techidaily.com/elevate-your-business-with-abbyy-flexicapture-for-a-digitally-advanced-future/"><u>Elevate Your Business with ABBYY FlexiCapture for a Digitally Advanced Future</u></a></li>
+<li><a href="https://solve-info.techidaily.com/experience-tailored-navigation-with-cookiebot-technology/"><u>Experience Tailored Navigation with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-info.techidaily.com/leveraging-cookiebot-solutions-boosting-online-traffic-and-conversion-rates/"><u>Leveraging Cookiebot Solutions: Boosting Online Traffic & Conversion Rates</u></a></li>
+<li><a href="https://some-tips.techidaily.com/marriotts-innovative-approach-to-guest-satisfaction-a-surprising-happiness-strategy-revealed-by-zdnet/"><u>Marriott's Innovative Approach to Guest Satisfaction: A Surprising Happiness Strategy Revealed by ZDNet</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/mastering-instagram-the-8-best-timers-for-iphoneandroid-users-for-2024/"><u>Mastering Instagram The 8 Best Timers for iPhone/Android Users for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/natasha-mann-leading-visionary-on-the-abbyy-board/"><u>Natasha Mann - Leading Visionary on the ABBYY Board</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/strategies-for-effortlessly-sharing-youtube-videos-on-fb/"><u>Strategies for Effortlessly Sharing YouTube Videos on FB</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-grandest-gatherings-a-chronicle-of-the-most-voted-posts-top-10-for-2024/"><u>The Grandest Gatherings A Chronicle of the Most Voted Posts (Top 10) for 2024</u></a></li>
 </ul></div>
 
