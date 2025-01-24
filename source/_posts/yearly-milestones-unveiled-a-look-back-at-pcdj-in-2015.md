@@ -1,7 +1,7 @@
 ---
 title: "Yearly Milestones Unveiled: A Look Back at PCDJ in 2015"
-date: 2025-01-12T18:56:46.005Z
-updated: 2025-01-18T00:12:18.152Z
+date: 2025-01-21T04:18:57.879Z
+updated: 2025-01-24T05:10:28.298Z
 tags:
   - product
 categories:
@@ -35,7 +35,7 @@ But let’s be clear: In our business **if you’re not constantly innovating an
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **DJ Software: Launch of DEX 3.5 and RED Mobile 3.5**
@@ -49,7 +49,7 @@ DEX 3.5 and RED Mobile 3.5 are significantly more polished now, and sport new ve
 [LEARN MORE ABOUT PULSELOCKER ![pcdj plus pulselocker press release](https://i2.wp.com/pcdj.com/wp-content/uploads/2015/12/pcdjpulslocker-pressrelease.jpg?fit=300%2C169&ssl=1 "pulselocker and pcdj press release")](https://tools.techidaily.com/pcdj/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Two weeks ago we [launched DEX 3.5.5 with automatic key detection](https://tools.techidaily.com/pcdj/products/), allowing users to mix tracks harmonically without key-clashing. The BPM engine has also been upgraded, so all beat-aware functions are more precise.
@@ -59,7 +59,7 @@ A few additional DJ controllers from top brands such as Numark, Pioneer DJ, Deno
 Keep our blog bookmarked, as we have upgrades and features on the way that we think DJs are going to love.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Karaoke Software: Karaoki Updates and KaraoQ360**
@@ -69,7 +69,7 @@ PCDJ created the first commercially sold [professional karaoke software](https:/
 [LEARN MORE ABOUT KARAOQ360 (Coming Soon) ![karaoQ360 with karaoke software](https://i0.wp.com/pcdj.com/wp-content/uploads/2015/10/q360-bundle.png?fit=300%2C300&ssl=1 "q360-bundle")](http://www.karaoq360.com)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Karaoki just turned 8** and has users in over 56 countries around the globe. It’s a top-seller and for me the reason is clear. When you have a lead developer that he himself is as **committed to hosting karaoke professionally as he is to creating world-class karaoke software** what you end up with is a robust and truly thought-through product. Just as I take notes on a call with a customer, Alan interacts with Karaoki users on [our forums](https://tools.techidaily.com/pcdj/products/). Some of the features we added or tweaked this year came from users that posted requests that came in-line with our own development goals.
@@ -83,7 +83,7 @@ Again, stay tuned into our blog as more info on KaraoQ and KaraoQ360 will soon b
 _We’d love to hear from you – what would you like to see from PCDJ in 2016? Leave your comments and suggestions below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -105,20 +105,24 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2015/12/yearinreview2015-coverimag
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-delving-into-tseries-streaming-revenue-model-on-youtube-for-2024/"><u>[New] Delving Into TSeries' Streaming Revenue Model on YouTube for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-elevating-the-impact-of-your-instagram-videos/"><u>[New] In 2024, Elevating the Impact of Your Instagram Videos</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-snapscreen-scrutiny-a-deep-dive-into-recorders/"><u>[New] SnapScreen Scrutiny A Deep Dive Into Recorders</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-uncovering-asmr-truths-for-viewers/"><u>[New] Uncovering ASMR Truths for Viewers</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-latest-series-captivating-qanda-for-podcast-audience-for-2024/"><u>[Updated] Latest Series Captivating Q&A for Podcast Audience for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-infinix-note-30-vip-racing-edition-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Infinix Note 30 VIP Racing Edition Current Location of a Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/aomei-backupperoutlook/"><u>AOMEI Backupperを使ってOutlookメールファイルを安全に保存する手順</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-vivo-y200e-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Vivo Y200e 5G | Dr.fone</u></a></li>
-<li><a href="https://solve-info.techidaily.com/master-ocz-transfer-techniques-effortless-fast-and-risk-free-strategies-for-free/"><u>Master OCZ Transfer Techniques: Effortless, Fast & Risk-Free Strategies for Free</u></a></li>
-<li><a href="https://solve-info.techidaily.com/microsoft-outlook2/"><u>Microsoft Outlookでメール自動削除機能を無効化するための新手法2種</u></a></li>
-<li><a href="https://solve-info.techidaily.com/missing-content-alert-your-requested-webpage-is-unavailable-http-404/"><u>Missing Content Alert: Your Requested Webpage Is Unavailable (HTTP 404)</u></a></li>
-<li><a href="https://solve-info.techidaily.com/reversing-a-quick-format-discover-5-proven-techniques/"><u>Reversing a Quick Format: Discover 5 Proven Techniques</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/seamless-mobile-broadcasting-best-budget-streamer-list-for-2024/"><u>Seamless Mobile Broadcasting Best Budget Streamer List for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/support-pour-divers-supports-de-stockage-dans-nos-rayons-disponibles-maintenant/"><u>Support Pour Divers Supports De Stockage Dans Nos Rayons Disponibles Maintenant</u></a></li>
-<li><a href="https://solve-info.techidaily.com/usb-startup-on-your-microsoft-surface-the-ultimate-how-to-tutorial/"><u>USB Startup on Your Microsoft Surface: The Ultimate How-To Tutorial</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-google-hangout-optimization-advanced-methods-4-tips/"><u>[New] In 2024, Google Hangout Optimization Advanced Methods, 4 Tips</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-interpreting-the-significance-of-a-blue-image-on-fb-chat/"><u>[New] In 2024, Interpreting the Significance of a Blue Image on FB Chat</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-unlocking-the-full-potential-of-mac-audio-with-audacitys-features/"><u>[Updated] Unlocking the Full Potential of Mac Audio with Audacity's Features</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-motorola-moto-g73-5g-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Motorola Moto G73 5G Phone Using PC | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/5-common-twitch-broadcasting-conundrums-for-first-timers/"><u>5 Common Twitch Broadcasting Conundrums for First-Timers</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1728480890944-windows-server-2012-r2/"><u>刻不容緩的方法：在 Windows Server 2012 R2 中撤銷已經刪除的檔案</u></a></li>
+<li><a href="https://solve-info.techidaily.com/1728489165047-tpm-20-windows-11/"><u>如何在没有安全引导及TPM 2.0设置的传统方法中安装 Windows 11</u></a></li>
+<li><a href="https://apple-account.techidaily.com/apple-id-unlock-from-apple-iphone-14-pro-how-to-fix-it-by-drfone-ios/"><u>Apple ID Unlock From Apple iPhone 14 Pro? How to Fix it?</u></a></li>
+<li><a href="https://solve-info.techidaily.com/discover-these-top-4-methods-for-quickly-locating-restored-microsoft-word-files/"><u>Discover These Top 4 Methods for Quickly Locating Restored Microsoft Word Files</u></a></li>
+<li><a href="https://solve-info.techidaily.com/free-substitutes-for-wd-sync-on-windows-11-10-8-and-ebx/"><u>FREE Substitutes for WD Sync on Windows 11, 10, 8 & Ebx</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-subscriber-supremacy-youtubes-front-runners/"><u>In 2024, Subscriber Supremacy YouTube's Front-Runners</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-unlocking-iphone-xs-lock-screen-3-foolproof-methods-that-actually-work-by-drfone-ios/"><u>In 2024, Unlocking iPhone XS Lock Screen 3 Foolproof Methods that Actually Work</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/navigating-twitters-video-content-aspect-ratios-included/"><u>Navigating Twitter’s Video Content Aspect Ratios Included</u></a></li>
+<li><a href="https://solve-info.techidaily.com/schnell-losungen-fur-die-uberhitzung-von-ios-16-geraten-ein-umfassender-leitfaden/"><u>Schnell Lösungen Für Die Überhitzung Von iOS 16 Geräten: Ein Umfassender Leitfaden</u></a></li>
+<li><a href="https://solve-info.techidaily.com/schritt-fur-schritt-anleitung-zur-wiederherstellung-geloschter-dateien-im-netzlaufwerk-unter-windows-11/"><u>Schritt-Für-Schritt-Anleitung Zur Wiederherstellung Gelöschter Dateien Im Netzlaufwerk Unter Windows 11</u></a></li>
+<li><a href="https://solve-info.techidaily.com/steams-hidden-gallery-unveiled-discover-where-captured-moments-are-stored-and-strategies-to-recover-lost-screen-shots/"><u>Steam's Hidden Gallery Unveiled: Discover Where Captured Moments Are Stored and Strategies to Recover Lost Screen Shots</u></a></li>
+<li><a href="https://solve-info.techidaily.com/step-by-step-secure-guide-refreshing-your-system-with-a-clean-install-of-windows-1110/"><u>Step-by-Step Secure Guide: Refreshing Your System with a Clean Install of Windows 11/10</u></a></li>
+<li><a href="https://solve-info.techidaily.com/troubleshooting-wd-external-storage-device-failure-in-windows-10/"><u>Troubleshooting WD External Storage Device Failure in Windows 10</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/update-your-rtx-2080-to-the-latest-windows-drivers-supported-on-windows-11-7-and-8/"><u>Update Your RTX 2080 to the Latest Windows Drivers: Supported on Windows 11, 7 & 8</u></a></li>
 </ul></div>
 
