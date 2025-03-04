@@ -1,7 +1,7 @@
 ---
 title: Découvrez Comment Restaurer Les Fichiers Masqués Ou Perdus De Votre Disque Dur Windows Avec Ces 5 Méthodes Simples
-date: 2025-02-11T21:41:25.969Z
-updated: 2025-02-13T07:08:49.527Z
+date: 2025-02-26T17:35:01.081Z
+updated: 2025-03-04T07:14:43.615Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/6504740a985b93f1ab7ddf2a2493507fc4e1a65d7f00706449676a59eeb923d9.jpg
@@ -35,10 +35,6 @@ Partager sur : ![facebook](https://www.ubackup.com/resource/images/ab-theme/ub-a
 3. [Comment utiliser le logiciel de sauvegarde NAS Buffalo pour Windows pour sauvegarder des fichiers](https://tools.techidaily.com/ubackup/products/)
 4. [Dernières réflexions sur l'utilitaire de sauvegarde Buffalo](https://tools.techidaily.com/ubackup/products/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Logiciel de sauvegarde NAS Buffalo pour système Windows
 
 NAS Buffalo est la solution idéale pour la protection des données et peut facilement éviter les défaillances informatiques causées par une attaque de virus, un plantage système, une corruption de disque, etc. Cependant, il peut également se bloquer et entraîner une perte de données dans ces situations. Vous ne souhaitez probablement pas perdre vos données, il est donc judicieux de sauvegarder votre NAS Buffalo sur un disque dur externe, une clé USB ou d'autres périphériques.
@@ -65,10 +61,6 @@ Toutes les opérations s'effectuent dans une interface intuitive, ce qui permet 
 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-logo-ab-32.svg)AOMEI Backupper
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Meilleur logiciel de sauvegarde Windows gratuit pour usage personnel.
 
 [**Télécharger gratuiciel** Windows 11/10/8.1/8/7](https://tools.techidaily.com/ubackup/products/)
@@ -93,33 +85,17 @@ Cliquez sur **Share/NAS** pour ouvrir la fenêtre suivante.
 
 [![share/nas](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/ouvrir.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Ensuite, cliquez sur **Ajouter un périphérique Share ou NAS**, saisissez le nom d'affichage, l'adresse IP, le nom d'utilisateur et le mot de passe pour connecter votre espace de stockage NAS Buffalo. Double-cliquez ensuite dessus dans le volet de gauche et sélectionnez ce que vous souhaitez sauvegarder dans la liste de droite.
 
 [![ajouter périphérique share ou nas](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/emplacement-reseau.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Étape 3.** Cliquez là où la flèche pointe et sélectionnez le disque externe préparé comme destination.
 
 [![destination](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/choix-chemin-destinations.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Étape 4.** Pour rendre la sauvegarde simple et efficace, définissez une planification de sauvegarde quotidienne, hebdomadaire ou mensuelle dans l'endroit inférieur et cliquez sur **Démarrer** pour sauvegarder le NAS Buffalo. Si vous cochez la case Réveiller l'ordinateur pour exécuter les tâches planifiées, le logiciel s'ouvrira et exécutera automatiquement cette tâche.
 
 [![mode planifier](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/mode-planifier.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Par défaut, ce logiciel créera une sauvegarde complète et 6 sauvegardes incrémentielles si vous définissez une tâche de sauvegarde planifiée. Cela peut entraîner un problème d'espace disque plein à long terme, il est donc recommandé d'activer le [Plan de sauvegarde](https://tools.techidaily.com/ubackup/products/) et de supprimer automatiquement les fichiers de sauvegarde. Pour profiter de ces fonctions, passez à l'édition [Professional](https://tools.techidaily.com/ubackup/products/).
 
@@ -169,10 +145,6 @@ Les informations fournies sont-elles utiles ? Votre vote compte beaucoup pour no
 
 [Oui](https://tools.techidaily.com/ubackup/products/)[Non](https://tools.techidaily.com/ubackup/products/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Obtenez gratuitement AOMEI Backupper
 
 Protégez toutes les données de votre ordinateur avec la sauvegarde, la synchronisation et le clonage.
@@ -198,21 +170,16 @@ Protégez toutes les données de votre ordinateur avec la sauvegarde, la synchro
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ichest-youtubers/"><u>[New] Richest YouTubers</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-craft-a-vibrant-youtube-experience-with-tracks/"><u>[Updated] In 2024, Craft a Vibrant Youtube Experience with Tracks</u></a></li>
-<li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-itel-s23-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Itel S23 to iPhone | Dr.fone</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/dvd-shrinkwindows-1011/"><u>DVD Shrink在Windows 10/11无法运行？探索高效的软件供替代</u></a></li>
-<li><a href="https://solve-info.techidaily.com/fixing-broken-system-drivers-on-windows-pcs-with-yl-computings-easy-methods/"><u>Fixing Broken System Drivers on Windows PCs with YL Computing's Easy Methods</u></a></li>
-<li><a href="https://windows11.techidaily.com/how-to-fix-the-microphone-not-working-with-the-xbox-app-on-windows-11-and-11/"><u>How to Fix the Microphone Not Working With the Xbox App on Windows 11 & 11</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-honor-magic-vs-2-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On Honor Magic Vs 2? | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-the-instagram-analysts-handbook-decoding-engagement-and-reach/"><u>In 2024, The Instagram Analyst's Handbook Decoding Engagement and Reach</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-infinix-zero-5g-2023-turbo-device-by-drfone-android/"><u>In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Infinix Zero 5G 2023 Turbo Device</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/instagram-perfection-sizing-your-video-just-right-for-2024/"><u>Instagram Perfection Sizing Your Video Just Right for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/reviving-a-sluggish-printer-restart-techniques-detailed-by-yl-software-experts/"><u>Reviving a Sluggish Printer: Restart Techniques Detailed by YL Software Experts</u></a></li>
-<li><a href="https://solve-info.techidaily.com/setting-up-automatic-scanner-tasks-with-windows-defender-a-step-by-step-guide-insights-by-yl-computing/"><u>Setting Up Automatic Scanner Tasks with Windows Defender: A Step-by-Step Guide - Insights by YL Computing</u></a></li>
-<li><a href="https://solve-info.techidaily.com/setting-up-mouse-and-trackpad-preferences-on-windows-tips-from-yl-software-experts/"><u>Setting Up Mouse and Trackpad Preferences on Windows - Tips From YL Software Experts</u></a></li>
-<li><a href="https://solve-info.techidaily.com/solving-printer-spooler-problems-expert-tips-and-tricks/"><u>Solving Printer Spooler Problems: Expert Tips & Tricks</u></a></li>
-<li><a href="https://solve-info.techidaily.com/step-by-step-guide-adjusting-your-computers-clock-and-calendar-settings-tips-from-yl-computing/"><u>Step-by-Step Guide: Adjusting Your Computer's Clock & Calendar Settings - Tips From YL Computing</u></a></li>
-<li><a href="https://solve-info.techidaily.com/vintage-hd-visuals-classic-1964-xke-jaguar-graphics-for-walls-photo-gallery-by-yl-visuals/"><u>Vintage HD Visuals: Classic 1964 XKE Jaguar Graphics for Walls | Photo Gallery by YL Visuals</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/outube-collaboration-for-effective-content-delivery/"><u>[New] YouTube Collaboration for Effective Content Delivery</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-top-10-mac-screenshotters-and-recorders-reviewed/"><u>[Updated] In 2024, Top 10 Mac Screenshotters and Recorders Reviewed</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-spotlight-on-shared-screen-space/"><u>[Updated] Spotlight on Shared Screen Space</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-techniques-to-transfer-data-from-nokia-c22-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Techniques to Transfer Data from Nokia C22 to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/addingremoving-users-seamlessly-with-yl-computing-a-step-by-step-guide/"><u>Adding/Removing Users Seamlessly with YL Computing - A Step-by-Step Guide</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/delete-gmail-account-withwithout-password-on-honor-x8b-by-drfone-android/"><u>Delete Gmail Account With/Without Password On Honor X8b</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/examining-the-impact-of-the-great-wall-in-shaping-chinas-historical-narrative-insights-from-yl-computing/"><u>Examining the Impact of the Great Wall in Shaping China's Historical Narrative - Insights From YL Computing</u></a></li>
+<li><a href="https://solve-info.techidaily.com/exploring-the-horizon-pcdjs-visionary-plan-for-achieving-2016-milestones/"><u>Exploring the Horizon: PCDJ's Visionary Plan for Achieving 2016 Milestones</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-optimize-your-macs-screen-record-functionality-with-keystrokes/"><u>In 2024, Optimize Your Mac's Screen Record Functionality with Keystrokes</u></a></li>
+<li><a href="https://solve-info.techidaily.com/maintain-peak-efficiency-for-your-computer-with-proven-strategies-by-yl-computing/"><u>Maintain Peak Efficiency for Your Computer with Proven Strategies by YL Computing</u></a></li>
+<li><a href="https://solve-info.techidaily.com/protecting-your-digital-wealth-essential-strategies-for-safe-cryptocurrency-trading-with-guidance-from-yl-software/"><u>Protecting Your Digital Wealth: Essential Strategies for Safe Cryptocurrency Trading with Guidance From YL Software</u></a></li>
 </ul></div>
 
